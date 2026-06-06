@@ -1,3 +1,61 @@
+###  Публикация: 1527569   (736445) от 29.01.2022
+
+VA - 3xA Music The Best of 2021 (2022) [AAC|~335 Kbps] <Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mazamitla Johnson - Imagination (Pepe Camil's Dream Remix) (7:17)
+02. Gashito - Centenary (7:48)
+03. VegaZ SL, Mr. Freeze (SL) - Parallel Thoughts (ZAHNA Remix) (8:31)
+04. Cryptic Realms - New Moon (Arken X Remix) (7:48)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1E81ADA8D99F3C7F4D1E814249EDCF35F4BA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527722   (736444) от 29.01.2022
+
+VA - Sunrise Meditation, Vol. 01 (2020) [AAC|~314 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass - Moon and Sun (Original Mix) (10:37)
+02. Slow World - Bhutan (Original Mix) (5:55)
+03. Jasmon - Fata Morgana (Original Mix) (3:14)
+04. Yantra Mantra - Raga Sundara (Original Mix) (4:07)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5510201D72C6753F4B7EE564672A98121AEADBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527742   (736442) от 29.01.2022
 
 VA - Sunrise Meditation, Vol. 09 (2021) [AAC|~322 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
@@ -684,64 +742,6 @@ VA - Lounge Weekend - Chillout Beats for Relaxation (2021) [AAC|~322 Kbps] <Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F6855E6D6F6F83255B103A2D10483304FFDB120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528044   (735421) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 06 (2020) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock, Ivan M-sax - Wavedrops (Original Mix) (4:16)
-02. Florent Campana - Et dieu pour tous (Original Mix) (3:55)
-03. Weathertunes - Into a Dream (Original Mix) (3:43)
-04. VAN - Pink Flamingo (Original Mix) (8:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBA7D8C1A5270624BFE8E67FE3BD42DE7E815F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528109   (735420) от 31.01.2022
-
-Bhakta - Open Transmission (2002) [AAC|~327 Kbps] <Tribal, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third Eye (6:37)
-02. Open Transmission (a. Seduced Again, b. That Sha-Sha Groove, c. Let's Whirl) (14:41)
-03. Khidr (a. Another World, b. Rain, c. Khidr) (8:28)
-04. In-Between Moments (4:22)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257F1A2620F412DE35B2BC1F983B8380C14D0921
 ```
 
 https://mybot314.ru/tekegram_catalog/

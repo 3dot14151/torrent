@@ -1,3 +1,81 @@
+###  Публикация: 577735   (358725) от 19.11.2012
+
+Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93310584671C0FB9610ED2A135CA0493ABCF5673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577697   (358722) от 19.11.2012
+
+Usher - Numb (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soul, R'N'B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B63666303AEC5F9BCAE974374F6811FF48658E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577702   (358716) от 19.11.2012
+
+Usher - Dive (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soul, R'N'B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056E18E5D7089609560D09C6B404AFB0A72A2696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577860   (358546) от 19.11.2012
 
 Гайтана - My everything (2012)  [H.264/1080p] WEB-DLRip
@@ -592,87 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8698F3A2EF367629A11356F0C0F8A4F47BACEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951898   (353150) от 02.11.2015
-
-VA - Осенний марафон № 201 / Видеоклипы (Популярные треки осени) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (30.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01.Bob Moses - Tearing Me Up (Official Video) (00:03:33)
-02. Carina Dahl - Champions (Official Video) (00:03:40)
-03. Damon Paul ft. Joelina Drews - Soulmate (Official Video) (00:03:23)
-04. Geo Da Silva - I Love U, Baby (Official Video) (00:03:29)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, PunkПродолжительность: 01:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC77119A54A8E6488A1184C0274B0921474AB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578523   (350586) от 22.11.2012
-
-Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro HouseПродолжительность: 00:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82811AC5C11CF478FF2DE90EB398721CCE2BFE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578524   (350427) от 22.11.2012
-
-DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectroПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B5B64C898F8C0023269FFD970B197C07F56AC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

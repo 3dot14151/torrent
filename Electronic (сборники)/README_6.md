@@ -1,3 +1,90 @@
+###  Публикация: 1452650   (1027598) от 07.03.2021
+
+VA - March Urban Trance Party (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем Вам погрузиться в только лучшую атмосферу андеграунда, вместе с лучшими ди джеями европы, которые не перестают удивлять своих слушателей креативом мышления и взглядом на современную музыку.001. Cquenz - Breathe You In
+002. Ultimate - Outside World
+003. Emj - Cosmic Ocean
+004. Xijaro & Pitch - Head Over Heels(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 12:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB50FEACD2CFC2CC7C8333F321FB59629A21E969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452649   (1027597) от 07.03.2021
+
+VA - E-Dance: Clubbing Electro House (2021) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отпадная клубная музыка в жанре Elесtrо Hоusе собрана настоящими меломанами, клаберами и ценителями качественного саунда в альбоме «E-Dance: Clubbing Electro House». Вас ждет очень много заводных мотивов, сэмплов и крутой вокал. Вся эта музыка звучит на топовых радио и видео каналах мира, на масштабных фестивалях и корпоративах. С первых треков мощный бит поднимет (   Читать дальше...   )001. Steve Massano - Division
+002. Blaze & Udaufl - Spread Love
+003. Markus Grunewelden - No Quick Fix
+004. Dama Blank - Deep(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 11:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0B01A9BE794937A8DAAA785F8AE0ACC6E1A944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452651   (1027586) от 07.03.2021
+
+VA - My Feelings Electropop Music (2021) [MP3|320 Kbps] <Synthpop, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий не напрягающий напев, классические синтезаторные тембры, околофанковый гитарный саунд, приятный запоминающийся мотив - все это в совокупности составляет отличную музыкальную композицию, которую не стыдно поместить в плейлист для ежедневного прослушивания.001. DJ Antention - Runaway
+002. Irrlicht - La Piece
+003. Albino - Amando
+004. Boy Blue - Don't Leave Me Alone(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 09:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A327A163D737FB89BC10C599B7EE6242BB4F1A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452537   (1027531) от 07.03.2021
 
 VA - Record Super Chart 06.03.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -658,93 +745,6 @@ VA - Best New Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D76A669B1476B2C9C6DFA74A8B17137B8A2661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456354   (1025109) от 22.03.2021
-
-VA - The Deep Sleep Music (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз "The Deep Sleep Music" несомненно понравиться почитателям атмосферной и спокойной музыки. Судя по названию, под звучание такой музыки удастся хорошо выспаться и отдохнуть. Отличная пластинка, что безукоризненно вписывается в настрой вечернего нуара. Приятного Вам отдыха!001. Lemongrass - Smooth Moments
-002. Marie Therese - Silencio
-003. Mirage Of Deep - From Heaven & Earth
-004. Eskadet & Amethyste - Aurora(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E9650BF9319FE8974A13C3FA65E60F51312030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457011   (1024637) от 25.03.2021
-
-VA - Beatport Hypnotic Trance: Sound Pack #261 (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушая композиции 261-го релиза транс-музыки от Beatport, невольно проникаешься мелодией и ритмом этой музыки и представляется, буд-то ты совершаешь полёт на космоплане в глубоком космосе, видишь блеск звёзд, бездонную глубину чёрных дыр и затаив дыхание, восторгаешься столь величественной красотой мироздания.001. Mike Rivera - Klarinette
-002. Madwave - Eternal Spirit
-003. Megara Vs Dj Lee - United Nation
-004. Dj Tomsten - Wet Dipper(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86C15EEB382B8A8C45246CE54F63DF5599AC7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457023   (1024634) от 25.03.2021
-
-VA - Ladies Moment: Vocal House (2021) [MP3|320 Kbps] <Vocal House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасная музыка, приятный женский вокал, великолепные стихи о любви, об этом прекрасном чувстве, наполняют собой сборник «Ladies Moment». 150 треков от исполнителей со всех концов Европы уже ждут Вас.001. Takis Ft Goody Grace And Tory Lanez - Wait For Me
-002. Morgan Page And Mark Sixma - Our Song
-003. Timmy Trumpet & Gabry Ponte - Mad World
-004. Eltonnick feat Ntefo Ntshabele - Reason(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 10:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D9143E970A02B52CE1EDECFC14960481E2086C
 ```
 
 https://mybot314.ru/tekegram_catalog/

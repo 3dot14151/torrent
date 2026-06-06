@@ -1,3 +1,90 @@
+###  Публикация: 1283471   (739476) от 17.02.2019
+
+VA - Flower Sound Chill House (2019) [MP3|320 Kbps] <Chill, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crossing Colors - Feel The Sun (Original Mix)
+002. Bearson Ft. Mndr - I Only Need One
+003. Imran Khan - Dark Waves
+004. Schwarz & Funk - Chudera(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E166F1BA1ABFCB0B09A5BEF603DF857E1FB669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525797   (739128) от 22.01.2022
+
+Tony Birch - Introspective Waves (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introspective (3:37)
+02. Sundown City (3:17)
+03. Into The Flow (3:33)
+04. Ocean Breeze (3:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F8F095DC46B847B377BDF80906E75B14D6CA1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525862   (738990) от 22.01.2022
+
+Space - Space Symphony (2022) 2CD Compilation [MP3|320 Kbps] <Electronic, Space Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prison (06:19)
+02. Velvet Rape (04:23)
+03. Voices of Jupiter (04:20)
+04. Mixed Up (05:44)(   Читать дальше...   )Жанр: Electronic, Space PopПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F85608E3DA69B798D5AC650818A010DFFC4A1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 786014   (738756) от 12.05.2014
 
 VA - Lounge At The Seashore 12 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
@@ -658,93 +745,6 @@ VA - The Club Fusion: EDM Listen & Party (2020) [MP3|320 Kbps] <Dance, Electro, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:429507AFC0DBB159BC9CB28984E4D290E28CF5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398443   (735693) от 26.07.2020
-
-VA - Endless Summer: Sunset Lounge Party (2020) [MP3|320 Kbps] <Lounge, Relax, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735693.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sardinia Lovers - Nel Cuore
-002. Dreamhunter - La Nostalgie (Original Mix)
-003. Dave Ross - El Baile Del Rey
-004. Sunset Lovers - Flamenco(   Читать дальше...   )Жанр: Lounge, Relax, AmbientПродолжительность: 09:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B575A37A513968E825C78F2401B821F6FDCB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527871   (735376) от 31.01.2022
-
-VA - Record Super Chart 29.01.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alis Shuka - Not About Us (2:09)
-02. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
-03. OWNBOSS, Sevek - Move Your Body (2:37)
-04. Filatov Karas, Busy Reno - Au Revoir (2:44)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F169FD988A9D9C7083FF370EEC8F955EA7F97181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398714   (735247) от 27.07.2020
-
-VA - Beatport Trance: Electro Sound Pack #137 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735247.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Relais - Over Vanity
-002. California Sunshine - Sababa Time
-003. Structural Mind Engine - Eternalix
-004. Tromo - The Dreamer(   Читать дальше...   )Жанр: TranceПродолжительность: 10:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9431EB46FF21F3F7E65792D9C38507E8498AFDCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

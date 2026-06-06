@@ -1,3 +1,84 @@
+###  Публикация: 1849076   (1053299) от 21.01.2026
+
+Windows Server 2022 LTSC [10.0.20348.4648], Version 21H2 (Updated January 2026) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953C7837F00E893CEC462B723BA07AD60AFB4B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849077   (1053298) от 20.01.2026
+
+Windows Server [10.0.25398.2092], version 23H2 (Updated January 2026) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF21076679F436BD3839A71EFEFA65EC2AD9CC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848585   (1053288) от 21.01.2026
+
+Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp NoDefender by Izual Soft [v16.01.26] [Ru/En]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана на основе оригинальных файлов UUP.
+Store, App, Defender удалены ( No без приложения, отсутствие  No означает с приложением NoStore NoApp NoDefende означает удаление
+Remote Desktop Server. Microsoft OneDrive удалено.
+DirectX 9.0, 7-ZIP интегрированы.(   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BACB48647FA5BE09CFEB48AD0BB094BABD8BC2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848320   (1052997) от 17.01.2026
 
 Windows 10 22h2 (build 19045.6809) (20in1) (x64) NoStore NoApp by Izual Soft [v16.01.26] [Ru/En]
@@ -620,90 +701,6 @@ Windows 11 - это серия операционных систем, разра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0622D681DB12D2813F7DE3156DBEABCFB7D85DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842361   (1048578) от 16.12.2025
-
-Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 12.2025
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048578.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинального образа операционной системы Windows 11 Enterprise LTSC от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: накопительные обновления и небольшой набор необходимых приложений. Сборка предназначена для тех, кто желает получить (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244AEA5862679FE3E76421E73482B7D2A936742F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841519   (1048280) от 13.12.2025
-
-Windows 10 22H2 19044.6691/19045.6691 by SURASOFT (v25.12.09) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c.iso
-ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
-Были интегрированы обновления по 09 декабря 2025 года.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60DA3AEE201EE9BB5C9E459B149D3E4EAD0477C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841685   (1048059) от 13.12.2025
-
-Windows 7 SP1 7601.28064 x64 3in1 by OneSmiLe [12.12.2025] [Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-• ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774
-• ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
-• ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABE2152F0641CA47460C97092F887BEC3C87C24
 ```
 
 https://mybot314.ru/tekegram_catalog/

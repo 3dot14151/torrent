@@ -1,3 +1,90 @@
+###  Публикация: 1190233   (268032) от 09.12.2017
+
+Shanghai - 2 Albums (1985, 1986) LP [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкие (у нас) представители синти и европопа из плодовитой Швеции. Выпустили только эти предлагаемые альбомы.01. Intro (1:28)
+02. Toner Av En Melodi (3:44)
+03. Vild Natt (4:23)
+04. Rosalina (3:48)(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 01:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195E420D53203E2BACDF5F1EAA64C4AFA7D91691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267268   (267806) от 05.12.2018
+
+YUKO - Коллекция (2017-2018) [MP3|320 Kbps] <Electro, Folk, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kachky (2:54)
+02. Liuli Liuli (5:09)
+03. Mak (3:07)
+04. Hreblia (3:39)(   Читать дальше...   )Жанр: Electro, Folk, DanceПродолжительность: 02:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F933FB84EB0B0711825EDC9C5EA44136B9A45E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190505   (267764) от 09.12.2017
+
+Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruleta (feat. Erick)
+02. Gimme Gimme
+03. My Dreams
+04. Tropical(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFDC2F4798B799116DF2E9E2DAAE86187ACFA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190730   (266038) от 11.12.2017
 
 Francesca Longrigg - True Noise (2017) [MP3|320 Kbps] <Pop>
@@ -664,99 +751,6 @@ Olly Murs - In Case You Didn't Know (2011) [MP3|320 кб/с]<Dance-Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83F9F392C11ED3BAFDA5EA43661926426086822F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501273   (259130) от 28.05.2012
-
-Bad Boys Blue - Instrumental Collections (2011) [MP3|256 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman (4:40)
-02. Gimme Gimme Your Lovin (3:55)
-03. A Train To Nowhere (3:50)
-04. How I Need You (3:41)
-05. House Of Stlence (3:56)
-06. Save Your Love (4:11)
-07. Car Crash (4:44)
-08. Don't Walk Away, Suzanne (3:50)
-09. Lovers In The Sand (3:40)
-10. I Totally Miss You (3:54)(   Читать дальше...   )2011Жанр: PopПродолжительность: 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDC0E4B28968684D5584458564F64A19393E87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838123   (258044) от 21.11.2025
-
-VA - Formel Eins - Cool Fun! (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Sadeness, Part 1...04:17
- 02. MC Hammer - Have You Seen Her...03:54
- 03. Sandra - One More Night...03:42
- 04. Roxette - It Must Have Been Love...04:19(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Synth-popПродолжительность: 02:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9723B7FD65FFD13E25AA3EC21555727259B5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838235   (257991) от 21.11.2025
-
-VA - The Greatest Singer-Songwriter Classics (2015) 3 CD [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Joel - Piano Man
-02. JJ Cale - After Midnight
-03. Carly Simon - Coming Around Again
-04. Paul Simon - 50 Ways To Leave Your Lover(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB619429BB8C045BC11252E04C9F68D4424F0694
 ```
 
 https://mybot314.ru/tekegram_catalog/

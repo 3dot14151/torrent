@@ -1,3 +1,148 @@
+###  Публикация: 1578211   (348073) от 22.09.2022
+
+Novichok - Geo-Desiccant (2022) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrash Free or Die!
+02. First World Problems
+03. Tire Fire
+04. Apes with Sticks(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD28A61CE1C1F4F0DF7A68C115FB57855C61D591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578215   (348069) от 22.09.2022
+
+Confessions of a Traitor - Punishing Myself Before God Does (2022) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Punishing Myself Before God Does (4:09)
+02. Hearts of Stone (3:32)
+03. Lovecraft (3:43)
+04. Forever Hollow (feat. Brian Wille of Currents) (4:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB870DA569228F4CE5FDD27134B026FCB18C9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578111   (348068) от 22.09.2022
+
+Infidel Rising - 3 Albums (2015-2022) [MP3|320 Kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. State Of Dysphoria [00:01:03]
+02. All The Fear [00:04:59]
+03. Silence Of The Night [00:07:26]
+04. Ov Wormwood [00:05:14](   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 03:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207CB97B19D8416159E82EFE3BD5B143DF682855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578212   (348066) от 22.09.2022
+
+Vermilia - Ruska (2022) [MP3|320 Kbps] <Atmospheric Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alkusointu [00:01:55]
+02 - Marras [00:05:41]
+03 - Hautavajo [00:05:33]
+04 - Kuun Tytär [00:05:53](   Читать дальше...   )Жанр: Atmospheric Pagan Black MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F058809390F6C7D02388F65D5E0A6D09E3F56C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073138   (347952) от 15.11.2016
+
+Conflict Theory - Monologue (2016) [MP3|320 Kbps] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cognitive Dissonance 03:26
+02. Shadows of the Financial District 03:23
+03. Vulnerability Index 04:33
+04. Substance Abuse 03:19(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D06C57EE12A3613467F357EE51D963AE8CA2460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073148   (347796) от 15.11.2016
 
 Agenda - Genetic Arts (2016) [MP3|320 Kbps] <Heavy Metal, Speed Metal, Thrash Metal>
@@ -600,151 +745,6 @@ Diabulus In Musica - Dirge For The Archons (2016) [MP3|320 Kbps] <Symphonic Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FD0A981309837F7D55E641842E53640DE293F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074038   (340365) от 18.11.2016
-
-Lamb Of God - The Duke (2016) EP [MP3|320 Kbps] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Duke 04:31
-02. Culling 03:32
-03. Still Echoes (Live from Rock Am Ring) 04:35
-04. 512 (Live from Bonnaroo) 04:48(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B3F186E2F4C52F60F7954DCE2775FF628FE630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074654   (339012) от 19.11.2016
-
-Candiria - While They Were Sleeping (2016) [MP3|320 Kbps] <Progressive, Experimental Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339012.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. While They Were Sleeping
-2. Mereya
-3. Wandering Light
-4. The Cause(   Читать дальше...   )Жанр: Progressive, Experimental Metal, MetalcoreПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9741C17D3028D279CAE30F6438485AD65F7698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074653   (338602) от 19.11.2016
-
-Arkan - Kelem (2016) [MP3|320 Kbps] <Oriental Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hayati (05:06)
-02. My Reverence (05:35)
-03. March Of Sorrow (05:24)
-04. Leaving Us (04:18)(   Читать дальше...   )Жанр: Oriental Melodic Death MetalПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BDEDDAC18A4A3FFC0A1A85F3C16CA6AA75017E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074252   (338203) от 19.11.2016
-
-Dark Sarah - The Puzzle (2016) [MP3|320 Kbps] <Symphonic Metal, Neo-Classical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338203.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Breath
-2. Island In The Mist
-3. Little Men
-4. Ash Grove(   Читать дальше...   )Жанр: Symphonic Metal, Neo-Classical MetalПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEBDF0714159ED4EC994C78605F61587370221C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419734   (337814) от 29.10.2020
-
-Godsnake - Poison Thorn (2020) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urge To Kill
-02. Poison Thorn
-03. Sound Of The Broken
-04. We Disagree(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538A5C6C7D2C247CA0E12C3A7880C5EE27A716E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

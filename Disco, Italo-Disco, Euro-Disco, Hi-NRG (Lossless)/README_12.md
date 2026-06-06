@@ -1,3 +1,61 @@
+###  Публикация: 1548937   (596197) от 04.05.2022
+
+VA - Italo Disco Classics (2013) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Europop, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P. Lion - Happy Children (Vocal Version) (6:01)
+02. Brian Ice - Talking To The Night (Extended Version) (5:53)
+03. Styloo - Pretty Face (6:06)
+04. Grant Miller - Colder Than Ice (Maxi Version) (5:37)(   Читать дальше...   )Жанр: Italo-Disco, Europop, SynthpopПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD8D84D394D178B99BC7773BE310658D0C8C475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548820   (596188) от 04.05.2022
+
+Imagination - Like It Is - Revised And Remixed Classics (1989) [FLAC|Lossless|tracks + .cue] <Funk, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changes
+02. Burning Up
+03. Just An Illusion
+04. Body Talk(   Читать дальше...   )Жанр: Funk, Disco, PopПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5D9015D3FDD625DC1DA26501060C49DE04319D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549118   (594744) от 05.05.2022
 
 VA - Disco Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
@@ -751,68 +809,6 @@ Tony Esposito - Tony Esposito (Best Of) (1997) [FLAC|Lossless]<Disco-Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82C3D6287E6CA84B876E5406392A4EC8F5F52227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919575   (582784) от 19.07.2015
-
-Scotch - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks+.cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Up (Long Remix Version)
-02. Disco Band (Remix by Mach 2 Vocal Version)
-03. Pictures (Extended Vocal Remix)
-04. Mirage (Extended Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D58745B34BD1C514A503CC699622944F99336E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810807   (582452) от 06.08.2014
-
-Methusalem - Journey Into The Unknown (2006) [APE|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie 5:02
-02. Alien 4:20
-03. Robotism 6:34
-04. You Are The Sun 7:11
-05. The Black Hole 4:16
-06. Time Machine 4:12
-07. Ooh Dracula 3:29
-08. Shot Down 4:09Жанр: DiscoПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF9181BA15E975D68F912C3CAF8701AB67160B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

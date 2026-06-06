@@ -1,3 +1,96 @@
+###  Публикация: 501273   (259130) от 28.05.2012
+
+Bad Boys Blue - Instrumental Collections (2011) [MP3|256 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman (4:40)
+02. Gimme Gimme Your Lovin (3:55)
+03. A Train To Nowhere (3:50)
+04. How I Need You (3:41)
+05. House Of Stlence (3:56)
+06. Save Your Love (4:11)
+07. Car Crash (4:44)
+08. Don't Walk Away, Suzanne (3:50)
+09. Lovers In The Sand (3:40)
+10. I Totally Miss You (3:54)(   Читать дальше...   )2011Жанр: PopПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDC0E4B28968684D5584458564F64A19393E87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838123   (258044) от 21.11.2025
+
+VA - Formel Eins - Cool Fun! (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma - Sadeness, Part 1...04:17
+ 02. MC Hammer - Have You Seen Her...03:54
+ 03. Sandra - One More Night...03:42
+ 04. Roxette - It Must Have Been Love...04:19(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Synth-popПродолжительность: 02:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9723B7FD65FFD13E25AA3EC21555727259B5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838235   (257991) от 21.11.2025
+
+VA - The Greatest Singer-Songwriter Classics (2015) 3 CD [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Joel - Piano Man
+02. JJ Cale - After Midnight
+03. Carly Simon - Coming Around Again
+04. Paul Simon - 50 Ways To Leave Your Lover(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB619429BB8C045BC11252E04C9F68D4424F0694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838191   (257987) от 21.11.2025
 
 VA - Formel Eins - Double Fun (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop, Synth-pop, Disco>
@@ -685,93 +778,6 @@ VA - Love Songs 2000s (2023) [OGG Vorbis|480 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43087810CC4DC6A23CE9EB757AE1D4269960FBFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619525   (249652) от 16.03.2023
-
-VA - Romantic Collection: Golden 50s (2000) [OGG Vorbis|480 Kbps] <Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Laine - Sixteen Tons
-02. The Andrews Sisters - Tico-Tico
-03. Doris Day - Que Sera, Sera
-04. Paul Anka - Tonight My Love, Tonight(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92931280A813A7F9E6EB16EA7396C891DF0AD2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564908   (249577) от 21.07.2022
-
-Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002,  Break Records [MP3|320 Kbps] <Euro-Disco, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up, Action [4:44]
-02. Go Go Yellow Screen [6:01]
-03. The Beauty & The Beast [5:06]
-04. Don't Stop [4:38](   Читать дальше...   )Жанр: Euro-Disco, Synth-PopПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A62B52CED8DF56282B1DA1B52B79812A5C82A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620501   (249355) от 20.03.2023
-
-VA - Let's begin from the start (2023) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conan Gray - Yours
-02. Astrid S - Hurts So Good
-03. Sam Smith - I'm Not The Only One (Sped Up)
-04. Lady Antebellum - Need You Now(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC487A93E1D9412878F528C3A001B82194240EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

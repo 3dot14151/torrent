@@ -1,3 +1,351 @@
+###  Публикация: 978806   (962283) от 24.01.2016
+
+Oliver Scheffner - The Magic of the Moon (2014) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magic of a Full Moon Night
+02. Mare Tranquilitatis
+03. Silver Moon Light on the Water
+04. A Bloody Red Moon at the Horizon(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3782AA2AE0C172EA491D75A34AF53B5BE6639550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978773   (962100) от 24.01.2016
+
+Djivan Gasparyan - The World of the Duduk (2008) 2CD, 2009, Мелодия [FLAC|Lossless|image + .cue] <Folk, World, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Gloomy Clouds 04:55
+02. There is A Word in My Possession (Sayat-nova) 04:11
+03. Alagyaz 03:47
+04. Eshkhemed 04:15(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E517E0330D25E1B3E7ECEB864843364358577A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747195   (962057) от 19.01.2014
+
+Chesky Records Guide to Critical Listening - The Ultimate Demonstration Disc (1993) [FLAC|Lossless]<Audiofile, Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Ultimate Demonstration Disc
+02. High Resolution Introduction
+03. Spanish Harlem - Rebecca Pidgeon
+04. Depth Introduction(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE0164E7F7C5AF2652693D002DACCEB8D2C855A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747149   (961979) от 19.01.2014
+
+The Dali CD - DALI Audio Test CD (2006) [FLAC|Lossless]<Audiofile, Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961979.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. John Campbell - Down In The Hole 04:55
+2. Hans Theessink - Mississippi 06:01
+3. Hugh Masekela - Stimela (The Coal Train) 10:00
+4. The Yuri Honing Trio - Walking On The Moon 05:28(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC48850F0EEA005EF6DD59B171A5D9964BBBAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360239   (961921) от 14.02.2020
+
+Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961921.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:41| 01. Mombasa Mission
+|02:36| 02. Martin Axe
+|02:02| 03. Wake Up
+|02:37| 04. Second Chance(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFB9A3CBF914AAA24A8713EA855C14A116B0EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360044   (961895) от 14.02.2020
+
+Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961895.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:54| 01. Flying High (Birds of Prey)
+|01:32| 02. The Fantabulous Emancipation Explosion
+|03:06| 03. Harley Quinn (Danger Danger)
+|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3114BB1060CA750666B7FD58ADD43FB0364DAB0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360049   (961894) от 14.02.2020
+
+Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961894.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:38| 01. You Are One of My Guests
+|03:46| 02. Arrival
+|02:26| 03. Regret is a Disease
+|05:47| 04. Your Fantasy Begins Now(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53FF2EE6154993427041E8134605A58E85AD7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360043   (961889) от 14.02.2020
+
+Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961889.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:54| 01. Flying High (Birds of Prey)
+|01:32| 02. The Fantabulous Emancipation Explosion
+|03:06| 03. Harley Quinn (Danger Danger)
+|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F40433441F3009E5E9644611739FCDECD7A0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360238   (961887) от 14.02.2020
+
+Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961887.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:41| 01. Mombasa Mission
+|02:36| 02. Martin Axe
+|02:02| 03. Wake Up
+|02:37| 04. Second Chance(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C0918D3102684527877FAE0559CB626A2BAF27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359990   (961886) от 14.02.2020
+
+Nathaniel Rateliff - And It’s Still Alright (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie, Singer-Songwriter>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What A Drag (03:34)
+02. And It's Still Alright (03:55)
+03. All Or Nothing (05:01)
+04. Expecting To Lose (03:54)(   Читать дальше...   )Жанр: Folk, Indie, Singer-SongwriterПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3219F64F072A793B45AC5851BCA649E9CC80D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360048   (961885) от 14.02.2020
+
+Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961885.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:38| 01. You Are One of My Guests
+|03:46| 02. Arrival
+|02:26| 03. Regret is a Disease
+|05:47| 04. Your Fantasy Begins Now(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E52BB748314627E9E9259BEE841BDD7B1121803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864449   (961826) от 24.01.2016
+
+Of Monsters And Men - 3 Albums, 4 EP & singles (2011-2015) [MP3|320 кб/с]<Indie, Alternative Rock, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Paws (04:26)
+02. King and Lionheart (04:35)
+03. Numb Bears (02:45)
+04. Sloom (04:42)(   Читать дальше...   )Жанр: Indie, Alternative Rock, FolkПродолжительность: 03:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298A5602832D008461627A5F28FFFF93504DAF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360045   (961806) от 14.02.2020
 
 Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
@@ -394,360 +742,6 @@ Portal 2 - Soundtrack (2011) [FLAC|Lossless|tracks] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BE41ECC70E71BB3BD2D62ED1EADAEBB4E22ADAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360312   (959290) от 16.02.2020
-
-Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959290.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:38| 01. Play a Game With Me
-|02:10| 02. A Proper Handsome C**t
-|02:14| 03. Gala Dinner
-|03:19| 04. Big Dave(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27873CC278470CD5A2019CBEA003B714BD923525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360757   (959252) от 16.02.2020
-
-Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959252.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:38| 01. Play a Game With Me
-|02:10| 02. A Proper Handsome C**t
-|02:14| 03. Gala Dinner
-|03:19| 04. Big Dave(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61DAE82FAD650FA488A2FABE03D5C0EB29E6AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748257   (958252) от 22.01.2014
-
-VA - Japan Romantic SAX Classics (2014) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958252.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. I Drink
-002. Love Friendship
-003. Mistress
-004. Nostalgia (Boukyou)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91D3A04A0549C9B0403A8E2428F491B239859DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360556   (958133) от 17.02.2020
-
-Frost Orb - Dead Bits Soundtrack (2013) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazing
-02. Quilly
-03. Space Travel
-04. Omega(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103043D77A608655F1B5EFAFFCA6904BA84E4235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361013   (957073) от 18.02.2020
-
-Nathan Johnson - Knives Out / Достать ножи (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957073.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:51| 01. Knives Out! (String Quartet in G Minor)
-|01:38| 02. The Thrombey Estate
-|01:02| 03. Like Father, Like Son
-|01:34| 04. The Thrombey Family Theme (Solo Piano)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC686E0C2BAE548AB67D269DCB05A8AA13CA74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361012   (956605) от 18.02.2020
-
-Nathan Johnson - Knives Out / Достать ножи (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956605.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:51| 01. Knives Out! (String Quartet in G Minor)
-|01:38| 02. The Thrombey Estate
-|01:02| 03. Like Father, Like Son
-|01:34| 04. The Thrombey Family Theme (Solo Piano)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF4AE17DE26398164E635A536FFEC602AF24F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170874   (956549) от 02.02.2010
-
-"Красавица и Чудовище" - (В исполнении Российской труппы мюзикла) (2010) [MP3|320 kbps]<Мюзикл>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра (2:41)
-02. Белль (5:14)
-03. Мне дела нет (2:43)
-04. Я (2:40)
-05. Белль (реприза) (1:08)
-06. Дом (2:56)
-07. Гастон (5:39)
-08. Гастон (реприза) (1;39)
-09. Как долго мне терпеть (0:54)
-10. Вы наш гость (7:08)(   Читать дальше...)Жанр: Мюзикл
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980444   (955931) от 29.01.2016
-
-Yanni - Sensuous Chill (2016) [MP3|320 кб/с] <New Age, Electronic, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirst for Life
-02. Rapture
-03. Drive
-04. What You Get(   Читать дальше...   )Жанр: New Age, Electronic, ClassicalПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418F39EDBC83973AD3C21924F2A80DDA8F0FA14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361321   (955811) от 19.02.2020
-
-Andrew Lockington - The Kindness of Strangers / Реальная любовь в Нью-Йорке (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955811.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:22| 01. Morning
-|01:47| 02. Manhattan
-|01:20| 03. Parlor
-|01:19| 04. Wonder(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82138E1C5C0AED4B0D13FD69AE4FE6252A015ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361320   (955810) от 19.02.2020
-
-Andrew Lockington - The Kindness of Strangers / Реальная любовь в Нью-Йорке (Complete Motion Picture Score) (2019) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955810.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:21| 01. Awake
-|02:08| 02. Awake (Alternate Version)
-|00:21| 03. Hospital
-|00:54| 04. The Chair / New York(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C157CEFAFE70203CA54BA3219542C7E06F7110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361024   (955629) от 19.02.2020
-
-Sergio Santini - Love to the Piano (2017) [MP3|320 Kbps] <Instrumental, Classical, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life (5:19)
-02. Love to the Piano (4:22)
-03. Feeling (4:48)
-04. Last Hope (7:02)(   Читать дальше...   )Жанр: Instrumental, Classical, PianoПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8155E48AD8B0EA739E926CE28D74ABBF13C64B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361026   (955601) от 19.02.2020
-
-Carl Davis & Philharmonia Orchestra - Abba for Orchestra (2014) [MP3|320 Kbps] <Instrumental, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (3:50)
-02. Voulez-vous (4:35)
-03. Super Trouper (4:34)
-04. Money, Money, Money (3:10)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0AC9AF06FE61081FB89A938814C5EC3DDFCA47
 ```
 
 https://mybot314.ru/tekegram_catalog/

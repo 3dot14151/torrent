@@ -1,3 +1,90 @@
+###  Публикация: 1290015   (682073) от 18.03.2019
+
+VA - Cr2 Miami 2019 (3 CD) (2019) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Nervo & Lux - Why Do I (Stash Konig Remix) (03:42)
+02. 3LAU Ft. Carly Paige - Would You Understand (Original Mix) (03:30)
+03. Virtual Self - Ghost Voices (Original Mix) (04:27)(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 05:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC7CDBF9C6AA40D7387602A2706922809687E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289693   (681988) от 18.03.2019
+
+VA - DubStep Pro V.35 (2013) [MP3|320 Kbps] <DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT - 13 Angels On My Broken Windowsill (Fractal Remix)
+02. Silkie - Time Delay (Original Mix)
+03. Mutated Mindz - Moshing N Rocking (Original Mix)
+04. Cottonmouth feat. Holly Grey - Revel In Me(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E0C8BEF363130E8D5D626BC3A4027C9F17F42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029530   (681955) от 26.06.2016
+
+VA - Hits of My Soul Vol. 02 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond Feat. Zoe Johnston - We're All We Need (Album Mix) (04:23)
+02. Russell G & Shadow Of Two - Neon (Original Mix) (05:45)
+03. Worakls - When The Birds Go In The Wrong Way (06:55)
+04. Bryan Milton ft. Ana Criado - Afterglow (Original Mix) (06:04)(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 03:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F6B2B8F94AB5AE12060593406A254728A3D47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289857   (681796) от 18.03.2019
 
 VA - Empire Records - Red Star 6 (2019) [MP3|320 Kbps] <Spacesynth>
@@ -667,90 +754,6 @@ VA - YR Best Chillout vol.42 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEC3AE9788ABA7AF25765933D66797A6B36951A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029689   (678471) от 28.06.2016
-
-VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daniel Moss & Gandalf Bosch Feat. Francy -  Mi Alma (Instrumental Edit) 3:17
-002. KSHMR & Felix Snow feat. Madi -  Touch (Runway Remix) 4:56
-003. Hardwell feat. W&W -  Jumper (Madd Dave Bootleg) 4:53
-004. Robin Schulz feat. Akon -  Heatwave (Muzzaik Remix) 4:17(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511301DAC97601D4003016B1BE0F9AA95330C9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029687   (678467) от 28.06.2016
-
-DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678467.jpg" />
-</div>
-
-
-###  Подробнее
-
-СборникЖанр: House, Dance PopПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290489   (678371) от 20.03.2019
-
-VA - YR Best Chillout Vol.41 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Seven24 & Soty feat. Maria Opale - Don't You Cry (Alexander Volosnikov Remix) 4:59
-002. Rank1 - Airwave (Vyacheslav Sketch Remix) 5:49
-003. Aurosonic feat. Katty Heath - My Good Place (Mark Otten Downtempo Remix) 7:00
-004. Vyacheslav Sketch - Forever (Original Mix) 4:13(   Читать дальше...   )Жанр: Chillout, Downtempo, Lounge, Trap, Ambient, ElectronicaПродолжительность: 06:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6A4554FA17F21009B4D923ACD1D50B80B35322
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1128516   (727564) от 25.04.2017
+
+VA - Pacific Trance 100 Art Of Trance (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727564.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Xantra - Amnesia (Aron Scott Remix)
+002. Mike Demirele - The Chosen One (James Kitcher Remix)
+003. Fury System - The Last (Original Mix)
+004. Changer - Golden Gates (Heever Analogue Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 11:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89951C774526294C175C4F53E3D12DDD6C77966F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530703   (727283) от 12.02.2022
+
+VA - Beatport Trance: Sound Pack #401 (2022) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный и насыщенный! Этот последний релиз от Beatport раскрывает серьезную танцевальную силу. Если вы ищете мастерски созданные треки и вдохновляющие мелодии в стиле транса - это то, что вам нужно001. Shane 54 - Panic Attack
+002. Divisional Phrase & Wavetraxx - Redemption
+003. Claire Willis - Demons Harry Square Remix
+004. Aki Harunari - Shigure(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 08:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18D4E5EBA693FE9DC4A450CF9A05BFB8F0427FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022966   (726683) от 04.06.2016
+
+VA - Молодежная клубная тусовка (2016) [MP3|320 кб/с] <Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isaak Thurber - Overdrive (Original Mix)
+02. House Native - Whe the Wife's Away - Club Mix
+03. Khrebto - Mad Citizens (Extended Mix)
+04. Jane Vogue & Steve Cypress - Paris Latino (Jane Vogue Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CCDCA3C874B16A98C8A010EBEF89F12687B7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530921   (726656) от 13.02.2022
 
 VA - Beautiful Interior Lounge Sounds (2022) [MP3|320 Kbps] <Lounge, Downtempo, Relax, Chillout>
@@ -669,93 +756,6 @@ VA - Tech House Electro Sessions (2019) [MP3|320 Kbps] <Electro, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C971D7FED5C4C29FE66303B9AD3CBDD80F10AEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285012   (724770) от 24.02.2019
-
-VA - Stelllar Atmosphere Of Trance (2019) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gagauz - Flashback (Original Mix)
-002. Eryon Stocker - Uplift Your Mind (Original Mix)
-003. Perpetuous Dreamer - The Sound Of Goodbye
-004. Thomas B. - Go Back Home(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B87701B3E6E977C77CC694792955D249D1DB0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023389   (724650) от 05.06.2016
-
-VA - Coffee Break Lounge Classics (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cesar Martinez Ensemble - Que Mas?
-02. Kusuma Orchestra - Vento dos Acontecimentos
-03. Blue Wave - Closet
-04. Arrojas - Occidente(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582C38E919C18E0E89C200726B3D86D255DA0B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023676   (724644) от 05.06.2016
-
-VA - Home Chill Prelude (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724644.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maremare - That Beach Is Mine
-002. Paul Cuddeford - Jenny Wren
-003. Pedro Del Mar Feat. Fancy Vienna - Windows To My Soul
-004. Chilhouette - The Way You Look At Me (Extended Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD1A03EA6526CF69A750C04DB37BAFB9886D0C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1441426   (1037724) от 21.01.2021
+
+Therion - Leviathan (2021) [MP3|320 Kbps] <Symphonic Operatic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Leaf on the Oak of Far [00:03:38]
+02. Tuonela [00:04:37]
+03. Leviathan [00:04:01]
+04. Die Wellen der Zeit [00:03:46](   Читать дальше...   )Жанр: Symphonic Operatic MetalПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056A4E8F31DE426B8E4DC18FAD74CFD8FE9CAF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951775   (1037632) от 21.01.2021
 
 Ektomorf - 16 Studio Albums, 1 EP, 2 Live Albums, 2 Singles (1996-2021) [MP3|320 кб/с] <Groove Metal, Thrash Metal, Nu-Metal>
@@ -715,35 +744,6 @@ Dovorian - The Light & Dark (2021) [MP3|320 Kbps] <Progressive Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:883A898BC6D86B9454E691A073BB5C3E66C9E300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448254   (1031209) от 16.02.2021
-
-Eyes Fly - Eyes Fly (2020) [MP3|320 Kbps] <Progressive Stoner, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supernova Building (07:03)
- 02. The Wanderer (05:35)
- 03. Hero Dies (08:39)
- 04. The Long Return (08:08)(   Читать дальше...   )Жанр: Progressive Stoner, Post-MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E25442A4C4DE7FFF3BE2FEA26C54C3E5330B334
 ```
 
 https://mybot314.ru/tekegram_catalog/

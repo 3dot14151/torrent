@@ -1,3 +1,32 @@
+###  Публикация: 1135121   (682905) от 18.05.2017
+
+Gideon - 4 альбома (2011-2017) [MP3|320 Kbps] <Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gutter
+02. Bad Blood
+03. No Acceptance
+04. Overthrow(   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 02:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF59E1EFD8309CE8C4960B24C97853B11C1700A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507236   (682875) от 08.06.2012
 
 Soulsavers (feat. Dave Gahan) - The Light The Dead See (2012) [MP3|320 кб/с]<Alternative Rock>
@@ -744,35 +773,6 @@ Volumes - Different Animals (2017) [MP3|320 Kbps] <Progressive Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C33CD8C28E5054972668F2AC31EED0CFB243750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141083   (653838) от 08.06.2017
-
-Rise Against - Wolves (2017) [MP3|320 Kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves
- 02. House On Fire
- 03. The Violence
- 04. Welcome To The Breakdown(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36BDE62A35079F63E17BDFC83DE4558D59E034D
 ```
 
 https://mybot314.ru/tekegram_catalog/

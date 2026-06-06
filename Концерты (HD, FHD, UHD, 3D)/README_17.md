@@ -1,3 +1,60 @@
+###  Публикация: 506462   (687404) от 06.06.2012
+
+30 seconds to Mars - Rock am Ring 2010 (Comlpete) HDTV [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живой концерт группы 30 seconds to Mars 5 июня 2010 года в Германии в рамках фестиваля Rock am Ring.Жанр: Alternative RockПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028869   (686091) от 24.06.2016
+
+Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление легендарной группы "Scorpions" на фестивале "Hellfest" во Франции 20 июня 2015 года. Hellfest Open Air - один из крупнейших летних фестивалей heavy metal rock в Европе - 3 дня, 6 сцен, около 160 групп, свыше 100 тысяч посетителей ежегодно.
+
+Выложено для ознакомления, до появления более качественного релиза.01. Going Out with a Bang
+02. Make It Real
+03. The Zoo
+04. Coast to Coast(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADE02540611DA40FE3D86D85ADB8C857C48BFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222474   (684681) от 29.04.2018
 
 Квартирник на НТВ у Маргулиса. Чиж & Co (04.28.2018) WEBRip [H.264/1080p-LQ]
@@ -657,61 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDD18EBE0BA4F3A8C57D003F0DC14C6A7EF750D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140432   (655737) от 06.06.2017
-
-UK - Curtain Call (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая группа 70-х. Запись сделана на последнем японском туре 8 ноября 2013 года.1. In The Dead Of Night
-     -In The Dead Of Night (Jobson, Wetton)
-      -By The Light Of Day (Jobson, Wetton)
-      -Presto Vivace and Reprise (Jobson, Wetton)(   Читать дальше...   )Производство: Ward RecordsЖанр: Progressive RockПеревод: ОтсутствуетПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F649239CB9356F86A36E5F13B4A534975D94B22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140503   (655608) от 06.06.2017
-
-Rammstein - Paris (2017) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие индастриал-металлисты Rammstein подготовили к выпуску свой новый концертный DVD и Blu-ray — «Paris» («Париж»). Материал для него был записан во Франции в марте 2012 года в ходе тура «Made In Germany».Производство: Германия, SpinefarmЖанр: Industrial MetalПеревод: ОтсутствуетПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69A07B99416FFB504F585899DF6FE39DDA74CF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

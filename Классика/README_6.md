@@ -1,3 +1,61 @@
+###  Публикация: 990928   (907905) от 27.02.2016
+
+Vivaldi - II Pomo d'Oro, Riccardo Minasi, Dmitry Sinkovsky - Concerti Per Due Violini E Archi I (2013) [FLAC|Lossless|tracks] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto RV 523 in A Minor I.Allegro molto  03:53
+02. Concerto RV 523 in A Minor II.Largo  02:51
+03. Concerto RV 523 in A Minor III.Allegro  02:52
+04. Concerto RV 510 in C Minor I.Allegro  02:38(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72952E88035ABB71C34E467094FA0272755232C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991291   (905898) от 28.02.2016
+
+Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto RV 383a - I. Allegro  02:42
+02. Concerto RV 383a - II. Largo e cantabile  01:56
+03. Concerto RV 383a - III. Allegro  02:36
+04. Concerto RV 279 - I. Allegro  04:14(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97374CAB3E32E3A495B37E30B0AF3C7919B0895F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990998   (905779) от 28.02.2016
 
 Святослав Рихтер, Lovro von Matacic, Orchestre Nacional de l'Opera de Monte Carlo - Grieg, Schumann: Piano Concertos (2003) [OGG|256 кб/с] <Классическая музыка, Classical>
@@ -691,64 +749,6 @@ Wolfgang Amadeus Mozart - Mozart Klavierkonzert KV.365, Schubert Fantasie D940: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48A5FE83B4CF030EE1CF0DE189B10AB6DB768628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100226   (901053) от 03.02.2017
-
-Mikalojus Konstantinas Ciurlionis - 1875 - 1911 (2000) Box Set [FLAC|Lossless|image + .cue] <Romantic, Classical>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микалоюс Константинас Чюрлёнис (до 1955 г. использовалась русская форма имени Николай Константинович Чурлянис) - литовский художник и композитор, родоначальник профессиональной литовской музыки, далеко раздвинувший своим творчеством границы национальной и мировой культуры.Список альбомов:
-1. CD1 - Symphonic Poems
-2. CD2 - Fugues, String Quartet In C Minor
-3. CD3 - Piano Works(   Читать дальше...   )Жанр: Romantic, ClassicalПродолжительность: 03:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFCBBC4B33620DE12D8287902F3C2134D32C413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992565   (900919) от 02.03.2016
-
-VA - Gluck. Orpfeo Ed Euridice, Iphigenie En Aulide, Iphigenie En Tauride. Fragments From Operas (2002) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орфей и Эвридика:
-1. Балет I (2 д.)  02:31
-2. Балет II ("Мелодия") (2 д.)  03:46
-(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8331FE4FC93C4838824BC1D79E58065230ADFD93
 ```
 
 https://mybot314.ru/tekegram_catalog/

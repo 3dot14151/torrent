@@ -1,3 +1,55 @@
+###  Публикация: 1435441   (143657) от 28.12.2020
+
+Сборник - Creative Fabrica - Christmas Lights Decorations Set [PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143657.jpg" />
+</div>
+
+
+###  Подробнее
+
+О продукте Набор из 11 векторных кистей праздничных нитей рождественских гирлянд позволит быстро и легко настроить ваши праздничные проекты!.Формат: PSD, EPSРазрешение файлов: 2083x2083-5000x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1813D1A8F11A47D5194B1A4068C1B343C4D54D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348603   (142905) от 28.12.2019
+
+Сборник - Creative Market - Wall & Desk Calendar 2020 - 4384979 [PSD, INDD, IDML, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь Wall & Desk 2020 сделан специально для американцев. Это также добавило некоторые базирующиеся в США государственные праздники и события. Он имеет красивое расположение логотипа любой компании, адреса электронной почты и т. Д. Все макеты созданы в современном стиле.Формат: PSD, INDD, IDML, EPSРазрешение файлов: 6629x4801-8763x13335
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AECE84C8255D519595878577DE3F69CFFA6364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520897   (138515) от 30.12.2021
 
 Сборник - Envato Elements – Christmas Graphics Templates 2021 [AI, PSD, JPG, EPS, ASL, PNG]
@@ -624,58 +676,6 @@ Doron Studios — это студия, специализирующаяся на
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79891F51EAC97EC1DBE85B7F6328BB976A1CBEC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807934   (10765) от 21.07.2025
-
-Сборники - Own3D - Rodan Stream Overlay Template Package [WEBM, PSD, PNG, JPG, WAV, MP3]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет шаблонов, оверлеев и звуков для стримеров.Формат: WEBM, PSD, PNG, JPG, WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E710A343C5F9303ED930D3D5C0ED0CFD657344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809141   (10080) от 28.07.2025
-
-Сборники - MediaMonopoly - EDITING EMPEROR ULTIMATE BUNDLE!! [PSD, PRPROJ, AEX, PRFPSET, CUBE, WAV, MP3]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник для видеомонтажа от MediaMonopoly включающий в себя разные пресеты, переходы, эффекты и звуки.Формат: PSD, PRPROJ, AEX, PRFPSET, CUBE, WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B16856349ACF522A385DFC4EDBB9B78319C6D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

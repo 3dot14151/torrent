@@ -1,3 +1,32 @@
+###  Публикация: 1197391   (811456) от 09.01.2018
+
+VA - Dream Dance Vol.84 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Dance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811456.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Dream Dance Alliance  -  Coming Home  3:50
+02.  Marshmello feat. Khalid  -  Silence (Tiesto's Big Room Remix)  3:23
+03.  Armin Van Buuren feat. Josh Cumbee  -  Sunny Days (Purenrg Remix)  3:12(   Читать дальше...   )Жанр: Trance, House, DanceПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87543BCB5C4EB0046FDDD4633EED3711E92DDC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 804412   (808734) от 27.03.2017
 
 VA - Magic Island: Music For Balearic People Vol.1-7 (Mixed by Roger Shah) (2008-2016) [FLAC|Lossless|WEB-DL]<Trance, Balearic Trance,Progressive Trance>
@@ -714,35 +743,6 @@ VA - Recoverworld Radio 009 (Mixed by Rich Smith) (2017) [FLAC|Lossless|WEB|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5A15E770DF60CD39D551804C69636AFB171D53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125091   (773451) от 13.04.2017
-
-Yaroslav Kulikov - Once In A Dream (2011) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once In A Dream (8:56)
- 02. After Life (8:57)
- 03. You Can Fly (7:30)
- 04. New Horizon (7:07)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0A08D937F588EEA5F4AEB48E0DD454CF0C230E
 ```
 
 https://mybot314.ru/tekegram_catalog/

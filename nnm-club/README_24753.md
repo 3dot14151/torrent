@@ -1,22 +1,27 @@
-###  Публикация: 472857   (84108) от 24.03.2012
+###  Публикация: 483754   (99828) от 16.04.2012
 
-Журнал | Playboy [Estonia] №10 (2011) [PDF]
+ХАСКИ - Икорный бизнес (2012) [MP3|320 кб/с]<Rock, indie-rock, pop-rock>
 
->>Журналы
->>Мужские журналы
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
+01. Камикадзе (3:36)
+02. Дядя Хофман (5:37)
+03. 19-45 (6:07)
+04. Хэй, меломан! (3:16)
+05. Икорный бизнес (4:11)
+06. Хэй, меломан! (Alex Friesen ft. Lefster rmx) (6:20)Жанр: Rock, indie-rock, pop-rockПродолжительность: 00:29:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:011BFC12EC9C6F16A426FF2737A56374326E1F5E
+magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,15 +29,389 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472703   (84102) от 24.03.2012
+###  Публикация: 483531   (99826) от 16.04.2012
 
-[Wallpapers] Wallpapers Sexy Girls Pack (25.03.12)
+Simon Pauls - Promise (2012) [MP3|320 кб/с]<Tech House, Minimal Techno>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99826.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Promise (with Mary Mercury)
+2. Shadow from the Past
+3. Dont Force Time
+4. Tessellation
+5. Alia Ludorum
+6. I do not know the way
+7. Insolita
+8. Prostratio
+9. Banana Box
+10. Time of electronic Love (with Plotka)(   Читать дальше...   )2012Жанр: Tech House, Minimal TechnoПродолжительность: 01:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595EAD31A9CF43A9469E364DBF47BCD0E427D91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482179   (99821) от 16.04.2012
+
+Товарищи / I compagni (1963) DVD9 [It]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер итальянской комедии воссоздает трагикомичную историю о туринских рабочих конца 19 века.Производство: Франция, Италия, Югославия / Авала-фильм, Lux Film S.p.a., Méditerrannée Cinéma Production, Vides CinematograficaЖанр: Драма, КриминалРежиссер: Марио МоничеллиАктеры: Марчелло Мастроянни, Ренато Сальватори, Габриэлла Джорджелли, Фолько Люлли, Бернар Блие, Раффаэлла Карра, Франсуа Перье, Витторио Саниполи, Марио Пизу, Кеннет КоувПеревод: отсутствуетСубтитры: итальянские, испанские, английские, русские (от mihailtorrent)Продолжительность: 02:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469D9278B3ACEB5609820EE24D48228EFA6588AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482900   (99819) от 16.04.2012
+
+Морг / Mortuary (1983) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристи страдает от ночных кошмаров, в которых она видит своего отца-утопленника. Мать Кристи считает, что его смерть была несчастным случаем, но девушка уверена, что на самом деле произошло убийство. Вскоре Кристи замечает, что за ней начинает следить зловещий незнакомец в чёрном...Жанр: Ужасы, ТриллерРежиссер: Говард АведисАктеры: Мэри Бет МакДонаф, Дэвид Уоллес, Билл Пэкстон, Линда Дэй Джордж, Кристофер Джордж, Курт Айерс, Билл Конклин, Донна Гаррет, Грег Кэй, Дэнис МэнделПеревод: Одноголосый закадровыйПродолжительность: 01:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E0511CE430CDBA74D5D9D16F7D9898CDA6AFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483817   (99811) от 16.04.2012
+
+Виктор Кузнецов | Психология взаимопонимания. Неправда, ложь, обман [2008] [PDF]
+
+>>Разное (категория книг)
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неослабное внимание к проблемам межличностного понимания продиктовано, в частности, существованием такого социального феномена, как обман. Он бытует в самых разнообразных формах и оттенках. Мы пользуемся обманом, от него защищаемся, пытаемся его раскрывать, обманываем не только других, но и себя, не только с корыстной целью или из страха, но и спасая других под угрозой наказания. По сути, в этом мире обмана мы и живем.
+В книге рассмотрены виды, способы и инструменты обмана, выделены добродетельный и корыстный обман, обман умолчанием, самообман, описаны факторы, облегчающие и затрудняющие обман.
+Книга может быть рекомендована в качестве дополнительного материала студентам, изучающим курс социальной психологии, а также адресована всем тем, кого интересуют проблемы психологии общения.2008Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97039D0D5F5661F45A8DCE8D2F7382581BFF4562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483656   (99802) от 16.04.2012
+
+Журнал | Ателье №3 (135) [2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99802.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ателье» — это первый профессиональный журнал о моде в России, ориентированный на владельцев ателье и мастерских по пошиву одежды, дизайн-студии, частных модельеров и дизайнеров.
+
+ В каждом номере можно найти массу интересных и профессиональных статей, предназначенных для специалистов швейного бизнеса. Основные материалы журнала посвящены последним новостям моды в (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF10298DCE1B0BC8D03101CC0E7F2AAEB278DF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483079   (99801) от 16.04.2012
+
+Maria Muldaur - Steady Love (2011) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Glad
+02. Why Are People Like That?
+03. Soulful Dress
+04. Blues Go Walking
+05. I Done Made It Up in My Mind
+06. Walk by Faith
+07. As an Eagle Stirreth in Her Nest
+08. Rain Down Tears
+09. Get You Next to Me
+10. Steady Love(   Читать дальше...   )2011Жанр: BluesПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482589   (99800) от 16.04.2012
+
+Minay - Покажи, пока жив (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Моя Сибирь
+02 - В темпе Ларго
+03 - Анти баллада о любви
+04 - На одной волне
+05 - Вера, как мода
+06 - Победа
+07 - Мимо прохожих
+08 - Каждому своя
+09 - Как правильно
+10 - Других не надо2012Жанр: Rap, Hip-HopПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787963FE20C1912B4536BFBA1634A3E5C3168564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483055   (99799) от 16.04.2012
+
+Chano Dominguez - Flamenco Sketches (2012) [FLAC|Lossless]<Latin Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flamenco Sketches 16:04
+02. Freddie Freeloader 9:33
+03. Blue in Green 8:08
+04. So What 7:45
+05. All Blues 6:53
+06. Nardis 9:05
+07. Serpent's Tooth 3:382012Жанр: Latin Jazz, Piano JazzПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481428   (99796) от 16.04.2012
+
+VA - Kiss FM - Top-40 (10.04.2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten feat. Armin Van Buuren - Brute (Original Extended Mix)
+02. Super8 Tab - Awakenings (Original Mix)
+03. Swedish House Mafia - Greyhound (Original Mix)
+04. Mark Knight - Together (Original Club Mix)
+05. Kyau Albert - This Love (Original Mix)
+06. Laidback Luke, Arno Cost, Norman Doray - Trilogy (Original Mix)
+07. Jackwob - Electrify (Seamus Haji Club Mix)
+08. Betsie Larkin Sied Van Riel - The Offering (Extended Mix)
+09. Emma Hewitt - Colours (Armin Van Buuren Rmx)
+10. Kirsty - Twilight (Armin Van Buuren Rmx)(   Читать дальше...   )10.04.2012Жанр: DanceПродолжительность: 03:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA02FE3E1DCE4E0854740FB120BD3AC29234C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484093   (99788) от 16.04.2012
+
+Baby D - Deliverance (1996) [MP3|320 кб/с]<Breakbeat, Hardcore, D'n'B>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Baby D - Deliverance (1996)
+Год: 1996
+Жанр: Breakbeat, Hardcore, D'n'B
+Продолжительность: 01:28:06
+Лейбл: Systematic
+Страна: UKКодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТреклист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449DEE9AF896A1337096102D9543B43D04D3E820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483801   (99783) от 16.04.2012
+
+VA - Союз еврохитов (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Pink - Bridge Of Light
+02 Madonna Feat. Justin Timberlake - Latte
+03 Flo Rida Feat. Sia - Wild Ones
+04 Rihanna - You Da One
+05 Nickelback - Lullaby
+06 Britney Spears - Love 2 Love U
+07 Justin Bieber - Uh Oh
+08 Beyonce Feat. David Jassy - I Care (Remix)
+09 Dev Feat. Enrique Iglesias - Naked
+10 Bob Sinclar Feat. Sophie Ellis-Bextor - Fuck With You(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1497BD6E48E88A3E74D05B62366709DA63DC243E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484017   (99781) от 16.04.2012
+
+Журнал | Домой. Строительство и ремонт №12 [2012 апрель] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированный рекламный журнал «Домой. Строительство и ремонт» – это полноцветный еженедельный журнал о строительных, отделочных материалах, мебели и интерьере. Аудитория журнала: частные лица, предприниматели и организации, планирующие строительство, ремонт и обустройство жилья, загородных домов, участков, офисов и других помещений.2012 апрельФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17B03457888970BB9A2229FC41B7D9E606640B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483723   (99780) от 16.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (16.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99780.jpg" />
 </div>
 
 
@@ -42,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B481258BBAC4F8239BD4B9026C9189539D0A8636
+magnet:?xt=urn:btih:EFBC1A3B28EBD3D8D166E05E3EED3059C4AE21A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,498 +429,334 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472894   (84101) от 24.03.2012
+###  Публикация: 483864   (99775) от 16.04.2012
 
-Глухие стены / Medianeras / Sidewalls (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мартин и Мариана живут в соседних домах. У них одинаковые привычки и они одинаково одиноки.Жанр: ДрамаРежиссер: Густаво ТареттоАктеры: Хавьер Дролас, Пилар Лопес де Айяла, Инес Эфрон, Адриан Наварро, Рафаэль ФерроПеревод: Любительский одноголосый закадровыйПродолжительность: 01:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2B74197834A3E07448A500854EAB13422AB956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472603   (84093) от 24.03.2012
-
-VA - Rollins' Choice: Selections From Blue Note (2CD) (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84093.jpg" />
-</div>
-
-
-###  Подробнее
-
-2010Жанр: JazzПродолжительность: 02:27:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472730   (84092) от 24.03.2012
-
-Andrea Bocelli - Concerto One Night in Central Park (2011) [FLAC|Lossless]<Classical, Vocal, Crossover>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Donna E Mobile - Verdi / Rigoletto [02:15]
-02. Di Quella Pira - Verdi / ll Trovatore [02:16]
-03. Ave Maria Central Park Version [04:46]
-04. Vicino A Te S'Acqueta - Giordano / Andrea Chenier duet with Ana Maria Martinez [08:15]
-05. Au Fond Du Temple Saint - Bizet / Les Pecheurs de perles duet with Bryn Terfel [05:56]
-06. O Soave Fanciulla - Puccini / La Boheme duet with Pretty Yende [04:06]
-07. Libiamo Ne' Lieti Calici - Verdi / La Traviata with P.Yende, B.Terfel, A.M.Martinez [03:11]
-08. Amazing Grace [04:22]
-09. New York New York duet with Tony Bennett [03:28]
-10. The Prayer duet with Celine Dion , David Foster on piano [04:30](   Читать дальше...   )2011  |Жанр: Classical, Vocal, Crossover  |Продолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F56C203F93171749A418DBC305D5A1355AA46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472684   (84090) от 24.03.2012
-
-Индийская гробница / Das Indische Grabmal (1959) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следуя традициям, приключения героев «Бенгальского тигра» продолжаются. «Индийская гробница» начинается с финальной сцены предыдущего фильма. На пути Гарольда и Ситы встают песчаные бури, непроходимые джунгли, пещера прокаженных и кровавое дворцовое восстание.Производство: Германия (ФРГ), Франция, Италия / CCC Filmkunst GmbH, Critérion Film, Regina Production, Rizzoli Film S.p.a.Жанр: Мелодрама, ПриключенияРежиссер: Фриц ЛангАктеры: Дебра Пейджит, Пауль Хубшмид, Вальтер Райер, Клаус Хольм, Сабина Бетман, Рене Делтген, Валерий Инкижинов, Йохен Брокманн, Рихард Лауфен, Йохен БлюмеПеревод: Профессиональный, многоголосый, закадровыйПродолжительность: 01:41:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472607   (84089) от 24.03.2012
-
-Николай Звонарев | 500 полезных советов рачительному хозяину [2009] [pdf epub rtf]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите стать рачительным хозяином, для которого нет проблем самостоятельно сделать мелкий бытовой ремонт и выполнить любую мужскую работу по дому: будь то окраска пола или заточка ножниц? Тогда эта книга - для вас!
-В ней Михалыч делится секретами о том, как отремонтировать мягкую мебель, сварить столярный клей, построить ледяной склад и даже сделать в домашних условиях надувной матрас!
-Следуя приведенным в ней простым рекомендациям, вы сэкономите кучу денег и получите удовлетворение от хорошо выполненной работы.2009Формат: pdf epub rtf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE32CC7F9A7938CB6AE1169015ABF0D84FD20D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472552   (84087) от 24.03.2012
-
-«Кадиллак» Долана / Dolan's Cadillac (2009) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь долгих лет Робинсон мечтал о мести — босс мафии Джимми Долан приказал убить его жену, собирающуюся давать показания против Долана в суде. Преступники взрывают машину жены Робинсона и остаются безнаказанными. Семь долгих лет, слыша в своем сознании голос погибшей супруги, Робинсон разрабатывал идеальный план возмездия.Жанр: Триллер, КриминалРежиссер: Джефф БислиАктеры: Кристиан Слэйтер, Эммануэль Вожье, Уэс Бентли, Грег Брайк, Эйдан Дивайн, Эл Сапьенза, Карен ЛеБланк, Вивиан ЭнДжи, Патрик БёрдПеревод: Профессиональный многоголосыйПродолжительность: 01:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E627B636B950E8A0497976FD87CEDF49EA1B4B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472873   (84086) от 24.03.2012
-
-Easter Eggztravaganza  / Пасха "eggztravaganza". Поиск яиц (P) [Ru] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступила Пасха, Майк и Салли собираются разрисовать пасхальные яйца. Отправляйтесь на ферму за свежими яйцами, навестите свою тетушку Джанет и попадите на ежегодную мега-охоту за пасхальными яйцами. Ищите пасхальные яйца, кроликов, леденцы и разнообразные игрушки, которые были рассеяны по множеству красочных локаций. Играйте в очаровательные мини-игры, такие как "найди различия", мозаика и еще много других в этой захватывающей игре жанра "я ищу".(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский ("Наша Версия")
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060D5943625D23AF2F4F738ED649D19DEBB22EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472398   (84085) от 24.03.2012
-
-Бенгальский тигр / Der Tiger von Eschnapur / The Tiger of Eschnapur (1959) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Западный архитектор Гарольд Бергер, приглашенный в Индию Чандрой, бенгальским махараджей, влюбляется в прекрасную танцовщицу Ситу, несмотря на то что она уже обещана махарадже.
-Их предательство вызывает гнев мстительного Чандры, который ведет борьбу за власть со своим братом-интриганом. Влюбленным приходится спасаться бегством в пустыне…
-
-Продолжение истории смотрите (   Читать дальше...   )Производство: Германия (ФРГ), Франция, Италия / CCC Filmkunst GmbH, Critérion Film, Regina Production, Rizzoli Film S.p.a.Жанр: Триллер, Драма, Мелодрама, ПриключенияРежиссер: Фриц ЛангАктеры: Дебра Пейджит, Пауль Хубшмид, Вальтер Райер, Клаус Хольм, Сабина Бетман, Лучана Палуцци, Рене Делтген, Валерий Инкижинов, Йохен Брокманн, Рихард ЛауфенПеревод: Профессиональный, многоголосый, закадровыйПродолжительность: 01:40:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472356   (84084) от 24.03.2012
-
-Книжная серия "New AZbookA" (12 книг) [2004-2005] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам представлена серия книг "New AZbookA", которая сочетает в себе весь спектр жанров современного романа. В этой серии все только новое - произведения, авторы, оригинальное оформление.2004-2005Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D9915770410DD700950771317E88BFF81795D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472694   (84083) от 24.03.2012
-
-Формула 1. Сезон 2012. Этап 2. Гран-при Малайзии. Квалификация (Эфир 24.03.2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап чемпионата Formula 1 (F1) состоит из трёх свободных заездов, квалификации (3 сегмента) и гонки.
-Места пилотов на стартовой решётке (старт с места) определяются по итогам квалификации.
-Зачётные очки начисляются первым 10 пилотам по системе "25–18–15–12–10–8–6–4–2–1".Жанр: СпортТелекомпания: Спорт 1 HDПродолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7623CD826AC69AA9ECC5B16934EB01FF5E8491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472572   (84081) от 24.03.2012
-
-Дэшил Хэммет | Большой налет [2008] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Оперативник агентства «Континентал»
-Оригинальное название:Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9218126CFCC681DEAAC16512E779BFB44DDA86B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472451   (84080) от 24.03.2012
-
-Распиновки разьёмов самых распространенных китайских моделей телефонов [2012] [DOC]
-
->>Разное (категория книг)
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распиновки разьёмов самых распространенных китайских моделей телефонов. так же обозначены контакты для подключения прошивочного кабеля.2012Формат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18CBCA6D02286AB15DA4C77402A51DD8CEEE570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472892   (84078) от 24.03.2012
-
-Любовные кружева / Театр на Фонтанке (2004) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: комедия, спектакльРежиссер: Семён Спивак, Михаил ЧернякПродолжительность: 02:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEAEE1813C4550DB300093FBE180F52581610A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472737   (84077) от 24.03.2012
-
-Формула 1. Гран-При Малайзии. Квалификация (2012) HDTVRip [720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208D240B7E36E1ABA7EC706D2658881D0ECC5B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472950   (84073) от 24.03.2012
-
-Журнал | Лечим без лекарств №3 Панкреатит [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лечим без лекарств - панкреатит: причина заболевания, профилактика, лечение, личный опыт читателей.
-Перед применением необходимо проконсультироваться с врачем.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA00C7770D3423FE2AB266F1C4014C3CEAB69F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472596   (84066) от 24.03.2012
-
-NG: Кладбище воинов. Ожившие самураи / Warrior Graveyard. Samurai back from the dead (2011) SATRip
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судмедэксперты и историки, исследующие массовое захоронение 14 века в Японии, открывают секреты самураев и их жестокие методы убийства.Жанр: Документальный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44532A986DFF3D1C6C9E12469C97BD7D32C4732C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472474   (84063) от 24.03.2012
-
-Don Burrows & The Mell-O-Tones - Non-Stop Flight: Great Music of the Swing Era (2005) [FLAC|Lossless]<Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84063.jpg" />
-</div>
-
-
-###  Подробнее
-
-ACT 1
-1. Let’s Get Together (Edgar Simpson / Chick Webb)
-2. Non-Stop Flight (Artie Shaw)
-3. All or Nothing at all (Jack Lawrence / Arthur Altman)
-4. Don’t be that way (Mitchell Parrish / Benny Goodman / Edgar Simpson)
-5. At Last (Mack Gordon / Harry Warren)
-6. Honeysuckle Rose (Andy Razaf / Thomas "Fats" Waller)
-7. Moon Glow (Eddie De Lange / Will Hudson)
-8. No Love, No Nothin’ (Mack Gordon / Harry Warren)
-9. Amapola (Albert Gamse / James Lacalle)(   Читать дальше...   )2005Жанр: Jazz, SwingПродолжительность: 01:15:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472872   (84057) от 24.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 52
+[Wallpapers] Wallpaper Sexy Girls 0.7
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Sexy Girl Wallpapers Pack 52
-Название: Sexy Girl Wallpapers Pack 52
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BDFAC662AC5F05512ABCBFBAD15B126C1C12E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482740   (99774) от 16.04.2012
+
+DJ Kocmoc - Electro Sensation vol.24 (6.04.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Set Fire To The Rain (Party & Stylez & D-Vine Remix)
+02. Scotty - Children (DJ's From Mars Club Mix)
+03. Albert Kick - Evil Girl (Club Mix)
+04. DJ Brainstorm - Nessaja (Rene De La Mone & Slin Project Remix)
+ 05. Beach feat. Inusa Dаwuda - Revolution 2012 (Club Mix)
+06. ATB - Till I Come (Ido Shoam Bootleg Mix)
+ 07. Disco Superstars - Sadness (Extended Mix)
+08. Misha Zam - Angry Toy (Original Mix)
+ 09. Dub Deeays - Up & Down (Slayback Remix)
+ 10. Dirty Rotten Disco - Jack To The Sound (DJ's From Mars Club Mix)(   Читать дальше...   )6.04.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A583B4D6F87A6B5BE944F42EE910495E880E098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483699   (99773) от 16.04.2012
+
+VA - Dance Explosion  (2011) [MP3|320 кб/с]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99773.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sara Sofia - Ohe Oha Vas A Sonar (French radio edit) (3:34)
+2. Loona - El Tiburon (radio edit) (3:00)
+3. The Potbelleez - From The Music (original edit) (3:10)
+4. Radio Killer - Don't Let The Music End (video edit) (3:00)
+5. Avicii - Fade Into Darkness (radio vocal mix) (3:17)
+6. Nora Hilton - Freaky Boyz (radio edit) (3:05)
+7. J Pearl - Must Be A Reason Why (feat Shayne Ward - Guy Katsav radio edit) (2:36)
+8. Laurent Wery – Hey Hey Hey (Pop Another Bottle) - Radio Mix (3:05)
+9. Christopher S - One Day (feat Max Urban) (3:07)
+10. David Latour - Venus vs Mars (radio mix) (3:17)2011Жанр: DanceПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC000CEE496862CC244767639D477165240FCCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483783   (99772) от 16.04.2012
+
+Газета | 1000 секретов [Украина] №7 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание для всей семьи, по крупицам собирающее народную мудрость по множеству житейских вопросов. Практические советы читателей и специалистов выручат в любой ситуации. Консультации юриста, советы психолога, народная медицина, дача и огород, рукоделие, кулинария, конкурсы, призы и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192B7D5D904D38EC91740B082E1D9E3EFBBD3788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483061   (99769) от 16.04.2012
+
+Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Organized Memories (7:32)
+02. The Deduced (5:21)
+03. Lilah (5:30)
+04. Bombs (6:19)
+05. Remember (3:11)
+06. Blue In Green (Miles Davis - Bill Evans) (3:31)
+07. Rockstar Wannabe (Nir Naaman) (5:06)
+08. Temporary Feelings (7:46)
+09. Tarantula (6:01)
+10. War Poem (1:54)(   Читать дальше...   )2011Жанр: Jazz-Rock, Contemporary JazzПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483190   (99765) от 16.04.2012
+
+VA - A Psychedelic Journey Vol.1 (2012) [MP3|320 кб/с]<psychedelic, full on>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dune - firewall
+02. Uriyah and Safi Connection - spliff it up
+03. Miditec - botanical seduction
+04. Waio and Aquarius - different reality
+05. Digital Tribe vs Smosh - in a dream
+06. Power Control - tears
+07. Kido - clock wise
+08. Uriyah - spiritual reality
+09. Indra - mechanical
+10. Didrapest and System Failure - overdrive(   Читать дальше...   )2012Жанр: psychedelic, full onПродолжительность: 01:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E837AFE5451BC85980D01FDDDD3BD0BF443328FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484022   (99763) от 16.04.2012
+
+Журнал | СтройПодряд №13 [2012 апрель] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный иллюстрированный рекламно-информационный журнал, на страницах которого Вы найдете статьи и интервью о строительстве и обустройстве дома, наглядные идеи по дизайну интерьера, полезные рекомендации и советы по выбору материалов и инструментов, пошаговые инструкции по ремонту, уходу за домом и участком, а также много полезной информации о новинках рынка, товарах и услугах по ремонту и строительству.2012 апрельФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243CADAE641B58B16A4BC49519DDF5FE222C3D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483642   (99760) от 16.04.2012
+
+Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Progressive Rock, Electronic, Worldbeat>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Heartbeat of the Sun
+02. Slow Joe Rain
+03. Cut the Deck
+04. Starlight Starbright
+05. Who Stole The Show?
+06. Djinn Djinn
+07. This One Hour
+08. Supersonic Vision
+09. Time Never Ends
+10. Let There Be Light(   Читать дальше...   )2012Жанр: Psychedelic Progressive Rock, Electronic, WorldbeatПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D085FF29DB166C14ACCD02C60A57D07FF985F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483731   (99758) от 16.04.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (16.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E473B1E2014D3AE88715037C284838637ED0CCC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483846   (99757) от 16.04.2012
+
+Газета | АиФ. На Даче №6 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета "Аиф. На Даче" — Популярное издание по “дачной” тематике для владельцев огородов, садовых участков, совхозов, питомников, дач и усадеб, а также для тех, кто только собирается ими стать.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE4BE29C69A7EBFE86DCC7B5C4728FDC5427DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483951   (99752) от 16.04.2012
+
+[Wallpapers] Avto Wallpapers №5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99752.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers №5
+Название: Avto Wallpapers №5
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
+Разрешение файлов: 1920x1200
 Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21E70B03BAD980BC17AAD47C75B430290030B8EE
+magnet:?xt=urn:btih:6A2A674B0881C3DF01D555F9BAB90EA99B182011
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,174 +764,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472884   (84055) от 24.03.2012
+###  Публикация: 483729   (99747) от 16.04.2012
 
-Phenomenon: City of Cyan (P) [En] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители Моники пропали. Город был разрушен после эксперимента, и теперь, везде из неоткуда появляются странные существа не из этого мира. Что здесь случилось, спросите вы? На этот вопрос вам и предстоит найти ответ!(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1142BF1125465B4568CA5DF6AE48582B9D30B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472573   (84053) от 24.03.2012
-
-Дэшил Хэммет | 106 тысяч за голову [2008] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Оперативник агентства «Континентал»
-Оригинальное название:Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CA26AF8B2B04925B3E7DCAA71AA0B84D1E0A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472217   (84052) от 24.03.2012
-
-VA-Hard Dance Awards 2012 (Mixed by Kutski, Zatox & Steve Hil) (2012) [MP3|320 кб/с]<Hard dance, hard trance, hardstyle>
+[Wallpapers] Wallpapers Sexy Girls Pack (16.04.12)
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Kidd - Love of Loops
-02. ASYS - Acid Glitch (Organ Donors Mix)
-03. BRK3 - L3T G0
-04. Organ Donors - 99.9 (Hard Edge Mix)
-05. Activator - Rombee
-06. Kutski Vs BRK3 - L4MP (ASYS Remix)
-07. Phil York and In2ition - Take it All in
-08. Luca Antolini & Andrea Montorsi - Are Am Eye (Pumpin Mix)
-09. Showtek - Memories
-10. Waverider & Audio Freq - TMU(   Читать дальше...   )2012Жанр: Hard dance, hard trance, hardstyleПродолжительность: 09:20:50
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3690E5E3283726F522198F89D407DD6D3434EF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472235   (84051) от 24.03.2012
-
-Roxette - Travelling (2012) [MP3|~224~283 кб/с]<Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me & You & Terry & Julie 03:46
-02. Lover Lover Lover 04:00
-03. Turn of the Tide 04:11
-04. Touched by the Hand of God 03:48
-05. Easy Way Out 03:38
-06. Its Possible ( Version One) 02:38
-07. Perfect Excuse 03:41
-08. Excuse Me, Sir, Do You Want Me to Check on Your Wife 04:15
-09. Angel Passing 02:47
-10. Stars 03:36(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0ED73EBFEA516960A78A25ECAAAA56964EA6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472937   (84049) от 24.03.2012
-
-Прожекторперисхилтон. Сезон 4. Выпуск 23(123) (23.03.2012) DVBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84049.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED5D0B9DFDD1D9A87934A30F121F51091145E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472455   (84048) от 24.03.2012
-
-Дуэт / Стихи Ахматовой и Цветаевой читает Михаил Козаков (1999) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Козаков читает стихи Анны Ахматовой и Марины Цветаевой.Жанр: поэзияРежиссер: Людмила ХмельницкаяПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88C705C9A4012FEA73B6F37C79C4CB06A6296C5
+magnet:?xt=urn:btih:FAB62AE471ED1E224FD1FEE1F8B09C2079C7E33F
 ```
 
 https://mybot314.ru/tekegram_catalog/

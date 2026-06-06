@@ -1,3 +1,30 @@
+###  Публикация: 917081   (589442) от 11.07.2015
+
+[PSP] Kuroko no Basuke: Kiseki no Shiai [Repack] [Jp] (2012)
+
+>>Консольные Игры
+>>PSP
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589442.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Kuroko no Basuke: Kiseki no Shiai» - игра для PSP, основанная на серии «Kuroko no Basuke» и сфокусированная на развитии баскетбольной команды.
+«Kuroko no Basuke: Kiseki no Shiai» - традиционный симулятор баскетбольной игры. Во время матчей игроки представлены в виде чиби-версий. Создается такое впечатление, что игра имитирует каждый матч до финала отборочных соревнований (   Читать дальше...   )Тип издания: RepackРазработчик: Bandai Namco GamesЖанр: Sport Game, Simulation GamesЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1CBFDF609662F2E9F2E959D80FC16F685DBD73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551835   (588884) от 18.05.2022
 
 Car Mechanic Simulator (2019) [PS4] [USA] 5.05 [HEN] [License / 1.07 / DLC] [Ru/Multi]
@@ -654,32 +681,6 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3037C3DB59C2A92F00C2E5F7FB37B3FA5CDF4FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361685   (576096) от 10.07.2011
-
-Sid Meier's Pirates! [Wii] [PAL] [Multi 5] (2010)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sid Meier's Pirates! позволит геймерам встать за штурвал судна XVII века (всего в игре будет 27 видов кораблей). На нем они отправятся в путешествие по Карибскому морю в поисках сокровищ. Принимая участие в морских баталиях с помощью Wii Remote, игроки смогут улучшать боевое снаряжение своих кораблей. Помимо боя между кораблями и сражениям на мечах разработчики добавят (   Читать дальше...   )Разработчик: 2K Shanghai / VirtuosЖанр: ПриключенияЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: wbfs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26654E0ED4B21171366EB782003A2E15C4BBFC4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

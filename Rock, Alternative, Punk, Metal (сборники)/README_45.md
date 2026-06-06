@@ -1,3 +1,154 @@
+###  Публикация: 1521056   (137601) от 31.12.2021
+
+Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow
+02. Back to Texas
+03. Sleepless Night
+04. Nobody  Knows(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086360311628F4C36EBBE7904A688B24563815B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596432   (131265) от 30.12.2012
+
+VA - Rockовое Нашествие-Русская версия (2012) [MP3|128 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 ДДТ - Напиши мне, напиши
+002 Алиса - Качели
+003 Король и Шут - На краю
+004 Сергей Шнуров - Sky Whisky
+005 Бригадный подряд, Король и шут, Пилот и Кукрыниксы - Питер рок-н-ролл
+006 Мельница - Дороги
+007 Браво - Вот и я
+008 Louna - Мама
+009 СерьГа - Берегите лес
+010 Чайф - Для него(   Читать дальше...   )Жанр: RockПродолжительность: 12:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CE0FE43F95787647EE4AC6478067D6396215B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683944   (127858) от 15.12.2023
+
+VA - Jingle Bell Rock (2023) [MP3|320 Kbps] <Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127858.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Twisted Sister - Heavy Metal Christmas (The Twelve Days of Christmas) [05:15]
+002. L.A. Guns - Merry Xmas Everybody [04:11]
+003. Cheap Trick - Christmas Christmas [02:17]
+004. Alice Cooper, John 5, Billy Sheehan, Vinny Appice - Santa Claws Is Coming To Town [04:20](   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F63A21FAD2A6F5E2E4A20A434AC42A663F6DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685753   (127070) от 19.12.2023
+
+Dr. Arthur Krause - Best of (2003-2016) Compilation Album [MP3|320 Kbps] <Goth Rock, Darkwave>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Hard Hands
+02. Born in Russia
+03. Dance like Hell
+04. Deported Soul II(   Читать дальше...   )Жанр: Goth Rock, DarkwaveПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED49AE5766E566A7B1EE44112EC2BF7C3B2469E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689101   (124808) от 01.01.2024
+
+VA - Полный Отстой (2023) [MP3|320 Kbps] <Thrash, Metal, Hard>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taliesin - Faceless Women (04:26)
+ 02. Acod - Nekyia Catharsis (05:25)
+ 03. Amberian Dawn - Head Over Heels (03:40)
+ 04. Ancient Mastery - Eternal Night (08:07)(   Читать дальше...   )Жанр: Thrash, Metal, HardПродолжительность: 05:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30436F1F35297CC22E1BC36B88C2A0B06F1A3D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689405   (124547) от 03.01.2024
 
 John Haydock - Compilation (2024) [MP3|320 Kbps] <Rock, Blues rock>
@@ -597,157 +748,6 @@ Haylen - Compilation (2024) [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD9B4D96DCD6B3858B1A437BACE00DF51E08F005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751939   (103991) от 28.09.2024
-
-David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Compilation Album [MP3|320 Kbps] <Alternative Rock, Folk Rock, Country Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 16 Horsepower - American Wheeze
-02. 16 Horsepower - Black Bush
-03. 16 Horsepower - Black Soul Choir
-04. 16 Horsepower - Dead Run(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Country RockПродолжительность: 01:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763514   (102816) от 01.12.2024
-
-Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, Psychedelic rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chun Li's Spinning Bird Kick (I Bet You Look Good On The Dancefloor EP 2005)
-02. 505 (Favourite Worst Nightmare 2007)
-03. 2013 (AM 2013)
-04. American Sports (Tranquility Base Hotel & Casino 2018)(   Читать дальше...   )Жанр: Indie rock, Post punk, Psychedelic rock, AlternativeПродолжительность: 03:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DE5C1AC386D4A2B36EAEB54BE54ABC81A0ECB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490520   (102529) от 01.05.2012
-
-Чиж & Co - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 — Автобус
- 02 — В старинном городе О.
- 03 — Вечная молодость
- 04 — Мышка (Колыбельная хиппи)
- 05 — Русская (Хочу чаю)
- 06 — Глазами и душой
- 07 — Houchie Coochie Man
- 08 — Она не вышла замуж...
- 09 — Такие дела
- 10 — Глупенькая песня (Ассоль)(   Читать дальше...   )2012Жанр: RockПродолжительность: 04:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76AA934B949AF3BEBEF74486604767C97EF5576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768763   (100645) от 29.12.2024
-
-VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alter Bridge - Show Me A Sign
-002.Corroded - Dust
-003.Disturbed - Mine
-004. Lacuna Coil - I Like It(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 06:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C0C72A910EFFED13A04136156FDED669A43A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768772   (100624) от 29.12.2024
-
-VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 10 Years - Selling Skeletons
-002. Three days grace - The end is not the answer
-003. Bullet For My Valentine - Breaking point
-004. Celldweller - Birthright(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 06:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB07E215FFE296D411F56AF62584D86FDAB4A809
 ```
 
 https://mybot314.ru/tekegram_catalog/

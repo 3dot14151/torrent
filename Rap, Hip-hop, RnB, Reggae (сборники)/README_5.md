@@ -1,3 +1,32 @@
+###  Публикация: 1231489   (605158) от 18.06.2018
+
+VA - Flowers Of The Sun (2018) [MP3|320 Kbps] <RnB, Hip-Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sevdaliza - Hero
+002. Musiq Soulchild - Sobeautiful
+003. Levert - Goes My Mind
+004. The Trp - Dive(   Читать дальше...   )Жанр: RnB, Hip-Hop, RapПродолжительность: 12:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10DD14092E46B9BA0674F70C3BB1675A0C75FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549766   (592845) от 08.05.2022
 
 VA - Rap & Hip Beats (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -717,35 +746,6 @@ VA - Worldwide Rap Singles - Август 2020 (2020) [MP3|320 Kbps] <Rap, Hip-H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6594645C39E63977177BBA9A22C1F2E3F59C8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162625   (456610) от 02.09.2017
-
-VA - Original Sound Of Reggae (2017) [MP3|320 Kbps] <Reggae, Ska, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Super Beagle - Dust A Sound Boy
-002. Cocoa Tea - No Threat
-003. Johnny Osbourne - No Ice Cream Sound
-004. Tenor Saw - Ring The Alarm(   Читать дальше...   )Жанр: Reggae, Ska, SoulПродолжительность: 09:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:913DE8CDFEDE5B02B7CC91E0A48151BA7277F36F
 ```
 
 https://mybot314.ru/tekegram_catalog/

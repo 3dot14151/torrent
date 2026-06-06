@@ -1,3 +1,206 @@
+###  Публикация: 1028452   (690654) от 22.06.2016
+
+VA - Ministry Of Sound - Chilled House Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sigala - Give Me Your Love (John Newman & Nile Rodgers-The Rooftop Boys remix) (4:15)
+02. Mike Posner - I Took A Pill In Ibiza (Seeb remix) (3:19)
+03. Gorgon City - All Four Walls (feat Vaults) (3:12)
+04. Years & Years - Desire (feat Tove Lo) (3:23)(   Читать дальше...   )Жанр: Chill HouseПродолжительность: 04:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAE0D2AD04F5EA1F6A117FD485E3C9E35AB3ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534904   (690530) от 04.03.2022
+
+Blank & Jones - #WhatWeDoAtNight 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach (3:45)
+ 02. Storm (2:40)
+ 03. Lush (3:29)
+ 04. Equator (3:13)(   Читать дальше...   )Жанр: House, Nu Disco, Indie DanceПродолжительность: 00:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C31577BDA77F27692167F89A1CF1229A8EBAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534960   (690514) от 04.03.2022
+
+Bob Moses - The Silence in Between (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Deep House, Hardcore House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seen it Coming (4:13)
+ 02. Love Brand New (3:18)
+ 03. Never Ending (4:02)
+ 04. Time and Time Again (5:40)(   Читать дальше...   )Жанр: Electro House, Deep House, Hardcore HouseПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5416AB4B67B03244DCE60082EF0D3F95D3C551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028675   (688762) от 23.06.2016
+
+GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Techno, Progressive House, Trance, Breaks, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthem (07:51)
+02. Northern Lights (06:12)
+03. Earl Grey (07:06)
+04. Purple (09:20)(   Читать дальше...   )Жанр: Techno, Progressive House, Trance, Breaks, DowntempoПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543D398206F866202925DDB2F6D6E01A55E4453B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403669   (688568) от 21.08.2020
+
+Cut Copy - Freeze, Melt (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Dance Punk, Indie>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Water (05:11)
+02. Like Breaking Glass (04:51)
+03. Love Is All We Share (06:01)
+04. Stop, Horizon (05:28)(   Читать дальше...   )Жанр: Electropop, Dance Punk, IndieПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E9D077A1ADF33FB3B612F08BE18BF950B6A573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403693   (688567) от 21.08.2020
+
+Foals - Collected Reworks Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Disco, Funky, Indie Rock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Number (Hot Chip Remix) (9:54)
+ 02. Give It All (Lxury Remix) (6:20)
+ 03. Mountain at My Gates (Alex Metric Remix) (6:45)
+ 04. Into the Surf (Hot Since 82 Remix) (8:10)(   Читать дальше...   )Жанр: Electro House, Disco, Funky, Indie RockПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBF19A9875A017A285AFC4183C2A7959F593A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403756   (688563) от 21.08.2020
+
+Foals - Collected Reworks Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Techno, Indie Rock, New Wave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhaler (Tom Vek's Wheezemix) (5:22)
+ 02. What Went Down (Haxan Cloak Remix) (5:37)
+ 03. Exits (Vessel Remix) (3:31)
+ 04. Hummer (Surkin Remix) (4:20)(   Читать дальше...   )Жанр: Electro House, Techno, Indie Rock, New WaveПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC58CA1A83875A34011A83DD80041B397C444284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222230   (687579) от 28.04.2018
 
 NX1, Stephanie Sykes, Jay Quentin - ://About Blank 004 (2018) ://about blank [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -534,209 +737,6 @@ VA - Get Physical Music Presents: Body Language, Vol. 18 by Tim Green (2016) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50D74F80A61738B3D391FC704D0CB2D1F8493E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223138   (679367) от 02.05.2018
-
-PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natu (Original Mix) (10:40)
- 02. Cecilia (Original Mix) (7:10)
- 03. Magnolia (Original Mix) (8:11)
- 04. Natu (El Mundo Remix) (8:31)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34877643729E8AE8E8F3222F5054CB1B5A473940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290434   (678481) от 20.03.2019
-
-Lakker - Época (Epoca) (2019) R & S Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoulder to the Bat (04:21)
-02. 100 Bar (03:02)
-03. Nest (03:19)
-04. A Juggling of Numbers (05:07)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA08AF10B354781549A4A0C0F147B19DEB42908C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223244   (677281) от 03.05.2018
-
-Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Sun (Original) (8:23)
- 02. Burning Sun (DAVI Remix) (6:58)
- 03. Burning Sun (Be Svendsen Remix) (8:41)
- 04. Burning Sun (Just Emma's Just Take Me Back Mix) (10:30)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD48892E4A2CD26CF1BEFF8B3E319DF7BBFFD016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030136   (676530) от 29.06.2016
-
-Solid Stone - Introspection (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Stone - Introspection (5:09)
-02. Solid Stone - Broken (6:28)
-03. Solid Stone & Wellenrausch - Ursa Major (7:21)
-04. Solid Stone - Profound (4:49)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F15E8B07DA4D36DD55326E4708745717C77E2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030475   (674688) от 30.06.2016
-
-S'express - Enjoy This Trip (2016) [FLAC|Lossless|tracks] <House, Deep House, Soul>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From S'Express (Tom Furse Update) (4:37)
-02. Pimps Pushers Prostitutes (Horsemeat Disco Remix) (feat. Billie Ray Martin) (5:47)
-03. Hey Music Lover' (Punks Jump Up Excursion Album Version) (4:01)
-04. Mantra Mania (Monarchy Remix) (4:53)(   Читать дальше...   )Жанр: House, Deep House, SoulПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:094636209A8D00565F30FD04210E13A9FBEAC097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030617   (674572) от 30.06.2016
-
-VA - In The Mix 002 - Progressive Sessions (Mixed by Audio Noir) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manu Delago - Chemical Reaction (feat Rahel) (7:05)
-02. Lux Departure - Twenty Forty Six (Yoky Playground remix) (7:20)
-03. Moonbeam - Black Skies (feat Loolacoma - extended mix) (7:07)
-04. Dofamine - Moon (8:35)(   Читать дальше...   )Жанр: Progressive House, Tech House, TechnoПродолжительность: 05:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5564A9D456A1338EFAFD3472B459845C6B78B211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290657   (674451) от 22.03.2019
-
-Powder - Powder In Space (2019) [FLAC|Lossless|tracks + .cue] <Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samo, Hidden Operator - Захват Сзади Rox (3:06)
-02. Tornado Wallace - Open Door (Born Inna Tent Mix) (3:24)
-03. Acid Pauli - Release (1:54)
-04. Don't DJ - Southern Shore (4:03)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8973EBBF4671CCDD8DF0FE75DC98B826F4635E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1185635   (291415) от 22.11.2017
+
+VA - The Hit Factory: Ultimate Collection (2017) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291415.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Kylie Minogue  - Better The Devil You Know  3:53
+02.  Rick Astley  - Never Gonna Give You Up  3:33
+03.  Bananarama  - Venus  3:37(   Читать дальше...   )Жанр: PopПродолжительность: 03:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA62730644570C831CFC7AD1E9AF0C0B3DA47C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262913   (291412) от 17.11.2018
+
+Giorgia - Pop Heart (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le tasche piene di sassi
+02. Una storia importante (feat. Eros Ramazzotti)
+03. Lei verra
+04. Gli ostacoli del cuore (feat. Elisa)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C448BA5A16A67C8613D65DED20B7E776BB2EE355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962953   (290979) от 06.12.2015
 
 VA - I Love ZYX Italo Disco Collection Vol.18 (2014) 3CD [MP3|320 кб/с]<Italo-Disco, Dance, Eurodance>
@@ -684,64 +742,6 @@ VA - Танцевальный рай: Only Hits (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4688AC9BECF58A151F032E961D357072029F8F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964240   (283956) от 10.12.2015
-
-Ayala - This Year (2015) [OGG|469-523 кб/с]<Alternative Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Russian Roulette
-02. Maybe
-03. 5157 Miles
-04. Don't Fix It(   Читать дальше...   )Жанр: Alternative Indie PopПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627E605B35086F77DEA34A475A4FF1EC4B3FE028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186729   (283898) от 26.11.2017
-
-Yello - Live In Berlin (2017) [MP3|320 Kbps] <Pop, Synth-pop, Future Jazz>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Magma (Live In Berlin) 3:58
-02.  Do It (Live In Berlin) 4:31
-03.  The Evening's Young (Live In Berlin) 4:03
-04.  Limbo (Live In Berlin) 4:57(   Читать дальше...   )Жанр: Pop, Synth-pop, Future JazzПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810D2A0C3D7CE326AF2ECAC12791C3F913B09565
 ```
 
 https://mybot314.ru/tekegram_catalog/

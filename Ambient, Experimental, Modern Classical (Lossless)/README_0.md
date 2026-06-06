@@ -1,3 +1,29 @@
+###  Публикация: 1446074   (1033065) от 08.02.2021
+
+Tim Schaufert - Footprints (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Footprints (03:12)Жанр: AmbientПродолжительность: 00:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989F0E78693EC2E54C8A5D3E230972E52654F499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446174   (1033060) от 08.02.2021
 
 Tim Schaufert - Once Moved Too Slow (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -695,35 +721,6 @@ Jean-Michel Jarre - Amazonia & "Binaural Audio - Headphones Only" Version (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19FEFDE6E6E87B967B0A695A12B24E96C9CC984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461720   (1021750) от 10.04.2021
-
-Jean-Michel Jarre - Amazonia (2021) Columbia [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Tribal, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonia Part 1 (07:43)
- 02. Amazonia Part 2 (10:00)
- 03. Amazonia Part 3 (08:10)
- 04. Amazonia Part 4 (03:17)(   Читать дальше...   )Жанр: Ambient, Field Recording, Tribal, ExperimentalПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74CADFB0053AA0582B645E015AE4872EAB58606
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1274548   (792993) от 07.01.2019
+
+Venom - Storm the Gates (2018) [MP3|320 Kbps] <Thrash Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring Out Your Dead
+02. Notorious
+03. I Dark Lord
+04. 100 Miles To Hell(   Читать дальше...   )Жанр: Thrash Metal, Black MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80035D7E518B310BF9FC540012AD4280661502D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201447   (792814) от 24.01.2018
 
 The Animal In Me - Helping Won’t Help (2017) [MP3|320 Kbps] <Post-Hardcore, Female & Male Vocal>
@@ -716,35 +745,6 @@ Saxon - Thunderbolt (2018) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3A51A0651859DD41FC9731DEC075AF4B5ACF855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388863   (785167) от 08.06.2020
-
-AngeLight - Singles (2020) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face Down (03:16)
- 02. If You Could Only See (04:30)
- 03. Not Forsaken (03:13)
- 04. Voice of the Silent (03:34)Жанр: Alternative MetalПродолжительность: 00:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BCF8C99D1E668E1A5851193B5A5865AFF17E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1142095   (646841) от 12.06.2017
+
+VA - Beats For Life Vol.1 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umbria Style - Groove Junkie
+02. NJ Producer - Hold Love - Portugal Mix
+03. Orlando Johnson - It's Time To Get Together - Main Mix
+04. Nicola Minella - Esperando El Sexy Cha Cha - Club Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8125EF0CF942610435E9B494C6BCFED7889660A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141866   (646732) от 12.06.2017
+
+VA - Discotech - The Sound of Nu Disco Vol 1 (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirco Berti - The Groove 05:24
+02. Soldera & Poligamyk - Get It Up ! 05:42
+03. Boomerang - Bang Bang 04:21
+04. Anzzor - Hemmm 05:42(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C5425164BC95B6639293F45083DF8F8A6CD2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141954   (646729) от 12.06.2017
+
+VA - Beats For Life Vol.2: 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Cutie' - Gitano
+02. Cephalonya - Settembre
+03. Dj Aleksij & Klod Rights - Feelin' Nice - Kamisshake British Summer Remix
+04. Alfredam - The Sun - Steve Troiani Pool Party Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753A1E56ED82C58E48AD6B60A3F2ED50F3DE7BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032117   (646173) от 07.07.2016
+
+VA - Mykonos Summer Guide (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sir Felix - Maybe (feat Hero Baldwin - Nora en Pure Extended Vocal Mix)
+02. Sons Of Maria - Feels Like Summer (Radio Mix)
+03. Me & My Toothbrush - Living for the Moment (Radio Mix)
+04. Croatia Squad & Lika Morgan - Make Your Move (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2433CC04F84D760723E59247C6E3F4AC8D6B7398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032312   (646169) от 07.07.2016
+
+VA - Baila Verano (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toni G - Indiana (Original Mix) (feat. Nayma Bustamante) (03:18)
+02. Miguel Saez - Traketea (Original Mix) (03:11)
+03. Mario Mendes - Pa La Disco (Original Mix) (03:36)
+04. Mr. Padi - Vamonos Pa La Playa (Radio Edit) (feat. Yamil) (03:49)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDEC96670F0312E325D70106888D34428D3753F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032418   (646166) от 07.07.2016
+
+VA - Masters of Chillhouse (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiffre 100 - Take a Chance
+02. Rhythmphoria - Reverse Sights
+03. Chillelektro - Cassis
+04. Rey Salinero - Jerez de la Frontera(   Читать дальше...   )Жанр: HouseПродолжительность: 02:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EABF4C01B803BD429EB2C2467F66A8A015B36C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032227   (646164) от 07.07.2016
+
+VA - Ibiza 2016 - Hot Tunes Vol.1 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daviddance - Just You (Remastered version)
+02. Mauro Cannone & Daviddance - No More (original mix)
+03. Mauro Cannone & Daviddance - Trumpet Tromba (original mix)
+04. Hakan Dundar - All We All(   Читать дальше...   )Жанр: HouseПродолжительность: 02:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E220743FC54FAFC7C9DC979255E784C3C5BDA2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032132   (645955) от 07.07.2016
 
 VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
@@ -114,32 +317,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 345820   (643969) от 06.06.2011
-
-Tropical Highlight - Regressive Life (EP) - 2011 /PND 0084/ [MP3|320 kbps]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_643969.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Жанр: Progressive HouseПродолжительность: 01:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D7B59A520FA190E5B3C9640FADDB062D8ACF26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292756   (643186) от 31.03.2019
 
 VA - Deephouse Top 100 Vol.8 (2019) 2CD [MP3|320 Kbps] <Deep House>
@@ -162,32 +339,6 @@ CD 01: (03:20:59)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFCF3645306E87B287E4686AF5CB23997E196E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 346643   (641642) от 07.06.2011
-
-VA - Hed Kandi Pres: Beach House (2011) /HEDK110/ [MP3|320 kbps]<Tech House, Deep House, Funky House, Disco House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_641642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Deep House, Funky House, Disco HouseПродолжительность: 10:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC7985E8006AC0E8550CF4DE42DC3B868119D75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,157 +751,6 @@ Various Artist - Ibiza 2012 Back to the Island (2012) [MP3|320 кб/с]<Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A509B557E8F933E80CCD2FE4B30FC4B2D842F0C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293345   (635670) от 04.04.2019
-
-VA - Beat Full Tech (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slavko Blanco - Sugar Ball (Original Mix)
-02. Angelique Leroy - Rainbow In Me (Original Mix)
-03. Markus B - Alien Technology (Original Mix)
-04. Edelrost - Pizza (Extended Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 06:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BFE0FC1D6A593CD433B3CEF1D711F11349F452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293201   (635669) от 04.04.2019
-
-Siatria - Мой мир (2016) [MP3|320 Kbps] <Dance, EDM>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Закрой глаза  (3:27)
-02 - Люби меня  (3:33)
-03 - Больше не надо  (3:51)
-04 - Запомни меня  (3:18)(   Читать дальше...   )Жанр: Dance, EDMПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07500899CBA817E9C961BE90A1DA0EF68DAA8725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519115   (635626) от 07.07.2012
-
-VA - 5 Years Of Claremont 56 Compiled Edited & Mixed By The Idjut Boys (2012) [MP3|320 кб/с]<House, Disco, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635626.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: 01:09:42
-01. Bison - Way To La (Day)
-02. Fist Of Facts - Fugitive Vesco (Idjut Work Out)
-03. Mudd & Pollard - Vincent
-04. Mudd & Ahmed Fakroun - Drago (Idjut Edit)
-05. Smith & Mudd - Le Suivant
-06. Smith & Mudd - Hvala (Version Idjut)
-07. Mudd & Pollard - Scaffold
-08. Smith & Mudd - Shulme
-09. The Popes - Bastards (Idjut Edit)(   Читать дальше...   )Жанр: House, Disco, Nu DiscoПродолжительность: 03:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D82941522116EB2ED1689DFE6FD454B4B7C67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143447   (635507) от 18.06.2017
-
-VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJGus - Sky Passage
-02. Psychopathic - X File
-03. PhiNek - Savage
-04. Stephen Barcella - Strong(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7974AD1CE7A23B1ABC670D67A78AD67C8115DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143463   (635384) от 18.06.2017
-
-VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 Kbps] <House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635384.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Housework - Loose My Mind (Hypnotic Slide mix) (06:20)
-2. Cachar - Don't Stop The Houseparty (The Rough cut) (07:48)
-3. Cinematic - Airflow (Chillhouse mix) (07:05)
-4. Adriatic Grooves - Zoom Zone (Ibiza Flow mix) (06:25)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 06:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B072089AA96B4693CDDB53A9D31C45B7D06308
 ```
 
 https://mybot314.ru/tekegram_catalog/

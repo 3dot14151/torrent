@@ -1,3 +1,440 @@
+###  Публикация: 1579150   (338579) от 26.09.2022
+
+Франк Пурсель - Музыка Хорошего Настроения (Uplifting music) (2005) [OGG Vorbis|484 Kbps] <Jazz, Pop, Stage & Screen>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manchester et Liverpool '66
+02. Tip Toe Through The Tulips '68
+03. Adoro '68
+04. Abacachi '68(   Читать дальше...   )Жанр: Jazz, Pop, Stage & ScreenПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86AD60A79CD4FA73E5AE22891566BA626D73EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258076   (338536) от 29.10.2018
+
+VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi Angel - Johannes Linstead
+02. Hayden's Spirit - Danny Wright
+03. Greenwoods - Paul Machlis
+04. Touching Silk - Frank Stiener, Jr.(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186CF4D04FED117719D7D2917B528C8B80BA8189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258149   (338521) от 29.10.2018
+
+Muzronic Trailer Music - Дискография (2016-2017) 3CD [MP3|320 Kbps] <Soundtrack, Epic Trailer Music, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче:
+The Illume of Life (2016)
+The Saviour (2016)
+Horizon Twilight (2017)Жанр: Soundtrack, Epic Trailer Music, ScoreПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C9D91E742C46A44E33AF98BD5FD762527C2D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258160   (338514) от 29.10.2018
+
+Really Slow Motion & Instrumental Core - Existentia (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Existentia [04:20]
+02. Mechanical Heart [05:13]
+03. Eden [03:59]
+04. Roots [03:20](   Читать дальше...   )Жанр: Soundtrack, Instrumental, ScoreПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256BD3C0889C5D8FFAE6AF581A6B4CD69AE828BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074415   (338295) от 19.11.2016
+
+The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Love [00:02:54]
+02. And I Love Her [00:02:34]
+03. I Don't Know How to Love Him [00:03:25]
+04. You Are [00:03:29](   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA8740A4BE71AE4FEEBA4B44DF4C276176900B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074632   (338198) от 19.11.2016
+
+VA - Acoustic Heart: The Passion And Romance Of Acoustic Guitar Masters (1997) [FLAC|Lossless|tracks] <Acoustic, Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lee Ritenour - Waiting for You
+02. Peter White - By Candlelight
+03. David Hayes - Lisdonvarne
+04. Peppino d'Agostino - Goodbye Robbie(   Читать дальше...   )Жанр: Acoustic, Instrumental, Easy ListeningПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AAFC609CB6E63358C6D989AACAAE1FE7E95E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074412   (338190) от 19.11.2016
+
+The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Love [00:02:54]
+02. And I Love Her [00:02:34]
+03. I Don't Know How to Love Him [00:03:25]
+04. You Are [00:03:29](   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFC450EB24CCE92775D6E5DAEB5B11E30CF8A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073942   (338188) от 19.11.2016
+
+Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земля 2 (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roof of the World (00:53)
+02. Peaks of North America (01:59)
+03. The Ibex (01:41)
+04. The Himalayas (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E664C47BB975738665BFBB002B597E4FC071F966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073944   (338081) от 19.11.2016
+
+Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земля 2 (Original Television Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roof of the World (00:53)
+02. Peaks of North America (01:59)
+03. The Ibex (01:41)
+04. The Himalayas (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30C8CE9154777400D85FA1D723887BE0ACCB34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179966   (337771) от 05.11.2017
+
+Room Of Voices - Casbah (2017) [MP3|320 Kbps] <Electronic, World>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror Mirror (5:08)
+02. I Got You Inmymind (4:37)
+03. Lost off Shore (6:47)
+04. Calling Out (7:57)(   Читать дальше...   )Жанр: Electronic, WorldПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3328E50F6AE3DBF430E7C88E7965E9C6E1358C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180627   (337762) от 05.11.2017
+
+Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risen Title Theme
+02. The Beach
+03. The Beach - Fight
+04. The Island(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E00FDAF1C5A63E17E34EE3B46033F05BCF6C6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180906   (337500) от 05.11.2017
+
+VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Chicos Playeros – Bamboleo 3:29
+02. Tony Estefano – Livin’ La Vida Loca 4:01
+03. Alessia Limonta – Conga! 4:11
+04. Chateau Pop – Lambada 3:23(   Читать дальше...   )Жанр: Latin, SalsaПродолжительность: 01:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5661E638BC290CE714BA618007FB44BBD4E87EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486042   (337048) от 29.10.2020
+
+Alan Price – O Lucky Man! - The Original Soundtrack (1973/2009) Remastered, Special Edition [FLAC|Lossless|image + .cue] <Soundtrack, Rock, Blues rock, Psychedelic rock, Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_337048.jpg" />
+</div>
+
+
+###  Подробнее
+
+O Lucky Man! занимает престижное и почти единственное горделивое место среди многих попыток за последние полвека - поженить рок-музыку с кинематографом. И хотя, альбом Алана Прайса может в каком-то смысле рассматриваться как саундтрек, но сама музыка и роль Прайса в этом фильме, выходит далеко за рамки обычных функций кино.
+
+Это издание Оригинального Саундтрека вышло (   Читать дальше...   )01. O Lucky Man (2:20)
+02. Poor People (2:12)
+03. Sell Sell (4:04)
+04. Pastoral (2:14)(   Читать дальше...   )Жанр: Soundtrack, Rock, Blues rock, Psychedelic rock, PopПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89E755DC0AB2DFE1F074A64F33E0F7CAC6F6C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180676   (337011) от 05.11.2017
+
+Hans Zimmer - Hans Zimmer - Live In Prague (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337011.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Medley: Driving / Discombobulate / Zoosters Breakout
+2. Medley: Crimson Tide / 160 BPM
+3. Gladiator Medley: The Wheat / The Battle / Elysium / Now We Are Free
+4. Chevaliers De Sangreal(   Читать дальше...   )Жанр: ScoreПродолжительность: 02:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C003C0A53D25F117153A134FF5207EA2FB8A6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074758   (335938) от 20.11.2016
+
+Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars (Theme) (01:43)
+02. Mars (04:01)
+03. Daedalus (03:01)
+04. Earth (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD9C77FADBEA37B38BF1545A1FFEADE8BD425B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074759   (335843) от 20.11.2016
 
 Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -307,438 +744,6 @@ VA - Kontor Top Of The Clubs 2020.03 (2020) [MP3|320 Kbps] <House, Club House, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DBEB89A7ED6D523DFED5C9C88DF257FB1E0A5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955318   (333777) от 11.11.2015
-
-VA - Los clasicos argentinos Tango - Vol.04 (1996) [MP3|128 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Saludos
-02-Canchero
-03-Sera una noche
-04-Sentimiento gaucho(   Читать дальше...   )Жанр: TangoПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B52C4B932FA6556BB53BFCD001B4CC83ACA8A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420279   (333767) от 31.10.2020
-
-VA - Kontor Top Of The Clubs 2020.04 (2020) [MP3|320 Kbps] <House, Club-House, Deep-House>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twisted Harmonies - Can'T Get You Off My Mind [2:33]
-02. VIZE & Joker Bra feat. Leony - Paradise [2:36]
-03. Master KG feat. Nomcebo Zikode - Jerusalema [3:09]
-04. Joel Corry feat. MNEK - Head & Heart [2:46](   Читать дальше...   )Жанр: House, Club-House, Deep-House, Electronic, DanceПродолжительность: 07:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8232049F49B4738917083E84F2261F57BB23B25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955020   (333706) от 11.11.2015
-
-Заклятие долины змей - Klatwa doliny wezy (1987) [MP3|256 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maod (1:59)
-02. Gagaku (1:44)
-03. Maffia (2:21)
-04. Rituaal (3:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDD270B93EE4F1665D8EFB18AACF309BEF69848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840692   (333691) от 13.11.2014
-
-Richard Clayderman - The Ultimate Collection (2005) 3CD [APE|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Seasons: Spring (2:58)
-02. The Swan (3:06)
-03. Italian Symphony No 4 Sharp: Op 90 Allegro (3:56)
-04. Waltz In A Flat (3:13)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F14DACDFE97D8BA9EB14B5D385F0B1E234258A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331343   (333646) от 14.10.2019
-
-Michel Pépé - La montagne sacrée (Michel Pepe - La montagne sacree) (2019) [MP3|320 Kbps] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333646.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Entre terre et ciel	05:59
-2. L'appel mystique	05:48
-3. L'ascension céleste	06:00
-4. Monts et merveilles	05:41(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9728FD3488B65CFB3CFA853436D698360BEAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955423   (333602) от 11.11.2015
-
-Trevor Jones / Randy Edelman - Последний из могикан / The Last Of The Mohicans - Original Motion Picture Soundtrack (1992) [FLAC|Lossless]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (Trevor Jones) - 1:44
-02. Elk Hunt (Trevor Jones) - 1:48
-03. The Kiss (Trevor Jones) - 2:49
-04. The Glade, Pt. II (Trevor Jones) - 2:34(   Читать дальше...   )Жанр: Soundtrack, Stage & Screen, Score, Modern Classical, Epic, FolkПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A555AD25703EB8EA8B850ACE1277C5E49191FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579373   (333495) от 29.09.2022
-
-Mythos - Iridescence (1997) [OGG Vorbis|484 Kbps] <Pop, Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loneliness
-02. Sunless Sea
-03. Iridescence
-04. Planinata(   Читать дальше...   )Жанр: Pop, Electronic, New AgeПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1161BF221B3486E7F57324212D1035C644D125F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579479   (333492) от 29.09.2022
-
-Mythos - The Reality Of A Dreamer (2000) [OGG Vorbis|484 Kbps] <Electronic, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alchemy	4:39
-02. Kaleidoscope	3:31
-03. Venice	4:28
-04. Vision I	3:22(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A30C193089EA1EEF5F0EB1FAA705417A2812C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579494   (333365) от 29.09.2022
-
-Mythos - Eternity (2002) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascent	3:38
-02. Unity	4:20
-03. Del Mar	3:42
-04. Turn To Grey	3:54(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8338A87B33C0F11BB72B848864C5281AED06A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579566   (333362) от 29.09.2022
-
-Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purity	4:33
-02. Surrender	5:50
-03. Alten Mara	3:16
-04. Andalucia	4:01(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8D9AB7B103BAF63B459200D9731DDF987312C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579458   (333361) от 29.09.2022
-
-Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brazil
-02. June
-03. Sunless Sea
-04. November(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C916AA29EA87687786CF8353161A0C190B00B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258841   (333022) от 01.11.2018
-
-Dog Music - Christmas Piano Music For Dogs, Sleeping Music For Pets, Dog Music & Instrumental Christmas Music (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy To The World
-02. Silent Night
-03. The First Noel
-04. Carol of the Bells(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC95372668ECC6E1C5C75B524C710EC94D72BA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 58904   (332992) от 14.10.2019
-
-Pulp Fiction / Криминальное чтиво - Soundtrack (1994) [ape+cue+log+сканы]
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dick Dale & His Del-Tones - Misirlou (2:30)
-2. Samuel L. Jackson And John Travolta - Royale With Cheese (1:45)
-3. Kool & The Gang - Jungle Boogie (3:06)
-4. Al Green - Let's Stay Together (3:17)(   Читать дальше...   )Жанр: OSTПродолжительность: 41:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDF39CC37B55E73E2340FE4399D2F2C481AB961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 412443   (332675) от 19.11.2011
-
-Lorne Balfe & Jesper Kyd - Assassin's Creed Revelations (2011) [MP3|320 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 02:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BC1F125481516AF7C5340B807D0DB1410DC85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955601   (332526) от 12.11.2015
-
-John Powell & Lily Allen - Pan | Пэн: Путешествие в Нетландию (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Powell – Opening Overture (2:41)
-02. John Powell – Air Raid / Office Raid (1:40)
-03. John Powell – Kidnapped / Galleon Dog Fight (5:09)
-04. John Powell – Floating / Neverland Ahoy! (2:29)(   Читать дальше...   )Жанр: Саундтреки к зарубежным фильмамПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2339796E7DA87B9C8A8B3C7E1429F67CD514CF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

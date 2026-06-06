@@ -1,3 +1,90 @@
+###  Публикация: 1809358   (64751) от 30.07.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - Blue Fear (Extended Mix) 07:54
+02. Chicane - Offshore 2007 (Extended Mix) 07:52
+03. Lost Witness - Happiness Happening (Lange Extended Remix) 09:16
+04. Dj Shah - Palmarosa (Extended Mix) 08:26(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260BD97C5BC6A07DDB95D0F269DFEB5CB46BC342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809366   (64735) от 30.07.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & Susana - Shivers Feat. Susana (Extended Mix) 07:33
+02. Lange & Skye - Drifting Away Feat. Skye (Extended Mix) 07:58
+03. Vincent De Moor - Fly Away (Extended Vocal Mix) 08:21
+04. Ferry Corsten - Galaxia (Extended Mix) 07:31(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFFE09169545581526E8B1E44F65B57F9A89D05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809368   (64729) от 30.07.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren - In And Out Of Love Feat. Sharon Den Adel (Extended Mix) 06:04
+02. Bbe - Desire (Three N' One Extended Remix) 08:57
+03. Lost Witness - Happiness Happening (Lange Extended Remix) 09:16
+04. Mauro Picotto - Komodo (Save A Soul)Жанр: Trance, Progressive, ElectronicПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A474784A1372764745CB67C78ED7F970D715350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810033   (64558) от 02.08.2025
 
 VA - A State of Trance Radio Top 50 - 2025, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
@@ -640,88 +727,6 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DF024CBFABF4F2C1CAF7DB9CDE9551C228127B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802290   (14405) от 16.06.2025
-
-4 Strings - Diving (2002) [FLAC|Lossless|tracks + .cue] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Diving (Vocal Radio Edit) 3:09
-02 Diving (Minimalistix Vocal Mix) 6:57
-03 (Take Me Away) Into The Night (RMB Vocal Mix) 6:39Жанр: TranceПродолжительность: 16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6EE6F45BD3628956927A3090FF8A5F83F69577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804121   (13264) от 27.06.2025
-
-Yunus Guvenen - Red Pilot / Ways Of Life (2001) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Red Pilot (Original Mix) 8:54
-02 Ways Of Life (Original Mix) 7:32Жанр: Progressive TranceПродолжительность: 16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39F72466F2F61845D1C4E9578AE37A5FA3F98DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805797   (12130) от 08.07.2025
-
-Jon O'Bir - Ascendancy (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ascendancy (Original Mix) 7:54
-02 Ascendancy (Alex M.O.R.P.H. & Woody van Eyden Remix) 8:14Жанр: TranceПродолжительность: 16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9C6089EA26F51712E29EE3DE18DA15A895C058
 ```
 
 https://mybot314.ru/tekegram_catalog/

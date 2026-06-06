@@ -1,3 +1,61 @@
+###  Публикация: 1545790   (609503) от 22.04.2022
+
+VA - Sax for Sex, Vol. 2 (2013) [AAC|~317 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzadelic - Bridge to the Devine (Golden Sunset Mix) (5:22)
+02. Royspop - I Call My Soul (Climax Saddle Mix) (4:31)
+03. Bent Over - Salamander (Groovy Obsession Mix) (4:25)
+04. Burning Lipps - Near or Far (Erotic Beach Love Mix) (4:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC41629892E4ABBB44B971D88EEF36EABEFFF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545787   (609497) от 22.04.2022
+
+VA - Sax for Sex, Vol. 1 (2013) [AAC|~311 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cooltrane - Capture the Sun (Ibiza Del Mar Mix) (4:55)
+02. Swinging Sunlight - Flying in Circles (Balearic Chill Guitar Mix) (4:57)
+03. Deechiller - City Lights (Soul 2 Sax Mix) (5:09)
+04. Jazz L'amour - Let Me Be Your Fantasy (La Nuit Voyage Mix) (5:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584A88C21D72DBB063AEA246B90A4D4D94396E2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147370   (609190) от 02.07.2017
 
 Жмот / Radin ! (2016) BDRip [1080p] ATV
@@ -638,61 +696,6 @@ VA - Deep Skin Vibes (Perfect Time To Relax), Vol. 2 (2022) [AAC|~318 Kbps] <Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D0B2D79C81C95C6102E6A45C1A35996A730B88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545529   (606126) от 24.04.2022
-
-VA - Vocal Trance Hits 2022, Vol. 1 (2022) [AAC|~330 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren, Sam Gray - Human Touch (Club Mix) (2:28)
-02. Roger Shah, Sian Evans - Hide U (Jerome Isma-Ae 2022 Remix) (4:14)
-03. Avira, Sam Martin - Change My World (4:00)
-04. Chicane - Sailing (Back Pedal Brakes Remix) (3:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A80B571DA56335F26F7307B47FA95930C729401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805693   (605868) от 17.07.2014
-
-Всё и сразу  (2013) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тима и Дэн — друзья-неудачники из провинциального городка. Учеба позади, работать не тянет, девушек нет. На пути к мечте (выбиться в люди) и в надежде получить всё и сразу (без особого напряга) парни берутся выполнить задание местного бандюка и отправляются на дело, прихватив с собой автослесаря Жору, такого же полного лузера.Жанр: комедия, криминалПродюсер: Александр Котелевский, Андрей Новиков, Дмитрий НелидовВ ролях: Никита Ост, Антон Шурцов, Александр Паль, Юлия Хлынина, Артем Костюнёв, Андрей Муравьёв, Александр Шаляпин, Андрей Галактионов, Игорь Тарасевич, Ольга ВозоваяПеревод: Не требуетсяПродолжительность: 01:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FCD606882F68CAB2704BC7A9033B15EB30F909
 ```
 
 https://mybot314.ru/tekegram_catalog/

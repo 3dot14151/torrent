@@ -1,3 +1,65 @@
+###  Публикация: 723207   (360247) от 16.11.2013
+
+Deuter - Dreamtime (2013) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Harlequin and Pierrot (6:45)
+02. - Shaman Flight (8:40)
+03. - Moving Seagrass (6:04)
+04. - Mon Coeur (6:38)(   Читать дальше...   )Жанр: Meditative, New AgeПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051E00912CE1A385ADA534B20DF45EF97D284E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577181   (360204) от 18.11.2012
+
+Chris Spheeris - Maya (2012) [FLAC|Lossless]<New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_360204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghali
+02. Lanilei
+03. Sadoor
+04. Narabi
+05. Kradeesh
+06. Soulana
+07. Bata
+08. ShastiЖанр: New Age, WorldПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178514   (356119) от 28.10.2017
 
 Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
@@ -687,64 +749,6 @@ VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:186CF4D04FED117719D7D2917B528C8B80BA8189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419989   (335712) от 30.10.2020
-
-Jim Brickman - Joy (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Drummer Boy
-02. Lights Of Christmas
-03. The Twelve Days Of Christmas
-04. Shades Of White(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAD3FB7DA8AB5931E43E0074C587BCD17393720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420027   (335616) от 30.10.2020
-
-Jim Brickman - Christmas Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Brickman - I'll Be Home For Christmas
-02. Winter Wonderland
-03. O Tannenbaum
-04. Snowflake(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F2DD76FA5FE2420CA2B1BBF439F1F07DCA5519
 ```
 
 https://mybot314.ru/tekegram_catalog/

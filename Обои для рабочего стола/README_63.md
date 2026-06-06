@@ -1,3 +1,55 @@
+###  Публикация: 950638   (367759) от 27.10.2015
+
+Обои - Computer Desktop Wallpapers Collection 1356 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые обои на различные темы.Формат: JPGРазрешение файлов: 1680x1050 - 2880x1800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19400B7717CCB1B937D30AC8A57C3DC11AC30BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575561   (366569) от 16.11.2012
+
+Nature HD Wallpapers (14.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD40664B6308B674C977DE5691849996F987132E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576276   (366564) от 16.11.2012
 
 Abstract Wallpapers (16.11.12) [Wallpapers]
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7507892B19CBDAF6510D3A54B68DA2CF15501FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071807   (356475) от 11.11.2016
-
-Обои - Wallpaper collection 2016 - Other 1920x1080 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев с разных сайтов на разную тематику.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE52A2C9EAC4231A2A4564F1C4610897C005830C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577970   (355990) от 20.11.2012
-
-Nature Wallpapers (19.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890DB8427936DDDBA57459704F1351857223E1BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

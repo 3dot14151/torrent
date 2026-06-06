@@ -1,3 +1,90 @@
+###  Публикация: 1619525   (249652) от 16.03.2023
+
+VA - Romantic Collection: Golden 50s (2000) [OGG Vorbis|480 Kbps] <Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Laine - Sixteen Tons
+02. The Andrews Sisters - Tico-Tico
+03. Doris Day - Que Sera, Sera
+04. Paul Anka - Tonight My Love, Tonight(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92931280A813A7F9E6EB16EA7396C891DF0AD2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564908   (249577) от 21.07.2022
+
+Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002,  Break Records [MP3|320 Kbps] <Euro-Disco, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up, Action [4:44]
+02. Go Go Yellow Screen [6:01]
+03. The Beauty & The Beast [5:06]
+04. Don't Stop [4:38](   Читать дальше...   )Жанр: Euro-Disco, Synth-PopПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A62B52CED8DF56282B1DA1B52B79812A5C82A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620501   (249355) от 20.03.2023
+
+VA - Let's begin from the start (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conan Gray - Yours
+02. Astrid S - Hurts So Good
+03. Sam Smith - I'm Not The Only One (Sped Up)
+04. Lady Antebellum - Need You Now(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC487A93E1D9412878F528C3A001B82194240EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620702   (246016) от 21.03.2023
 
 VA - Italo Dance Classics Volume 1 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Italo-Disco>
@@ -658,93 +745,6 @@ VA - Slay Queen! (2023) [MP3|320 Kbps] <Pop, Rock, RnB,>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F4FC3CD76D23C60963A6B330691FA4DC8817C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360526   (242758) от 15.02.2020
-
-VA - 100 Greatest Throwback Songs (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242758.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Jess Glynne - Hold My Hand (3:47)
-2.Jason Derulo - Trumpets (3:37)
-3.Flo Rida - Whistle (3:44)
-4.Bruno Mars - Treasure (2:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256BA6FEC0259C938A2F23A43E35C65D972D4BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624537   (242423) от 06.04.2023
-
-VA - Mega Hits 2014 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OneRepublic - Love Runs Out
-02. Katy Perry - Dark Horse
-03. Avicii - Addicted To You
-04. Sam Smith - Stay With Me(   Читать дальше...   )Жанр: PopПродолжительность: 03:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D98AE3D7510AE76C5AC85BBB82EA0D5F86721B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624549   (242255) от 07.04.2023
-
-VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-ha - Take on Me
-02. Buster Poindexter - Hot Hot Hot
-03. Billy Ocean - Caribbean Queen (No More Love on the Run)
-04. Bangles - Walk like an Egyptian(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E8271EE0E27BA693CD0787AC51873CF41C4539
 ```
 
 https://mybot314.ru/tekegram_catalog/

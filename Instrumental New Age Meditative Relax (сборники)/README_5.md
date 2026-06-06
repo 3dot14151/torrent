@@ -1,32 +1,3 @@
-###  Публикация: 1018295   (755683) от 20.05.2016
-
-VA - Piano and Chill: Piano for Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ludovico Einaudi - Ora
-02. Luke Woodapple - The Awakening - Piano Solo
-03. Roland Orzabal - Mad World
-04. Max Richter - H in New England(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DB7E4BA3E8925793C3C93FE3316C7051A74536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522891   (755060) от 09.01.2022
 
 Dancing Fantasy - Compilation (2020) [MP3|320 Kbps] <Instrumental>
@@ -742,6 +713,35 @@ VA - The LoungLegends play Barry Manilow (2011) [MP3|320 kbps]<Easy Listening, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3AFD9DA21E1FF38960D40EEB65FD927FBC2D29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 192997   (720810) от 04.08.2020
+
+VA - Dream Collection. Vol.1 (1996-1999) [MP3|192-320 kbps]<Dream dance>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taucher - Infinity (Phase I) 		(04:18)
+02. Chicane - Saltwater 			(03:26)
+03. Dance 2 Trance - P.ower of A.merican N.atives (05:55)
+04. DJ Dado - X-Files (paranormal activity mix) (06:38)(   Читать дальше...   )Жанр: Dream danceПродолжительность: 03:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84ACBF083B167B0CFFE6C814C5A548261E29879
 ```
 
 https://mybot314.ru/tekegram_catalog/

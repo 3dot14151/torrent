@@ -1,3 +1,119 @@
+###  Публикация: 1648561   (231067) от 23.07.2023
+
+Landscape - Landscape a Go-Go (The Story of Landscape 1977-83) (2023) 5CD, Remaster [MP3|320 Kbps] <New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Excursions 2 Other Versions
+01. Einstein a Go-Go (Einstein on the Floor 2023 Remix) [00:02:34]
+02. One Rule for the Rich (UK Cassette Album Mix) [00:04:17]
+03. Japan (12-Inch Version) [00:05:07](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 05:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE32FBB761D9362EEAB4A64DEBF3CF66872FFE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649782   (228540) от 29.07.2023
+
+Brian Hamilton - Metro Man (1984) LP [MP3|320 Kbps] <Rock, New Wave, Lo-Fi, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Metro (Metro Man) (5:35)
+02. I Can't Stand It (2:55)
+03. Pleasurepain (3:47)
+04. Space Dancing (4:31)(   Читать дальше...   )Жанр: Rock, New Wave, Lo-Fi, ElectroПродолжительность: 00:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED239190475CB134DC124439FBA534BD937657B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342077   (227221) от 30.11.2019
+
+Harry Thumann - Andromeda (1982) LP [MP3|320 Kbps] <Electronic, Rock, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda (7:50)
+02. I'm Happy To Be In The Sun (5:32)
+03. Out Of Tune , Welcome Back, Jolette (7:28)
+04. Bitch (3:38)(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842578BB8B8146B5766DA4A3924198321AB9C4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513166   (227212) от 27.11.2021
+
+VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio Moroder - Chase (3:51)
+02. U2 - New Year's Day (3:57)
+03. Vangelis - Pulstar (3:51)
+04. Alan Parsons - Mammagamma (4:30)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B966DE0A8FE6C976B444A7162B680857A9012E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584239   (225356) от 18.10.2022
 
 Desireless - Voyage, Voyage - Greatest Hits (2003) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop>
@@ -629,122 +745,6 @@ Cyberwalker - Future Waves, Vol. 1-2 (2019-2022) 2CD [MP3|320 Kbps] <Synthwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:898C6DBC083A3C9D2CB2C8B2E7F854A53CF1C086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665569   (182152) от 30.09.2023
-
-Gunship - Unicorn (2023) [MP3|320 Kbps] <Synthwave, Darksynth, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Monster in Paradise (feat. Milkie Way, Dave Lombardo, Tyler Bates) [00:05:30]
-02 - Taste like Venom [00:03:26]
-03 - Empress of the Damned (feat. Lights) [00:03:50]
-04 - Tech Noir 2 (feat. John Carpenter, Charlie Simpson) [00:05:25](   Читать дальше...   )Жанр: Synthwave, Darksynth, New WaveПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8F377161D9EEBE1F29C3EEB274DF709B00D9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593465   (179908) от 28.11.2022
-
-Neuroklast - 2 Albums (2021-2022) [MP3|320 Kbps] <Electro-Industrial, Cyberpunk>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forlorn [00:04:45]
-02. Anima [00:04:27]
-03. Netrun [00:03:10]
-04. Simulation Whore [00:03:15](   Читать дальше...   )Жанр: Electro-Industrial, CyberpunkПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E509D0951746E0420A288D2B9E0F5D2D9619D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666064   (178929) от 05.10.2023
-
-Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Simply the Best Hit [00:04:56]
-02 - Through the Flickering Stars [00:04:41]
-03 - From the Morning to the Dark [00:04:11]
-04 - Lonely Moon [00:03:53](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C833B48E9FD29EB0ED2EBA688F6178E9F23C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666218   (177438) от 07.10.2023
-
-Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - TELEX EP1
-2022 - TELEX EP2
-2023 - TELEX EP3Жанр: Disco, Synth-pop, House, TechnoПродолжительность: 3 CD, 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66296CC0947E27760868E89205615DC62D3C2B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

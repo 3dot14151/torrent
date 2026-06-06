@@ -1,3 +1,61 @@
+###  Публикация: 1422378   (304168) от 11.11.2020
+
+Tantric Music - Tantric Art of Love - New Age Music 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting for the Night (3:53)
+02. Sex Evolution (3:32)
+03. Erotic Rituals (3:16)
+04. Empire of Two (3:32)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EBD3892037E53204C6FE29BED540EC3BEF2C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423003   (304166) от 11.11.2020
+
+Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Path of Peace (8:04)
+2. Sunlight Through Trees (7:40)
+3. Raindrops on Leaves (6:56)
+4. Temples in the Mist (10:00)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B09BC2961379726796C7F3C25903647375705F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961110   (303364) от 30.11.2015
 
 Kevin Kern - Always Near / A Romantic collection (2014) [FLAC|image+.cue]<New Age,Piano>
@@ -165,6 +223,35 @@ Tron Syversen - Piano Poems (2009) [FLAC|Lossless|tracks + .cue] <New Age, Relax
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B16A0134B501CBBD7428E769096345AA4AEAEC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333848   (296822) от 28.10.2019
+
+Tron Syversen - Peaceful Journey (2011) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Dream (5:32)
+02. Rivers (6:08)
+03. The Beginning (7:32)
+04. Amorous (5:39)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF403CC86D2DD395B45643572858A18B6940EF33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,93 +745,6 @@ Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA27CDB31B44A33BD74DD6B3A71EDF920C7CADF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336947   (274760) от 10.11.2019
-
-Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ceriam 02:44
-2. Breath In Yoga Sounds 03:00
-3. Inhalar Exhalar 03:04
-4. Amrita 02:54(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514A64ECD66D29204E9D2FE132B98B30AAE5B2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336706   (274580) от 10.11.2019
-
-Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Away from Home 05:16
-2. Open Skies 04:00
-3. As Beautiful as You	04:44
-4. Hope in Sight	04:35(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7F66C2438D59F0D623A5AA06F5885F6C28286E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431150   (273462) от 11.11.2019
-
-Kevin Kern - Enchanted Piano (2011) [APE|Lossless]<New Age ,Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kevin Kern - Enchanted Piano (2011)
-Год: 2011
-Жанр: New Age , Piano
-Продолжительность: 00:43:00(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44CC487DEC53CFF8EF2C0622E28DFF963D56E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

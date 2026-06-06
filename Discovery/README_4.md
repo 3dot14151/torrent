@@ -240,7 +240,7 @@ Discovery. Беар Гриллс: Как остаться в живых / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_809553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_809553.jpg" />
 </div>
 
 

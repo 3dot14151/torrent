@@ -1,3 +1,32 @@
+###  Публикация: 1028988   (684536) от 25.06.2016
+
+Gloomy Grim - The Age Of Aquarius (2016) [MP3|320 кб/с] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684536.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Rise Of The Great Beast
+2. Germination
+3. A Lady In White
+4. Beyond The Hate(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C648C854D249ED61EC7A6A3A19123689E6BD181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289671   (684460) от 17.03.2019
 
 Rienaus - Aamutahdelle (2014) [MP3|320 Kbps] <Black Metal>
@@ -717,35 +746,6 @@ Chelsea Grin - Self Inflicted (2016) [MP3|320 Kbps] <Deathcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:524E5D42545AF15C9545018DFDA02CA799A41CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030538   (674563) от 30.06.2016
-
-Lanfear - The Code Inherited (2016) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Delusionist
-2. The Opaque Hourglass
-3. Evidence Based Ignorance
-4. The Code Inherited(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3712C63E123C6227E780A5EFD27F612633A31EB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

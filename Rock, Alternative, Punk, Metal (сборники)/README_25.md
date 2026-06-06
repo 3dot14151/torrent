@@ -1,3 +1,148 @@
+###  Публикация: 1230253   (617283) от 11.06.2018
+
+VA - Evangelion: Metall Collection (2018) [MP3|320 Kbps] <Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617283.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fates Warning - Still Remains
+002. Shadowlynx - Attila
+003. Integral - Blank Claustrophobia
+004. Malet Grace - Commotion of Frailty(   Читать дальше...   )Жанр: MetallПродолжительность: 10:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED6667A45C26F00B0D99E59A9C45B72716F6B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910985   (615654) от 23.06.2015
+
+VA - Мир русского рока 100 песен (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кино — Группа крови
+02. ДДТ — Что такое осень
+03. Аквариум — Город золотой
+04. Машина времени — Поворот(   Читать дальше...   )Жанр: RockПродолжительность: 06:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0B7089853C7AEDA06D6C9B9FCA20A4F5445980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230547   (613947) от 13.06.2018
+
+VA - Tragic Heroes: Hard Rock Legendary Sounds (2018) [MP3|320 Kbps] <Rock, Hard Rock, Alternative, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613947.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marilyn Manson - The Beautiful People
+002. Monster Magnet - Space Lord
+003. Bai Bang - Crazy Night
+004. Atomic Rooster - I Can't Take No More(   Читать дальше...   )Жанр: Rock, Hard Rock, Alternative, MetalПродолжительность: 10:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13832FB16407C67DE1C080A651AB9FDD7D54201D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230756   (612178) от 14.06.2018
+
+VA - Sound Of 70's Rock (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZZ Top - Tush 2:14
+02. Warren Zevon - Werewolves Of London 3:28
+03. Alice Cooper - Schools Out 3:30
+04. Faces - Miss Judys Farm 3:40(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747D9AEE875CE50751259C53640B5CA05250B60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912001   (610562) от 26.06.2015
+
+VA - Neue Deutsche Harte (1999-2015) [MP3|128-320 кб/с]<Industrial-Metal, Folk-Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyler Milchmann - Grossmutter
+02. Heldmaschine - Radioaktiv
+03. Stahlmann - SŸüchtig
+04. Ruoska - Pure minua(   Читать дальше...   )Жанр: Industrial-Metal, Folk-MetalПродолжительность: 03:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312DA65FC057E04064FEC13F0A896CEC45E4B466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910775   (610309) от 26.06.2015
 
 VA - Золотые хиты русского рока (1991 - 2003) [MP3|128-320 кб/с]<Rock>
@@ -606,151 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A0B33071DC7C1B5BBE71E38B1FCD0A99543FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857875   (589443) от 11.07.2015
-
-VA - Metal Duets Vol. 01 - 11(2015) [MP3|320 кб/с]<Metal>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raintime - Another Transition (Feat. Lars F. Jensen) [00:04:25]
-02. Heavenwood - Luna (Feat. Kai Hansen) [00:07:29]
-03. Fairyland - Assault On The Shore (Feat. Georg Neuhauser) [00:05:09]
-04. Damageplan - Fuck You (Feat. Corey Taylor) [00:03:08](   Читать дальше...   )Жанр: MetalПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D024FD162EFE26F5553D3973781292EAE9011B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551686   (588916) от 18.05.2022
-
-VA - New Rock 2022 [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588916.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pabst - Locker Room (3:43)
-002. Machine Gun Kelly,blackbear - make up sex (feat blackbear) (2:02)
-003. DON BROCO - Fingernails (4:12)
-004. Adam Jensen - Chaos (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 05:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC950E1693927CB66D2F7829BEF47B66431855B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300625   (587952) от 08.05.2019
-
-Judas Priest - Metal Gods (2019) (2CD Compilation) [MP3|320 Kbps] <Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas Rising
-02. Jawbreaker
-03. Love Zone
-04. Leather Rebel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3372A8C36E97233879ABEF9E7F6CBD0D699263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552049   (587700) от 20.05.2022
-
-Владимир Ткаченко и Виктор Молчанов - Double Fantasy (2008) [MP3|320 Kbps] <Rock, Acoustic>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Buy Me Love (4:57)
-02. All You Need Is Love (3:34)
-03. In My Life (2:39)
-04. The Night Before (2:39)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56086224A07418ECDEA39741123E37F022B4632E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551850   (586678) от 21.05.2022
-
-VA - I Prefer Rock (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярные песни текущего года и хиты весеннего сезона, композиции мастеров rock и хард рок музыки а так же недавно обозначившихся новичков в жанре alternative и rock indie – все это вы найдете в очередном разно жанровом микс-сборнике "I Prefer Rock".001. 64 Nudos - Desde Las Cloacas
-002. Lazuli - L'homme Volant
-003. Maroon 5 - Convince Me Otherwise
-004. Leafblade - The Goddess(   Читать дальше...   )Жанр: Rock, Alternative, IndieПродолжительность: 08:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917EF626C41CD85A6792EA9F0689216BE477530D
 ```
 
 https://mybot314.ru/tekegram_catalog/

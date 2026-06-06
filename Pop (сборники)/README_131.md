@@ -1,25 +1,25 @@
-###  Публикация: 1764679   (5225) от 30.08.2025
+###  Публикация: 1765598   (34324) от 13.12.2024
 
-Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
+VA - Awesome 90's Hits (2024) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heart Keeps Beating (After The Thunder 2012)
-02. Always (Good Love 2019)
-03. Always On My Mind (Obsession 2008)
-04. Отпусти и Лети (Love Is 2021)(   Читать дальше...   )Жанр: Soul, PopПродолжительность: 05:10:03
+01. Madonna - Vogue (05:17)
+02. Roxette - Joyride (04:23)
+03. a-ha - Crying in the Rain (04:22)
+04. Pet Shop Boys - Go West (2003 Remaster) (05:04)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:35:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCFFA089E5E8BAF43EEE80DE4FB009ECCAE95598
+magnet:?xt=urn:btih:22AB0F4A480B62F6245A939541FA8E3071D66728
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814229   (4303) от 05.09.2025
+###  Публикация: 1765498   (34278) от 13.12.2024
 
-Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Новогодние песенки для малышей (2024) [MP3|320 Kbps] <Kids, Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Amore
-02 - Te Busco
-03 - Amore Mio
-04 - Reste Un Peu(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:20:44
+01. Алина Киямова - Здравствуй Новый Год [02:12]
+02. Галина Килеева - Зимний Праздник [02:18]
+03. Киямова Алина - Белая Зима [02:44]
+04. Мария Басова - Теремок [01:53](   Читать дальше...   )Жанр: Kids, PopПродолжительность: 01:08:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A3C96500EE2A7241E96742C90B1ECDEA91EF65C
+magnet:?xt=urn:btih:B11884EA421C750C1B421189F9873BB6B5A3A9E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817596   (3309) от 11.09.2025
+###  Публикация: 1766226   (33895) от 17.12.2024
 
-Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Новогодняя Ночь (2024) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Heartbeat
- 02 - Why Did You Say Goodbye
- 03 - My Love
- 04 - L’amour Nous(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:03
+01. Беларусинки - Новогодняя Овечка [02:33]
+02. Божья Коровка - Застольная (Ностальгия Версия) [03:47]
+03. Игорь Николаев, Юлия Проскурякова, Вероника Николаева - Я Люблю Эту Зиму [03:05]
+04. Натали - Будут Танцы [03:21](   Читать дальше...   )Жанр: PopПродолжительность: 05:01:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCB41EBD1B81797DC9E55727DAA70786AD3DB524
+magnet:?xt=urn:btih:A93807AAD477C519CF330C2C697FECCB834F8B94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817789   (2647) от 15.09.2025
+###  Публикация: 1768559   (32967) от 26.12.2024
 
-Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+VA - Новогодняя ночь хитов (2024) [MP3|320 Kbps] <Pop, Christmas>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Ogni Momento Con Te (Version 2)
- 02 - Per Sempre, Amore Mio
- 03 - L’amore È Morto
- 04 - Ti Amo(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:08:11
+001. Александр Добронравов, Варвара - Белая зима [03:24]
+002. Альфия Тагирова - Полёт В Новый Год [02:09]
+003. Игорь Николаев, Юлия Проскурякова, Вероника Николаева - Я люблю эту зиму [03:05]
+004. Константин Кожевников - Девушка Хочет Дедушку (feat. МПВ Бэнд) [03:10](   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 05:20:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:398AD7A6BB3AF9C7C672939AD12736DF7D7EC902
+magnet:?xt=urn:btih:25B7985585E924566B4C95FDAD7D0050532D7DA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817722   (2646) от 15.09.2025
+###  Публикация: 1768759   (32879) от 27.12.2024
 
-Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+VA - 100 Пудовый хит (2024) [MP3|320 Kbps] <Pop, Rock>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Neverending Story
- 02 - Moonlight Whispers
- 03 - Love in Bloom
- 04 - Frozen Tears(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:04:11
+001. Bryan Adams - Back To You
+002. Полина Гагарина - Кукушка
+003. Depeche Mode - Ghosts Again
+004. Кристина Орбакайте - Будь со мной(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 12:45:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96270272C507A69EE491FB395ABFBF7E811D633F
+magnet:?xt=urn:btih:1143A6697BF2E034B1E7AAEF574949C0EB6C7CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818286   (2644) от 15.09.2025
+###  Публикация: 1770054   (32445) от 31.12.2024
 
-Sofia Bellini - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+Adriano Celentano - Compilation (1958-2021) [MP3|320 Kbps] <Pop, Disco, Rock 'n' Roll>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Con Te, Sono a Casa (Club Version)
- 02 - L’estate Addosso
- 03 - Solo Io
- 04 - Giochi Di Cuore(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:10:57
+01. Prisencolinensinainciusol (& Mina) (Le Migliori 2016)
+02. Ti Penso E Cambia Il Mondo. live (& Gianni Morandi) (Adriano (Adriano Live-Arena di Verona 2012) 2013)
+03. Solo Da Un Quarto D' Ora. live (Il Cuore, La Voce 2001)
+04. A Un Passo Da Te (& Mina) (Le Migliori 2016)(   Читать дальше...   )Жанр: Pop, Disco, Rock 'n' RollПродолжительность: 14:19:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A92E96B1683480C41DDF3D79E598F2F6CA3011D1
+magnet:?xt=urn:btih:117734D703082133F6C7F01F2BF5C97619B2482B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817408   (2630) от 15.09.2025
+###  Публикация: 1688242   (32444) от 31.12.2024
 
-Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+Владимир Захаров (Рок-Острова) - Синглы (2023-2024) [MP3|320 Kbps] <Pop, Pop Rock>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Borrowed Kisses
- 02 - Always Yours
- 03 - True Love Forever
- 04 - It's Magic Tonight(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:39:26
+01. Она так любила дождь (3:32)
+02. Ты сама так хотела (3:48)
+03. На Рок-Островах (3:24)
+04. Сколько раз (4:11)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 02:56:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32773D72484D4A72230BD327F875B6A9074A0FE4
+magnet:?xt=urn:btih:A7A783E1413AD4E074A825CA095761C293EA3D24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818115   (2618) от 15.09.2025
+###  Публикация: 1770623   (32254) от 02.01.2025
 
-Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+VA - Свежий Русский Хит от ALEXnROCK часть 17 (2025) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Can't Stop This Love Inside (C.C.Catch - I Can Lose My Heart Tonight)
- 02 - Midnight Heartbeat
- 03 - Baby, Baby, Hold Me 2 (Modern Talking - Cheri Cheri Lady)
- 04 - You're My Heaven (Alternate Version) Bad Boy Blue - You're a Woman(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 00:36:37
+Составляя очередную часть сборника и перекапывая гигобайты муз материала в поисках интересных песен, я наблюдаю как меняется навязанная мода. От мямлей и подросткового блеяния перешли на то, про что Виктор Цой когда то спел в песне Транквилизатор 😊 И ещё появилась такая дичь в поп звучании, как дисторшн. Это сильный перегруз звука, в результате людям с нормальным (   Читать дальше...   )01. Айки - Лайками
+02. W24 - Белая ночь
+03. Alenalittlestar - Давайте танцевать
+04. Павел Воля - Действуй(   Читать дальше...   )Жанр: PopПродолжительность: 03:30:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF5ED598F293968B3A6D491A1C60A3710BA49EF0
+magnet:?xt=urn:btih:8F2FE44BA1FFC8913C06E44494A0D63D294760DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817866   (2612) от 15.09.2025
+###  Публикация: 1771431   (31775) от 06.01.2025
 
-Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+VA - Disco Riviera (2025) [MP3|320 Kbps] <Disco, Eectronic>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Numero Uno
- 02 - Pasta Con Te (Dream Version)
- 03 - Non Mi Amava Più (Club Version)
- 04 - Bella Bavaria(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:06:45
+01. Hard Ton & Irregular Disco Workers - Dimmi Di Si (6:54)
+02. Comme Un Coeur - 1000 Miles De Jamais Vu (4:42)
+03. Palermo Disco Squad - After All These Tears (5:22)
+04. Fred Ventura & Stefano e Bene - All for You (6:05)(   Читать дальше...   )Жанр: Disco, EectronicПродолжительность: 06:45:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0697099B1E10B7126623E25EA8FABA2B1ACB505
+magnet:?xt=urn:btih:F9E50B7DA7DEDC4C0F042B96EDE946D7307D5440
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818850   (2000) от 19.09.2025
+###  Публикация: 1771563   (31741) от 07.01.2025
 
-Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+VA - Лучшие песни Love Radio за 2024 год (2025) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - It's Your Fault
- 02 - More Than Words
- 03 - Good Night My Darling
- 04 - Endless Love(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:07:06
+001. Kygo feat. Ava Max - Whatever (2:58)
+002. Alan Walker feat. Daya - Heart Over Mind (3:09)
+003. R3hab feat. VIZE & JP Cooper - Jet Plane (2:58)
+004. Юлия Паршута - КРИШНА (3:04)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:06:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1F8CDE6E794897F0DC720E0DB097C7FA3342509
+magnet:?xt=urn:btih:B3C0AD1EAD734E093107799F23D88E0ED0F02067
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818876   (1974) от 19.09.2025
+###  Публикация: 1771871   (31593) от 08.01.2025
 
-Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco, Vocal, Other>
+Robbie Williams - Compilation (1996-2022) [MP3|320 Kbps] <Pop rock, Soft rock, Electronic dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Neon Neural City
- 02 - Library of Starlight
- 03 - Neural Highways
- 04 - Stellar Synapse(   Читать дальше...   )Жанр: Electronic, Vocal, Disco, Euro-Disco, Vocal, OtherПродолжительность: 01:17:55
+01. Supreme (Sing When You're Winning 2000)
+02. No Regrets (I've Been Expecting You 1998)
+03. Love Somebody (Escapology 2002)
+04. Lovelight (Rudebox 2006)(   Читать дальше...   )Жанр: Pop rock, Soft rock, Electronic danceПродолжительность: 07:30:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F6FFAEABD6E64CD0B74A10CA721F45A1FACC263
+magnet:?xt=urn:btih:E37349530CDC5463C36BE4E0C286DA149741520D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818888   (1973) от 19.09.2025
+###  Публикация: 1773242   (30729) от 16.01.2025
 
-Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+Marius M.21 - in Memory (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Run
- 02 - You Again
- 03 - Love is Stronger
- 04 - In the Rain(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:38
+01. Angels In The Night (5:00)
+02. Another World (4:40)
+03. Apocalypse (5:38)
+04. Back To Disco (3:27)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 03:19:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F114EC9EB480812B3064191C71BC54FC3302A23B
+magnet:?xt=urn:btih:FE09ED3F5E78B52B2A55392E6992FA06DB91BF74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819574   (1184) от 24.09.2025
+###  Публикация: 1774040   (30563) от 18.01.2025
 
-Amanda Lear - Premium Playlist (1976-2011) [MP3|320 Kbps] <Pop, Dance, Disco>
+VA - Зима на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alligator {I'am A Photograph, 1977-2}.mp3
-02. Alphabet (Prelude In C By J.S. Bach) {The Collection, 1998}.mp3
-03. Alter Ego (Part 2) {Greatest Hits, 2003}.mp3
-04. Always On My Mind (Psychology Mix) {Brief Encounters Reloaded, 2010}.mp3(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 06:27:35
+01. Coldplay feat. Little Simz & Burna Boy & Elyanna & Martina Stoessel - We Pray (3:53)
+02. Люся Чеботина - ФАРАОН (2:39)
+03. Bella Poarch - Sweet Delusion (2:52)
+04. ANNA ASTI - Топит (3:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:02:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8B2F5EB0D574B6D750C3C1E39C1B9312BE7F14F
+magnet:?xt=urn:btih:E222166F26B09B297FD19998A1C817D9CC53E758
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818887   (1182) от 24.09.2025
+###  Публикация: 1775227   (29786) от 25.01.2025
 
-VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|320 Kbps] <Pop, Dance, Folk>
+Euromartina - Part 2 compilation (2025) [MP3|320 Kbps] <Eurodisco, Eurodance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. #Mallorcadassindwir - Mallorca Das Sind Wir.mp3
-002. (Dis)Amore - Conta Su Di Me.mp3
-003. (G)I-Dle - Oh My God.mp3
-004. 1Tak - I Don't.mp3(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 25:21:17
+01.  Forever in Love
+  02.  Rivers of Babylon
+  03.  Italian Dream
+  04.  Wind of Changes(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 00:41:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D603D4AC97B14318A5E4C3D6A3724C6EDC08FFE6
+magnet:?xt=urn:btih:6BFE5DA52BD537C2DB6EC76DD9CD10FFAB442964
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819584   (1170) от 24.09.2025
+###  Публикация: 1775359   (29692) от 26.01.2025
 
-Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Electronic Dance Music>
+Bryan Ferry & Roxy Music - Compilation (1972-2018) [MP3|320 Kbps] <Art rock, Pop rock, Sophisti pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 74 is the New 24 {Deja Vu (Jap Ed), 2015}.mp3
-002. A Whiter shade of pale - Munich Machine {Giorgio Moroder & Co - Greatest Hits, 1996}.mp3
-003. Another Way (Instrumental) {Another Way, 1988}.mp3
-004. Another Way {Another Way, 1988}.mp3(   Читать дальше...   )Жанр: Euro Disco, Electronic Dance MusicПродолжительность: 10:10:04
+01. Avalon (Avalon 1982)
+02. Dance Away (Manifesto 1979)
+03. A Song For Europe (Stranded 1973)
+04. Angel Eyes (Manifesto 1979)(   Читать дальше...   )Жанр: Art rock, Pop rock, Sophisti popПродолжительность: 06:27:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F92D6ED05DAEFCB59C75DB1A33E7AE6B3E234721
+magnet:?xt=urn:btih:46592EE72C9E0BEEA850C4B91C51D2A6F1A89C92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819585   (1138) от 24.09.2025
+###  Публикация: 1775664   (29490) от 28.01.2025
 
-Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tango Nuevo>
+VA - National Pop Dance Music Vol.97 (2025) [MP3|320 Kbps] <Pop, Dance, Folk>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Allerdings Otros Aires {Dos (L), 2007}.mp3
-02. Amor O Nada {Perfect Tango (L), 2016}.mp3
-03. Amor que se Baila {Otros Aires (L), 2005}.mp3
-04. Amor Que se Baila {Vivo en Otros Aires (L), 2008}.mp3(   Читать дальше...   )Жанр: Electronic Tango, Tango NuevoПродолжительность: 02:49:17
+001. Whigfield - I Want To Love - 04:16
+002. Charli Xcx - Girl, So Confusing - 03:26
+003. Coldplay - Feels Like - 03:58
+004. Wiz Khalifa - See You Again - 03:50(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 11:18:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F149724F863C368D618CAFF96059DB44418088A
+magnet:?xt=urn:btih:C7BC7446E97F6C139E15C06F4A35E9F8B2B6C8E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819941   (989) от 25.09.2025
+###  Публикация: 1779093   (27200) от 18.02.2025
 
-Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+Blondie & Deborah Harry - Compilation (1976-2017) [MP3|320 Kbps] <New wave, Pop rock, Punk rock, Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Amore Vero
- 02 - Cerco Ancora Quella Voce
- 03 - Che Figata!
- 04 - Tra Le Mani(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:09:43
+01. My Monster (Pollinator 2017)
+02. Rapture (Autoamerican 1980)
+03. Wipe Off My Sweat (Panic Of Girls 2011)
+04. Sunday Girl (Parallel Lines 1978)(   Читать дальше...   )Жанр: New wave, Pop rock, Punk rock, DiscoПродолжительность: 08:02:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E4B3C1C56D97777A1A33EC24997888C616B0668
+magnet:?xt=urn:btih:E95143029E03609D7BE1F2D31029339180EDB8A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597856   (906) от 26.09.2025
+###  Публикация: 1781009   (26971) от 21.02.2025
 
-VA - Свежий Русский Хит от ALEXnROCK часть 12 (2022) [MP3|320 Kbps] <Pop>
+VA - 100 Pop Hits (2025) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 12я часть. Приятного прослушивания.  Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Ислам Итляшев - Ресторан
-02. Jony - Давай На Ты (Nervouss Remix Radio Edit)
-03. Subbota - Бом Бом Бом
-04. Satiba - Новый Год в Стиле Диско(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:43
+01. Bruno Mars - Locked Out of Heaven (03:53)
+02. Madonna - Like a Prayer (05:42)
+03. Coldplay - Viva La Vida (04:02)
+04. Fleetwood Mac - Dreams (2018 Remaster) (04:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E9B1AF12067EA68B9F3F239279750E35966E473
+magnet:?xt=urn:btih:90BB54ADEC809E5668F6C21675733AB777DE078D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +520,231 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820195   (802) от 26.09.2025
+###  Публикация: 1784307   (25098) от 10.03.2025
 
-Reyvi - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+Texas - Compilation (1989-2021) [MP3|320 Kbps] <Pop rock>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Stay With Me
- 02 - My Woman
- 03 - Love is a Memory
- 04 - Crying in the Dark(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:38:34
+01. Zero Zero (The Hush 1999)
+02. Telephone X (Careful What You Wish For 2003)
+03. Summer Son (The Hush 1999)
+04. The Conversation (The Conversation 2013)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 03:25:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C7CA8E0D2F6F5C482D4379D4B14BD31612B568A
+magnet:?xt=urn:btih:22AFD170266F917E863F47824AB1C4603C5524AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784363   (24951) от 12.03.2025
+
+VA - Песни Юмор (2025) [MP3|320 Kbps] <Pop, Юмор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перепесня - Это Инфобизнес
+02. Игорь Малинин - Перископ
+03. Перепесня - Барсучий Случай (Квадроберы)
+04. Игорь Малинин - Рога(   Читать дальше...   )Жанр: Pop, ЮморПродолжительность: 00:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD40502DD41DA4F246B241914526E359BFBA8802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785358   (24594) от 15.03.2025
+
+Pupo - Compilation (2025) [MP3|320 Kbps] <Pop, ItaloDisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ti Sembra Facile
+  02.  Pensiero Mio
+  03.  Un Amore Grande
+  04.  Non E Un Addio - Goodbye is Not Forever (Duet With Robin Beck)(   Читать дальше...   )Жанр: Pop, ItaloDiscoПродолжительность: 06:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED03C007F26F2744A56FE22BF303E0EEC9A40F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786541   (23906) от 22.03.2025
+
+100 % Disco - Collection (2011) [MP3|320 Kbps] <Disco, Pop, Covers>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way Ticket (3:38)
+02. Give Me Love (3:41)
+03. Funkytown (4:03)
+04. Disco Lights (3:27)(   Читать дальше...   )Жанр: Disco, Pop, CoversПродолжительность: 03:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF344AA8927973D62F4CF6915FFFEFD2199FAC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786539   (23843) от 22.03.2025
+
+Leningrad Nights - Collection (2024) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning of the End (Instrumental) (3:18)
+02. Don't Say Anything (Instrumental) (3:11)
+03. Dangerous Love (7'' Version) (3:23)
+04. Dangerous Love (7'' Instrumental) (3:24)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A969843ED3284628AFA93EE35C3B03B52FFC94A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787460   (23438) от 26.03.2025
+
+Piotr Zylbert - Collection (2024) [MP3|320 Kbps] <Dance, Disco, Instrumental>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (4:47)
+02. An Angel (3:40)
+03. Atmospheric Melody (5:03)
+04. Children (4:02)(   Читать дальше...   )Жанр: Dance, Disco, InstrumentalПродолжительность: 02:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C31FAFB4867E7650AA8AA966F8E38DFAB7D232F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790159   (22181) от 07.04.2025
+
+AlimkhanOV A. - Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Nights in the City (feat. Romantic Avenue & Bee Lee) (7:01)
+02. Eyes Of Delight (Extended Mix) (5:52)
+03. Ocean Of Fantasy (80's Extended Mix) (5:12)
+04. Two Hearts - Two Parts (5:44)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 04:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F5B295DB83450F0885E489192FD6B8DCC40DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790155   (22178) от 07.04.2025
+
+AlimkhanOV A. - Cover Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlantis Is Calling (SOS For Love) (MT Cover) (3:59)
+02. Do You Wanna (Disco Magic Remix) (4:47)
+03. Doctor For My Heart (Extended MT Version) (5:38)
+04. Don't Break The Heart (BBB Cover) (3:40)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E1B7F2D71A4E85891CA5F2E8D9F68955151511
 ```
 
 https://mybot314.ru/tekegram_catalog/

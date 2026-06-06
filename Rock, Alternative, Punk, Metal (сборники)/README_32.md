@@ -1,3 +1,151 @@
+###  Публикация: 1064683   (425559) от 20.10.2016
+
+VA - Hits of My Soul Vol. 15 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Bon Jovi - You Give Love A Bad Name (03:43)
+02. The Ramones - Poison Heart (04:03)
+03. Dagoba - Livin' Dead (03:40)
+04. Judas Priest - You've Got Another Thing Comin' (05:07)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8340B03483D15F8877D801F5FDF88257013EB2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064890   (423470) от 21.10.2016
+
+VA - Rock Collection 1993 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. Steve Vai - An Earth Dweller's Return
+02. Scorpions - Alien Nation(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 24:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98071331B16F44C7C30A97FE1E4538A2D85BCF21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411795   (423159) от 27.09.2020
+
+VA - Silent Mutiny (Vol.03) (2020) [MP3|320 Kbps] <Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423159.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lo Blow - New Heirs
+002. Stillsuit - At The Speed Of Light
+003. Redline - Stand And Fight
+004. Only Attitude Counts - The Mirror(   Читать дальше...   )Жанр: Hard Rock, HardcoreПродолжительность: 08:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200831B476CD2C52EB1166E1BC3EC49F7A5853BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411709   (422610) от 27.09.2020
+
+H.E.A.T - We Will Never Die (2020) Compilation, 2CD [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous Ground
+02. We Will Never Die
+03. Come Clean
+04. Stay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC78789345CBD49B6819CD8B17986E4CC832CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411965   (422423) от 27.09.2020
+
+VA - 101 Rock Blues Foundation (2020) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422423.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn James - Haunted
+002. Freddie King - I Don't Know
+003. Harpdog Brown - Stiff
+004. Joanne Shaw Taylor - Jump That Train(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 07:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9750984AC73B06D61D2F99247FF6E4F4BB71B295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412188   (420306) от 28.09.2020
 
 VA - Music for You vol.13 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
@@ -600,151 +748,6 @@ Doro - I Am What I Am (Compilation) (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F911F0BC9B4F9E72E90364B8FC61B198608CF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573719   (407447) от 03.09.2022
-
-Theory Of A Deadman - Compilation (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitch Came Back
-02. Angel
-03. G.O.A.T
-04. Straight Jacket(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F02D66919CCE832D0970DD2A42C3C596C2FE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326040   (407363) от 18.09.2019
-
-VA - Rock Concept: Euro Edition (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407363.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sep7ember - Bullet
-002. Big Mother Gig - Obliterate
-003. Gene Simmons - Carnival Of Souls
-004. Northward - Timebomb(   Читать дальше...   )Жанр: RockПродолжительность: 10:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5F897A2525126B7F935508A9A86C133194A924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413982   (406811) от 06.10.2020
-
-VA - September Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406811.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Disembodied - Burning Cupid
-002. Simbiose - Realidade
-003. Diploid - Dissolve Myself
-004. Skullcrack - What Did You Expect(   Читать дальше...   )Жанр: Hardcore, Hard Rock, MetalПродолжительность: 09:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC07ED411AFC28BDB98042EEFF0D8D8098F738E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413904   (406726) от 06.10.2020
-
-VA - Rock And Roll: British Classic Style (2020) [MP3|320 Kbps] <Rock & Roll, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406726.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Josie & The Outlaw - This Town Ain't Big Enough
-002. Little Richard - Great Gosh A'mighty
-003. Freddie & The Dreamers - I'm A Hog For You
-004. Bloodshot Bill - Baby Oh Baby(   Читать дальше...   )Жанр: Rock & Roll, Classic RockПродолжительность: 08:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCAB60D9454755885B83AF467B9E0641DD86DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712823   (403243) от 19.10.2013
-
-Peter Gabriel - 25 Best Songs (2012) [MP3|220 - 272 кб/с]<Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Time 1986
-02. Shock The Monkey 1982
-03. Sledgehammer 1986
-04. Growing UpЖанр: Progressive RockПродолжительность: 02:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A969F7F38A46181410CEF6D99FCE7FF1C8232A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

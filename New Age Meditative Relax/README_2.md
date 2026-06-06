@@ -1,3 +1,32 @@
+###  Публикация: 987845   (922733) от 19.02.2016
+
+Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uptown (03:58)
+02. Clouds of Linen (03:57)
+03. Panorama (04:18)
+04. Peyote (04:34)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640E117891F9AE17A709BEA750120CEFABF78BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988489   (920899) от 20.02.2016
 
 VA - Electronic Medicine - Binaural Meditation, Relaxing Deep Yoga Flow and Healing Tones (2016) [MP3|320 кб/с] <Chill Out, Lounge, New Age, Ambient>
@@ -715,32 +744,6 @@ Phaedrus - Gravity, Vol. 1 (2007) [MP3|192 Kbps] <New Age, Enigmatic, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BD3DAC269870187E0B0309219BD4CA832AEA28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638002   (897879) от 01.04.2013
-
-VA - 69 Must Have Chillout & Lounge Songs (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:56:18
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

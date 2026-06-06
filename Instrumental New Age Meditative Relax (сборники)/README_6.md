@@ -1,32 +1,3 @@
-###  Публикация: 192997   (720810) от 04.08.2020
-
-VA - Dream Collection. Vol.1 (1996-1999) [MP3|192-320 kbps]<Dream dance>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taucher - Infinity (Phase I) 		(04:18)
-02. Chicane - Saltwater 			(03:26)
-03. Dance 2 Trance - P.ower of A.merican N.atives (05:55)
-04. DJ Dado - X-Files (paranormal activity mix) (06:38)(   Читать дальше...   )Жанр: Dream danceПродолжительность: 03:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84ACBF083B167B0CFFE6C814C5A548261E29879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024201   (720315) от 07.06.2016
 
 VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -775,6 +746,35 @@ VA-Classik Album - Gold Classic Instrumental (2012) [MP3|320 кб/с]<Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:386DC5E22FBBB5E05DE975D3A7E3D76A155B80A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136157   (676612) от 21.05.2017
+
+VA - Relaxing SPA Music Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676612.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Zen Soothing Sounds Of Nature - Natural Deep Breathing 3:31
+002.  Macerio - Sweet Dreams (Chill Mix) 7:04
+003.  Vitali And His Lounge Orchestra - Too Late 3:40
+004.  Tequila Sunset - Sea And Me (Feat. Snare) 4:00(   Читать дальше...   )Жанр: Downtempo, Chillout, RelaxПродолжительность: 08:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016E007770EC05F131764FF5D54112563FF17674
 ```
 
 https://mybot314.ru/tekegram_catalog/

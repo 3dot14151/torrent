@@ -1,3 +1,32 @@
+###  Публикация: 1571979   (427513) от 24.08.2022
+
+Celine Dion - All The Way... A Decade Of Song (1999) [OGG Vorbis|485 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power Of Love	4:47
+02. If You Asked Me To	3:55
+03. Beauty And The Beast	4:04
+04. Because You Loved Me	4:35(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F179F787B663311724F3D8171C0BFC33FFE9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570711   (427419) от 24.08.2022
 
 Dido - Still On My Mind (2019) [OGG|485 Kbps] <Pop>
@@ -713,35 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91B7B506891F5FBB0067B80F51032DA76A08A716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325263   (414481) от 14.09.2019
-
-Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3|320 Kbps] <Electronic, Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Woman No Cry (3:39)
-02. Mary's Boy Child (3:13)
-03. Heart Of Gold (3:27)
-04. Mandela (4:11)(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8728FEF74777C0FD8DBFBBCF46F49D7A493504C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1396792   (744086) от 17.07.2020
+
+Cult48 - Catalog 1 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Calls To Deep (02:16)
+ 02. August 84 (05:32)
+ 03. Dusk (01:08)
+ 04. 251070 (01:51)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09D776A78C1E48210AF41ABB5C4D2A945FCB197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282599   (743745) от 13.02.2019
 
 Not Waving - Futuro (Music For The Waldorf Project) (2019) Ecstatic [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Experimental, Soundtrack>
@@ -712,35 +741,6 @@ Niklas Paschburg - Oceanic (2018) 7k! [FLAC|Lossless|WEB-DL|tracks] <Modern Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79B7718DF8D5DB15DC673305EC2041C108328D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221437   (695107) от 24.04.2018
-
-Niklas Paschburg - Tuur mang Welten (2016) Unperceived Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient, Contemporary>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ulenflucht (03:59)
- 02. Holtnevel (03:35)
- 03. Tuur Mang Welten (04:38)
- 04. Dawn (03:45)(   Читать дальше...   )Жанр: Modern Classical, Downtempo, Ambient, ContemporaryПродолжительность: 00:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA96E2645A41495E2C970C622B1C310DECB262F
 ```
 
 https://mybot314.ru/tekegram_catalog/

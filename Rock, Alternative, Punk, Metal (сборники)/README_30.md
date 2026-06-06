@@ -1,3 +1,151 @@
+###  Публикация: 1244485   (479821) от 02.09.2018
+
+VA - 101 Hits - Keep On Running (5CD) (2018) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479821.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+
+01. Avicii - Wake Me Up
+02. Kungs Vs. Cookin' On 3 Burners - This Girl(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:16:45
+
+01. White Lies - To Lose My Life
+02. Orson - No Tomorrow(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F4D06C18E782517B46C791A2618112C58AD360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319736   (479335) от 14.08.2019
+
+VA - Purgatory: Metal Compilation (2019) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479335.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Negacy - Black Messiah
+002. Sargeist - Unbound
+003. Black Lotus - The Swamp
+004. I Killed Anubis - Look At Yourself(   Читать дальше...   )Жанр: MetalПродолжительность: 12:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3A13DFF8A2621432212C9961EB78BE46B60A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782904   (476944) от 20.09.2015
+
+VA - Metal Goes Acoustic (2014-2015) [MP3 l 192-320 кб/с]<Acoustic Metal>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of Lords - Precious Metal (Acoustic) [00:04:40]
+02. Last Autumn's Dream - I've Fallen Into You (Acoustic) [00:03:25]
+03. Brazen Abbot - Love Is On Our Side (Acoustic) [00:05:11]
+04. Sonic Station - I Wish I Could Lie (Acoustic) [00:04:04](   Читать дальше...   )Жанр: Acoustic MetalПродолжительность: 21:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8803BB8E8F130C05A9F9835A7CE273001ECC660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566646   (476403) от 01.08.2022
+
+VA - Impressive Sound 2022.1: Volume III (2022) Compilation [MP3|320 Kbps] <Post-metal, post-rock, sludge metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aequorea - Talus
+02. Morrow - Rejoice This Quiet Earth
+03. Mt. Echo - Automaton
+04. Point Mort - Pretoria…(   Читать дальше...   )Жанр: Post-metal, post-rock, sludge metalПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772D392AB77009FCCD4D26F140F05091B6124571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566638   (476397) от 01.08.2022
+
+VA - Impressive Sound 2022.1: Volume II (2022) Compilation [MP3|320 Kbps] <Technical death metal, progressive death metal, progressive black metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arkaik - The Orphion Descent
+02. Hellbore - All Men Are Created Evil
+03. Brood Of Hatred - Self-Destruction
+04. IATT - Ouroboros(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metalПродолжительность: 01:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313B25290483F2B6B43BCA32A88A3FE01F221F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566611   (476384) от 01.08.2022
 
 VA - Impressive Sound 2022.1: Volume I (2022) Compilation [MP3|320 Kbps] <Progressive Metal, Progressive Rock, Avant-Garde Metal>
@@ -606,151 +754,6 @@ VA - Rock And Flowers (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9987E71683AD760FD8CC81E8D2DDF4DACFFDABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408312   (458156) от 11.09.2020
-
-VA - Seventh Seal (2020) [MP3|320 Kbps] <Hard Rock, Ballad, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fairyland - The Hidden Kingdom Of Eloran
-02. Dream Evil - The End
-03. Primal Fear - Seven Seals
-04. Wisdom - Unholy Ghost(   Читать дальше...   )Жанр: Hard Rock, Ballad, MetalПродолжительность: 05:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169715AEA04F12ABCE568AF3B271C544A5F961FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942097   (457636) от 29.09.2015
-
-Elvis Presley - Good Songs (2015) [MP3|192 кб/с]<Rock'n'roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457636.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A big hunk o' love
-002. A fool such as I
-003. A Little Less Conversation
-004. Ain't That Loving You Baby(   Читать дальше...   )Жанр: Rock'n'rollПродолжительность: 08:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9525AE9C0CCC5A7A68A9D975A335C98AA047CEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569135   (453510) от 12.08.2022
-
-The Pretty Reckless - Compilation (2022) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie
-02. Rock and Roll Heaven
-03. Going to Hell
-04. House on a Hill(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 02:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1780C26F4B57F38161B60A80C31926242165CEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942633   (453250) от 01.10.2015
-
-VA - Rock Хит. Высокое Напряжение (2015) [MP3|256 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeff Buckley - Hallelujah
-02. Би-2 - Три сантиметра над землёй
-03. Сплин - Сын
-04. Мара - Где-то моя любовь(   Читать дальше...   )Жанр: RockПродолжительность: 06:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2512D9ECA724EAA59BF6AE57A7C6563AEE36A8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322003   (452490) от 27.08.2019
-
-VA - Back End Roads: Indie Rock Collection (2019) [MP3|320 Kbps] <Indie, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cash Savage - Human, I Am
-002. Dios - All My Life
-003. Fish - Man With A Stick
-004. Hypophora - Mercurial(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 11:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D87FA2F3A568EDB5D7EED9DABD3FD921F72E2AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 975736   (970186) от 16.01.2016
+
+VA - Promo DJ Top 100 Remixes Winter 2015-2016 (2016) [MP3|320 кб/с] <Club House, Vocal House, Electro House, Club, Trance, House, Deep House, Progressive, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970186.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Disciples - How Deep Is Your Love (DJ Shevtsov Remix) 05:01
+002. IOWA - Одно и то жеЖанр: Club House, Vocal House, Electro House, Dance, Club, Trance, House, Deep House, Progressive, Chillout, Dubstep, PopПродолжительность: 07:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C74BDF5B4AA687F8A3678276506FE0F705C070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976486   (969844) от 17.01.2016
+
+VA - Winter Chill Essentials (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Diggs - Ojala
+02. Lemon Grass - It's Easy
+03. Groovecatcher - Shifting Skies
+04. Madison Park - Don't Let Go(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1ED29BD1479C7CE8E41135EC667E9F514F2002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976148   (969841) от 17.01.2016
+
+VA - Super Bomb Electro 54 (2015) [MP3|320 кб/с] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 22Bullets - It's Time (Original Mix) (4:33)
+02. Alvaro & D-Wayne - Take U (Original Mix) (4:20)
+03. Apashe, Sway - I'm a Dragon (Jaycen A'mour Remix) (5:18)
+04. Apster - Get Down Like That (Original Mix) (4:09)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0286981BE50AFD711C1F090A07F4F240BC65119E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976472   (969837) от 17.01.2016
 
 VA - Super Bomb Electro 53 (2015) [MP3|320 кб/с] <Electro House, Electro>
@@ -679,93 +764,6 @@ VA - So Sexy, Vol. 2 (Chillout Selection) (2016) [MP3|320 кб/с] <Ambient, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4114E45195B1893A6F3D9A58FA871B589CD4AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978053   (964720) от 22.01.2016
-
-VA - Existence In Progress (2016) [MP3|320 кб/с] <Progressive House, Electro, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964720.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Faced Funks - Powerbass (Original Mix)
-002. Years & Years - King
-003. Duke Dumont - Won't Look Back
-004. Mind In A Box - Unforgiving World(   Читать дальше...   )Жанр: Progressive House, Electro, ClubПродолжительность: 09:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B0926878608373307F330181E4C6FE15E148B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977823   (964645) от 22.01.2016
-
-VA - Beatport Deep House Great Mix (2016) [MP3|320 кб/с] <Deep House, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bedouin - Flight of Birds (Original Mix)
-002. Seven Davis Jr. - Friends (Detroit Swindle Friends On Acid Remix)
-003. Maya Jane Coles - What They Say
-004. Red Axes, Arbao - Sabor (Isolee Remix)(   Читать дальше...   )Жанр: Deep House, Club, ElectroПродолжительность: 11:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F399244DC02E9487EAEB78531C4BA4CAF4728E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978217   (963723) от 23.01.2016
-
-VA - Feel the Deep (Deep House Culture) (2016) [MP3|320 кб/с] <House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I st Lovers - One Is Business - Deep Way Mix (05:45)
-02. Lorenz Hellinghton - So Spired - Beautiful Mix (10:26)
-03. Sam London - No Substitute - 1st Zone Mix (05:15)
-04. Victor Vee - Ohio Fantasy - Blue Sea Mix (03:44)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6CD5C1C9E8DB7A6F2AA2BDA5FA8359B57D4B10
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1257476   (345641) от 26.10.2018
+
+Scandroid - Scandroid (2016) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2517 (4:39)
+ 02. Salvation Code (5:50)
+ 03. Aphelion (5:35)
+ 04. Shout (3:58)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE91BE630528828E53159541094614A77DB96E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257277   (345492) от 26.10.2018
+
+Scandroid - Dreams In Monochrome (2018) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (Michael Oakley Remix) (3:36)
+ 02. Rendezvous (VHS Dreams Remix) (3:52)
+ 03. Monochrome (Sunset Neon Remix) (3:34)
+ 04. Time Crime (Turboslash Remix) (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE5483AE89A454B4A8ABAD11720D99D3FA52B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578771   (340817) от 25.09.2022
 
 Alphaville & Deutsches Filmorchester Babelsberg - Eternally Yours (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth Wave, Symphonic>
@@ -687,64 +745,6 @@ Martini Ranch - Holy Cow (1988) Sire Records [FLAC|Lossless|tracks + .cue] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C0183B98F22DC5698AC2306B2699172633F9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259839   (316415) от 05.11.2018
-
-Hurts - Desire (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/13. Beautiful Ones (3:03)
- 02/13. Ready To Go (2:46)
- 03/13. People Like Us (3:39)
- 04/13. Something I Need To Know (3:31)(   Читать дальше...   )Жанр: Electronic, Synthpop, PopПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F29A277473486BE923F4E2081A6A8D0D7086AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259945   (316134) от 05.11.2018
-
-Space - Magic Fly (1977) 1983, Compilation [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316134.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:22] 01. Magic Fly
-[8:20] 02. Carry On, Turn Me On
-[4:24] 03. Air Force
-[6:42] 04. Save Your Love For Me(   Читать дальше...   )Жанр: Electronic, Synth-PopПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B57683BB307399595D5725BD82B7E767B87F92
 ```
 
 https://mybot314.ru/tekegram_catalog/

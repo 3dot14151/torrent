@@ -1,3 +1,90 @@
+###  Публикация: 1116407   (822890) от 20.03.2017
+
+VA - Record Super Chart #479 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
+02.  Klaas - Riot (Extended Mix)  4:00
+03.  Estradarada - Вите Надо Выйти (Misha Klein Remix)  4:18
+04.  Ed Sheeran - Shape Of You (Holderz Remix)  4:07(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DEECB3E2F5224489DCB08BC29AE73C83677856E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116545   (822753) от 20.03.2017
+
+VA - Best of Deep-House. Volume 1. Innerbloom [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamantero Mazeltov - Perfect Day (3:45)
+02. Salski - Sunset (Salski Rework) (6:29)
+03. Blurry Slur, Orbs & Zen - Bobs Pillow (Peter Makto & Gregory S Remix) (7:36)
+04. Dinamica - In The Begining (Mr. Pepper Urban Jungle Remix) (5:49)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 05:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1B0137432C37C67B020BC124755F35823E41F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196513   (822555) от 03.01.2018
+
+VA - The Gates To The City (2018) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ-Chart - Dance And Trance (Instrumental Version)
+002. Toast - As We The Gods (Original Mix)
+003. A & Z with Leolani - Yesterday (Extended Mix)
+004. Gregory Esayan - No Goodbyes (feat. Natalia Pevcova)(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8E4F45EFCFD999DB3D99AB78E2AF7076A9BD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196520   (822404) от 03.01.2018
 
 VA - Private Sound Chill Session December (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -661,93 +748,6 @@ VA - Drum Anthems (2017) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F72A91D3042AF26A53476E11DBECFCA62395FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197289   (817707) от 06.01.2018
-
-VA - The Official UK Top 40 Singles Chart 05.01.2018 [MP3|248-320 Kbps] <Electropop, Alternative, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran – Perfect 4:23
-02. Eminem – River (Feat. Ed Sheeran) 3:41
-03. Big Shaq – Man’s Not Hot 3:06
-04. Rita Ora – Anywhere 3:35(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C780A83DBF21AE21135B86336496901B295DDBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382691   (817521) от 12.05.2020
-
-VA - New Electronic (2020) [MP3|320 Kbps] <House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinthie - Bassline 5:10
-02. Yaeji feat. Nappy Nina - MONEY CAN'T BUY 2:51
-03. Jamie XX - Idontknow 5:22
-04. Booka Shade feat. Joplyn - Polar Lights 4:33(   Читать дальше...   )Жанр: House, ElectronicПродолжительность: 04:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E13D6977C1FEEBCAE019CEE19FCEE5ED8F4B437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382642   (817243) от 12.05.2020
-
-VA - Synthwave Artifacts: Retro Wave (2020) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817243.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Khrigar - Tranquility In The Abyss
-002. Reakttor - Sexy Arpeggio
-003. Maniac Lover - Man At The Crossroads
-004. Omega Danzer - Another Level(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthspaceПродолжительность: 08:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1E8E6A4F57740F2453B3404758E519A9E6432E
 ```
 
 https://mybot314.ru/tekegram_catalog/

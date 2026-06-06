@@ -1,3 +1,154 @@
+###  Публикация: 1562137   (511524) от 08.07.2022
+
+Nemophila - Revive (U.S. Version) (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Alternative metal, J-rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511524.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. REVIVE (U.S. Version)
+2. DISSENSION (U.S. Version)
+3. HOZUKI (U.S. Version)
+4. HYPNOSIS (U.S. Version)(   Читать дальше...   )Жанр: Metalcore, Alternative metal, J-rockПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBCE0756EC0C3B84D150BAD73A021C5A051EC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211170   (510738) от 29.08.2010
+
+Sojiro - Дискография /20 альбомов/ (1987 - 2009) [MP3|256,320 kbps]<Ethnic, new age>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ethnic, new age
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931957   (509885) от 28.08.2015
+
+Four Get Me A Nots - Astrea (2015) [OGG| 488-540 кб/с]<JPop, Pop Punk Rock>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sail
+02. Music Is My Life
+03. Set You Free
+04. Void(   Читать дальше...   )Жанр: JPop, Pop Punk RockПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C0B8492A8A60DD2C3BBE0B9CA25828A90ADF2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538308   (509695) от 23.08.2012
+
+Xiao Ping - GOD Of Guitar (2009) [MP3|160 кб/с]<Instrumental, Guitar>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509695.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:47) 01. Canon
+(4:38) 02. Dream Catcher
+(3:18) 03. The Last Waltz
+(4:28) 04. Castle in the Sky
+(3:58) 05. Passion When We Separate
+(4:39) 06. Casablanc
+(4:42) 07. Starry Starry Night
+(4:00) 08. Fools Are Deeply In Love Of The Past
+(4:35) 09. A Good Day To Set Out
+(4:17) 10. Hotel of Grief(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A08848E7613EDEDBA4423F429AABE1E77A3FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538223   (507451) от 25.08.2012
+
+Meiko Kaji - Aitsu no Suki Sona Blues (2011) [MP3|320 кб/с]<J-POP, Blues, Blues Rock>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507451.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Aitsu no Suki Sona Blues
+2 Ichiban Boshi Blues
+3 Aitsu no Suki Sona Blues
+4 Fukurokouji Sanban Chou
+5 Asagao.Yuugao
+6 AA Blues
+7 Shinayaka ni Shitataka niЖанр: J-POP, Blues, Blues RockПродолжительность: 00:25:74
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6148F556A5737F21D4B7BE35E5C4F7E3CDE1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561630   (507128) от 11.07.2022
 
 coldrain - Nonnegative (2022) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Modern Rock>
@@ -608,149 +759,6 @@ J&B - 11 альбомов (2007-2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F120D979D34720BA657B1A979A1AEAC13B4905CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936177   (496388) от 11.09.2015
-
-Kota-rocK - 6 альбомов (2006-2009) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2008.12.29 (TOKO-0004) Kaze no Onkai ~Boss-hen~ (C75)
-2009.08.15 (TOKO-0005) Birth of Fire before (C76)
-2009.12.30 (TOKO-0006) Ghost dignity (C77)Тип издания: DoujinЖанр: J-MetalФормат: Touhou Vocal, InstrumentalПродолжительность: 00:04:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38AB9966BA38AEC2648BC9242509ED479421F6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936175   (496386) от 11.09.2015
-
-Knights of Round - 4 альбома (2007-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <J-Metal, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2008.12.29 (KNTS-0002) Knights of Round 2 (C75)
-2009.12.30 (KNTS-0003) Knights of Round 3 (C77)
-2010.08.14 (KNTS-0004) Knights of Round 4 (C78)Тип издания: DoujinЖанр: J-Metal, ElectronicФормат: Touhou InstrumentalПродолжительность: 00:04:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:025A40A5FD33ADFBEAEA02A1F80418F4658BD334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936173   (495491) от 11.09.2015
-
-KeyMusic - 1 альбом + 8 синглов (2005-2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.08.15 (KMCB-015) Touhou Kenbunroku Vol.9 (C76)
-2010.03.14 (KMCA-006) Touhou Densoukyoku Daichisu (Reitaisai 7)
-2011.12.30 (KMCB-017) Touhou Kenbunroku Vol.11 (C81)Тип издания: DoujinЖанр: ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:02:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41513716ED944F149C5FB41A14A981642A4E597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936165   (495490) от 11.09.2015
-
-kaon - 2 альбома (2010-2011) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2010.07.18 Touhou Desubouru (Koimari 2)
-2011.05.08 Italian White (Reitaisai 8)Тип издания: DoujinЖанр: J-MetalФормат: Touhou VocalПродолжительность: 00:00:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45E4AAAD257F6BC6043EB6D563BB79309F97EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936508   (494448) от 12.09.2015
-
-LAVO - 2 альбома (2009-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.10.11 SACRED MUSIC FOR THE PLEASANT GODDESS (Kouroumu 5)
-2010.03.14 SKYSCRAPER (Reitaisai 7)Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176B8918112EF5CD57FFF2614E60B2E9155B7571
 ```
 
 https://mybot314.ru/tekegram_catalog/

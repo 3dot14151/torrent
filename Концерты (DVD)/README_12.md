@@ -1,3 +1,58 @@
+###  Публикация: 427798   (267605) от 28.12.2011
+
+Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Keep Your Eyes Open
+02. Throughout
+03. Ron Carter
+04. Boubacar(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276467   (266810) от 30.12.2010
+
+Кен Хенсли / Ken Hensley With Live Fire / in concert Norway (2007) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Marco Arndt at Membran A&RЖанр: RockПеревод: ОтсутствуетЯзык субтитров: ОтсутствуетФормат: DVD9Продолжительность: 01:32:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191396   (264100) от 14.12.2017
 
 Gary Moore - The Definitive Montreux Collection (2007) 2хDVD9
@@ -678,76 +733,6 @@ Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CACECF52AEF06CF9461E7444B8CE61271FBF3910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588839   (148897) от 15.12.2012
-
-Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живое выступление Erik Truffaz 4tet
-на джазовом фестивале в  Montreaux 11.07.2011 Miles Davis Hall !1. The Secret Of The Dead Sea
-2. Miss Kaba
-3. In Between
-4. Mechanic Cosmetic
-5. Fujin
-6. BC One feat. Sly Johnson
-7. Dirge Feat. Sophie Hunger
-8. Let Me Go! Feat. Sophie Hunger
-9. Lost In Bogota Feat. Sly JohnsonЖанр: Contemporary JazzРежиссер: Blue NoteАктеры: Erik Truffaz QuartetПеревод: ОтсутствуетПродолжительность: 01:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956A286ECD8C76EA22A0D91ECB816453EF329A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589446   (148001) от 15.12.2012
-
-Porcupine Tree - Octane Twisted (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это специальное издание1. Occam's Razor
-2. The Blind House
-3. Great Expectations
-4. Kneel And Disconnect
-5. Drawing The Line
-6. The Incident
-7. Your Unpleasant Family
-8. The Yellow Windows Of The Evening Train
-9. Time Flies
-10. Degree Zero Of Liberty(   Читать дальше...   )Жанр: Прогрессивный РокРежиссер: KscopeПеревод: ОтсутствуетПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

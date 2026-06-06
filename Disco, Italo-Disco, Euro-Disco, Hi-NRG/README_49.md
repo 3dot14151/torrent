@@ -1,3 +1,148 @@
+###  Публикация: 1772991   (31046) от 13.01.2025
+
+The Flirts - Castle Gold Collection, Vol. 18 (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Hi NRG, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion
+02. Helpless
+03. Calling All Boys
+04. DangerЖанр: Electronic, Pop, Hi NRG, Synth-pop, DiscoПродолжительность: 00:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9389380DAE919B31A2C11F73B343A74DAFA3CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773294   (30830) от 15.01.2025
+
+VA - The Best Of Made Up Records Vol. 1 (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sheila Stewart - It's You
+02. Jackie Touche - Watch Out
+03. Gina - Let Me Free
+04. Rygar - Star Tracks(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4123C2CC3A2E8F1794DCB222182C83441B531B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773637   (30742) от 16.01.2025
+
+VA - The Best Of Made Up Records Vol. 2 (1999) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Debby Jason - Day By Day
+02. Gina - Baby Baby Baby
+03. Sheila Steward - No 1 Emotion
+04. Rygar - Hexameron(   Читать дальше...   )Жанр: Electronic, Eurodance, Euro-DiscoПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEFCA2ACBDD1795208D539834067F9B0E2B9C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776347   (29131) от 31.01.2025
+
+Daro-X - After The Rain (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Night (Album Version) (4:31)
+02. I Give You My Heart (Radio Version) (3:47)
+03. After The Rain (Album Version) (4:23)
+04. Magic Violins (Album Version) (4:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81587C29CDCB3BA8D5EF9E63DF8C120C6DF85383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781312   (26776) от 22.02.2025
+
+VA - Modern 80's - The Best Of Discopop (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - You Can Win If You Want
+02. Fancy - Slice Me Nice
+03. C.C. Catch - I Can Lose My Heart Tonight
+04. Kylie Minogue - The Loco-Motion(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 02:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E29F3BB1E96C3BD8D3268BA11B07D375BFD1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781828   (26463) от 25.02.2025
 
 VA - Modern 80's - The Best Of Discopop Vol.3 (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>

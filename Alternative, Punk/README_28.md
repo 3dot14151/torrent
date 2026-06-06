@@ -1,3 +1,125 @@
+###  Публикация: 579517   (348201) от 23.11.2012
+
+The Stranglers - Greatest Hits On CD&DVD (2012) [MP3|320 кб/с]<Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Get A) Grip (On Yourself)
+02. Peaches
+03. Go Buddy Go
+04. Something Better Change
+05. No More Heroes
+06. 5 Minutes
+07. Nice N' Sleazy
+08. Walk On By
+09. Duchess
+10. Nuclear Device(   Читать дальше...   )Жанр: PunkПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD7B30ED77C2BDB10FF0B2AA6E7A19ED2C24425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953736   (346965) от 05.11.2015
+
+Low & Behold - Uppers (2015) [OGG| 467-519 кб/с]<Alternative, 80's Darkwave, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Church Bell
+02. You Walk Alone
+03. Blood Red
+04. Son Of Mine(   Читать дальше...   )Жанр: Alternative, 80's Darkwave, Indie RockПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F04627B2BF615DA0237AA8A4FB0C29B1D93263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953878   (346607) от 05.11.2015
+
+Celldweller - End of an Empire (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Industrial, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of an Empire
+02. Heart On
+03. Down to Earth
+04. New Elysium(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 01:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1627AE27EE688364C5394D2758257FE913CA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257416   (345360) от 26.10.2018
+
+Bullet for My Valentine - Gravity (2018) Deluxe Edition [MP3|320 Kbps] <Melodic Metalcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leap Of Faith
+02. Over It
+03. Letting You Go
+04. Not Dead Yet(   Читать дальше...   )Жанр: Melodic Metalcore, Alternative RockПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7F647FCA53A580B8523B28462B5ABEF6343914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 838969   (344349) от 08.11.2014
 
 Foo Fighters - Sonic Highways (2014) [MP3|320 кб/с]<Alt. Rock, Post-Grunge>
@@ -343,6 +465,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 263710   (323277) от 28.11.2010
+
+Delorentos - You Can Make Sound (2009) [MP3|320 kbps]<Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_323277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctuary (04:01)
+02. Secret (04:01)
+03. Hallucinations (03:28)
+04. You Say You'll Never Love Her (03:46)
+05. Leave Me Alone (04:08)
+06. Editorial (04:37)
+07. Body Cold (03:42)
+08. Let The Light Go Out (03:58)
+09. Soulmate (03:48)
+10. You Can Make Sound (04:40)(   Читать дальше...)Жанр: Indie-RockПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740CC040C5E9E1261525966AB012A35372C12262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259331   (321259) от 03.11.2018
 
 Hollywood Undead - PSALMS (2018) EP [MP3|320 Kbps] <Alternative Rock, Rapcore>
@@ -606,151 +763,6 @@ The Delmonas - Delmonas 5 • The Delmonas (1993) [MP3|VBR 228-324 кб/с]<Punk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFF1C59D203C86DD50459B33C833219B6D51B0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076081   (316118) от 24.11.2016
-
-Pete Yorn & Scarlett Johansson - Break Up (2009) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relator (02:34)
-02. Wear And Tear (03:23)
-03. I Don't Know What To Do (03:30)
-04. Search Your Heart (03:01)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F4CD869D960632DC8CA130656A3F2B3955A5FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583203   (314316) от 13.10.2022
-
-Celldweller - Satellites (2022) [MP3|320 Kbps] <Alternative, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into the Void
-2. Blind Lead the Blind
-3. A Matter of Time
-4. My Disintegration(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7482379B09FCB6A05A361BF4224C88E7F3074AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959957   (312398) от 26.11.2015
-
-Тартак - Ввічність (2015) [MP3|320 кб/с]<Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Як Би Хотілося
-02. Зміст
-03. Шановні Бандити
-04. Десь Там(   Читать дальше...   )Жанр: RapcoreПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E137EC4653977393808C7082FD11368ABF81BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960049   (312122) от 26.11.2015
-
-Placebo - MTV Unplugged (2015) [MP3|320 кб/с]<Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jackie
- 2. For What It's Worth
- 3. 36 Degrees
- 4. Because I Want You(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D543CDBF94813226BF6A9225705D4C071ACC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076498   (311894) от 26.11.2016
-
-Skillet - Интервью с Джоном Купером на радио УЛЬТРА (22.11.2016) [MP3|256 Kbps] <Alternative Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интервью в честь 20-летия коллектива. Вокалист Джон Купер лично рассказывает ULTRA-слушателям о последней, на данный момент, пластинке SKILLET "Unleashed", и вспоминает о первых днях группы! Это и многое другое в эфире первой альтернативной радиостанции страны.1. Rebirthing
-2. Sick of it
-3. I Want To Live
-4. The Resistance(   Читать дальше...   )Жанр: Alternative Rock, Christian RockПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64D6EAC4C642DB82ACC81389F144189A6777608
 ```
 
 https://mybot314.ru/tekegram_catalog/

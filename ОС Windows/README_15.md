@@ -1,3 +1,84 @@
+###  Публикация: 1130523   (713915) от 02.05.2017
+
+Microsoft Windows 10 Professional 10.0.15063.0 Version 1703 (Updated March 2017) - Оригинальные образы от Microsoft VLSC [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6435947059D59AE7B2C384E4FD278CA89C815295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 331238   (703122) от 02.05.2011
+
+Microsoft Windows For Workgroups 3.11 [Английский + Русский] ВРЕМЕННАЯ РАЗДАЧА!!!
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_703122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 3.x — общее название семейства операционных систем компании Майкрософт, выпущенных с 1990 по 1994 год. Первой широко распространённой версией Microsoft Windows стала 3.0, позволив Майкрософт соревноваться с Macintosh и Commodore Amiga в области операционных систем с графическим интерфейсом. В данный момент запускается на телефонах Motorola MotoMagx, карманных (   Читать дальше...   )Язык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895950   (696912) от 07.05.2015
+
+Recovery USB-flash for Asus T100TAL / Windows 8.1 (х86) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696912.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Asus_T100TAL_W81.tib
+записаннoй на планшете Asus T100TAL-bing-dk033b, программой Windows Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013
+Служит для восстановления планшета к заводским настройкам.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0730E29EF0FD56FA10CB234D515FDA1110F5EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403453   (690474) от 20.08.2020
 
 Microsoft Windows 10.0.18362.1016 Version 1903 (Updated Aug 2020) - Оригинальные образы от Microsoft MSDN [En]
@@ -616,90 +697,6 @@ Windows 11 - это серия операционных систем, разра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC4070D19493160AAAA1F28F563CA1479789F82A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531583   (666281) от 17.03.2022
-
-Microsoft Windows 10.0.19044.1526, Version 21H2 (Updated February 2022)  - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
-
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1526.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1072D6799297A0965099DEB5E7F15DA853296461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537780   (665112) от 18.03.2022
-
-Microsoft Windows 10.0.19044.1586 Professional Version 21H2 (Updated March 2022) x64 by SLMP [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ созданный на основе открытого (на GitHub) ответвления проекта SLMP: Windows 10 DISM Scripts. Оптимизация образа путем удаления предустановленных пакетов программ-мусора, отключение задач обновления, отключение Защитника и другие мелкие изменения. Все это производится стандартными средствами (командами DISM, запросами CMD и изменением ключей реестра).Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446595EE116AEF57959E800B2BED4FACE92DB89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903154   (658414) от 30.05.2015
-
-Recovery USB-Flash for Lenovo Z5070 / Windows 8.1 (х64) [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658414.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Lenovo_Z5070_W81.tib,
-записанный на ноутбуке Ideapad Z5070 (59421881) с помощью программы Windows Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CC6A3CBE3D393367E106A14F3B723BEEC90FE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

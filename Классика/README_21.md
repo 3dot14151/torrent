@@ -1,3 +1,61 @@
+###  Публикация: 1220333   (705893) от 18.04.2018
+
+Johannes Bornlof - The 50 Greatest Epic Piano Pieces (2018) [MP3|320 Kbps] <Classical, Piano>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. River Flows In You
+02. Ambre
+03. Comptine d'un Autre Été
+04. Début(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 03:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E355482D0367ED961E4E9BEF83D403762FCD713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469887   (704258) от 07.05.2017
+
+Vanessa Mae - My New Classic (2012) [MP3|320 кб/с]<Pop, Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contradanza
+02. Aurora
+03. Picante
+04. Toccata And Fugue In D Minor(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03A717E11F27309EE7B1A8533C12C747446F51C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 793183   (702271) от 06.06.2014
 
 Vivaldi J.S. Bach A. Marcello Telemann-Concertos for oboe and orchestra Vladimir Kurlin (1971, 1977)/(2000)[FLAC|Lossless]<Baroque>
@@ -689,70 +747,6 @@ Katherine Jenkins - Home Sweet Home (2014) [MP3|320 кб/с] <Classical Crossove
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7472867F3A9E28540ED5AEB13086AEE7EB36D7D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507718   (679256) от 10.06.2012
-
-Alirio Diaz - Four centuries of the Spanish Guitar 2CD (1992) [FLAC|Lossless]<Classical, Instrumental>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Granados - La maja de Goya
-02. De Falla - Homenaje
-03. Malats - Serenata Espagnola
-04. Segovia - Etude
-05. Turina - Fandanguillo
-06. Moreno Torroba - Sonatina
-07. Sainz de la Maza - Campanas del Alba
-08. Sainz de la Maza - El Vita
-09. Sainz de la Maza - Habanera
-10. Sainz de la Maza - Boeeto Andaluz(   Читать дальше...   )1992Жанр: Classical, InstrumentalПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFAEBA24AEA8B9EF61AAFC46F64A4CDF9831DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222829   (679182) от 02.05.2018
-
-The New London Chorale - The Young Verdi (1988) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679182.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Wings Of Gold
-2.	Standing By
-3.	I Walk On By
-4.	Is This Called By(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BBD8B78F21A1C75592143588860E104BF26B14
 ```
 
 https://mybot314.ru/tekegram_catalog/

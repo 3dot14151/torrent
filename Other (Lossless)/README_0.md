@@ -1,3 +1,61 @@
+###  Публикация: 1454438   (1026120) от 16.03.2021
+
+Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indie Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - When I Die
+02 - Gallipoli
+03 - Varieties of Exile
+04 - On Mainau Island(   Читать дальше...   )Жанр: Balkan Folk, World, Indie FolkПродолжительность: 04:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34580A29F2AE22A73343F8621266D5EE287BCAA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168355   (1025688) от 18.03.2021
+
+Deep Forest - 15 альбомов (1992-2020) [FLAC|Lossless|image + .cue|tracks] <Ambient, World, New Age, Ethnic Electronica>
+
+>>След.
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Forest (пер. с англ. — «дремучий лес») — музыкальная группа, состоящая из двух французских музыкантов, Эрика Муке (Eric Mouquet) и Мишеля Санчеса (Michel Sanchez). Они пишут музыку в новом стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Фактически музыканты (   Читать дальше...   )Список альбомов:
+1992 - Deep Forest
+1994 - Dao Dezi World Mix
+1995 - Boheme(   Читать дальше...   )Жанр: Ambient, World, New Age, Ethnic ElectronicaПродолжительность: 15:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33937C717717DC94C83C718A026C1F9A521B004B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478902   (1010005) от 21.06.2021
 
 Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cue] <Nature>
@@ -697,70 +755,6 @@ Atlas - Прогревочный и размагничивающий диск (2
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191324   (853020) от 11.04.2010
-
-Various - Полонезы И Вальсы Русских Композиторов (1990) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Waltz From The Ballet Raymonda
-02 - Waltz From The Ballet Lady Soubrette
-03 - Waltz From Ballet Suite Op.52
-04 - Waltz Capriccio
-05 - Waltz From The Opera Eugene Onegin
-06 - Polanaise From The Opera Christmas Eve
-07 - Polonaise From The Opera Pan Voyevoda
-08 - Introduction And Polonaise From The Opera Boris Godunov
-09 - Polonaise From Ballet Suite Op. 52
-10 - Polanaise From The Opera Cherevichki(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000518   (852051) от 29.03.2016
-
-Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Igitur Servus
-02. An Oiche
-03. Riu Riu
-04. Incantations(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020C12B2BFCF05243F621EA3947E76E1F78B9C69
 ```
 
 https://mybot314.ru/tekegram_catalog/

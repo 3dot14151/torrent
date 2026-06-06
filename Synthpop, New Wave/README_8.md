@@ -1,3 +1,119 @@
+###  Публикация: 1570768   (438301) от 19.08.2022
+
+A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 Kbps] <New Wave, Synthpop, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifelines
+02. You Wanted More
+03. Forever Not Yours
+04. There's a Reason for It(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 02:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441E89362247D2F2FBFAA616A4C933B54EB32073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945014   (437578) от 08.10.2015
+
+Hurts - Surrender (2015) Deluxe Edition [MP3|320 кб/с]<Synthpop, Pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrender
+02. Some Kind of Heaven
+03. Why
+04. Nothing Will Be Bigger Than Us(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35603F44878A987F06053B974EF3A11B16DE029F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571663   (425505) от 25.08.2022
+
+Sandra - Curated By Blank & Jones – So80s (Soeighties) Presents Sandra, 2CD (2012) [OGG Vorbis|485 Kbps] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena (Extended Version)	7:11
+02. In The Heat Of The Night (Extended Version)	7:24
+03. Little Girl (Extended Version)	5:21
+04. Innocent Love (Extended Version)	6:46(   Читать дальше...   )Жанр: Synth-popПродолжительность: 02:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E209CC2FDCDF72104258A5419487690CE3946314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572212   (423517) от 26.08.2022
+
+A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps] <Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move To Memphis
+02. I've Been Losing You
+03. The Living Daylights
+04. Crying In The Rain(   Читать дальше...   )Жанр: New Wave, Synth-pop, Soft RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325933   (408692) от 17.09.2019
 
 Liaisons Dangereuses - Liaisons Dangereuses (1981) Reissue CD, 2002, Hit Thing [MP3|320 Kbps] <Electronic, Synth-pop, New Wave, EBM>
@@ -633,119 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3AEB2D734B3184F9996E038B2956E197635F1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179239   (349217) от 31.10.2017
-
-DDR Space Program - 1 Single,2 EP (2016-2017) [MP3|320 Kbps] <New Wave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349217.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stardate (4:49)Жанр: New Wave, SpacesynthПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1EC2DBF1947395DBFCA1521D1D14AD481F02BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180367   (342351) от 03.11.2017
-
-Scandroid - Monochrome (Instrumentals) (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2518 (Instrumental)
-02. Afterglow (Instrumental)
-03. Rendezvous (Instrumental)
-04. Thriller (Instrumental)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30C55B3529063CE5AC86988C8E3F14853D4B376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578913   (341079) от 25.09.2022
-
-Galaxy Hunter - We Came From Space (2008) [OGG Vorbis|484 Kbps] <Electronic, Italo-Disco, Ambient>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Tribute To Challenger)	1:57
-02. We Came From Space	5:15
-03. Children Of Planet Earth	5:32
-04. Another World	5:33(   Читать дальше...   )Жанр: Electronic, Italo-Disco, AmbientПродолжительность: 01:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DCC540160D5CA7745096DF5293BB69A5FDBF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330710   (338969) от 11.10.2019
-
-Oblivion - Light of a Distant Star (2015) [MP3|320 Kbps] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:24)
-02. First Orbit (Around the Earth) (4:57)
-03. Mysterious Universe (Space Music Fest Edit) (3:52)
-04. On the Edge of Infinity (4:51)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF68B71AD6FC9FE270EB4F33A9B5623C134AD1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

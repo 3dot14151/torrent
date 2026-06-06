@@ -1,3 +1,96 @@
+###  Публикация: 994097   (891566) от 07.03.2016
+
+VA - Top 100 Electronic Dance Music and Rave Festival Chart Hits (2016) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891566.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crop - Be For You  .mp3
+002. Fx Machine - Plastic Brain .mp3
+003. Enzymes - Don't Stay Away (Psy Bass Glitch Hop Remix) .mp3
+004. Celldweller, Digital Tribe, Bleep - Under My Feet (Digital Tribe & Bleep Remix) .mp3(   Читать дальше...   )Жанр: DanceПродолжительность: 11:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E32AFB5272C1479C7F9587B26A8EAA5EB89C778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102312   (891417) от 09.02.2017
+
+VA - Beatport Trance Pack (09.02.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cold Blue & Johnny Yono - Fall Into Dusk (Original Mix)  6:49
+02.  Mark Van Gear - Mary My Lovely Pandita (Original Mix)  7:32
+03.  UDM - Tornado (Original Mix)  6:37
+04.  Oberon - Visions (Original Mix)  7:39(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 06:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434E0D71E3BA8121190D9135A6650939349F8D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638533   (891191) от 05.04.2013
+
+VA - Ibiza Lounge Classics Vol 2 (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dinka - Campfire - Original Mix [04:23]
+02. Jerome Isma-ae - Drifting - Original Mix [05:36]
+03. Passenger 10 - Blue Harbour - Original Mix [05:06]
+04. DJ Tatana - Always On My Mind - Atmosphere Piano Edit [03:48]
+05. Opium Lounge - Tears For Monks [07:57]
+06. Croatia Squad - Childish - Original Mix [05:40]
+07. Dinka feat. Angelika Vee - Inseparable - Acoustic Version [03:39]
+08. Fair Light Ranger - Ronin - Original Mix [04:00]
+09. Chris Reece - Conspiracy - Original Mix [03:41]
+10. Sunfriends - Sun Bleach - Original Mix [05:30](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA74EB3BF092574D3258BAA47C9E9331CB69EF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994607   (889840) от 08.03.2016
 
 VA - Vocal Trance Seduction vol 8 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -658,93 +751,6 @@ VA - Beatport Progressive House: Electro Sound Pack #40 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:608DB1D56491792A24FB54EF88D9402E8E015D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372020   (887145) от 02.04.2020
-
-VA - Beatport Funky House: Electro Sound #42 (2020) [MP3|320 Kbps] <Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inusa Dawuda - Love Criminal (Mota Remix)
-002. Angelica Rose - Look Me In The Eyes
-003. Freddy Fader Meets Locana - Suenan
-004. French La Touche - Baby Please Don't Go(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 13:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BB55FCD0FBEB88941A639D4547560D320A3CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372031   (887117) от 02.04.2020
-
-VA - Spring Holiday Party: Electro House Selections (2020) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wallas - Love Reason
-002. Alek Soltirov - Check The Cables
-003. Crunchy Masters - In That World
-004. Topa - In The House (Original Mix)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 13:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDB70160ABD5BF5EB9B672DC0943C63422C87A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372025   (887078) от 02.04.2020
-
-VA - Luxury Deep House: Beats Session (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Amnesia - 8 Below
-02. Nomura Taio - What A Man
-03. Therd Suspect - Me Seeing You
-04. Saturn 15 - Apocalypse(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4076AB2956CDCBE1691FE8F81255AD7E2DD564DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1070218   (369013) от 06.11.2016
+
+Rakel Traxx - Dirty Dollz (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Can't You See   (02:52) 
+  02| I Need Your Love Tonight   (04:29) 
+  03| You'll Never Stop The Game   (04:59) 
+  04| Red N' Hot   (04:09) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916EA643EA219D1042EB67599F4B5CE5569D9382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070282   (368877) от 06.11.2016
 
 Berwanger - Exorcism Rock (2016) [MP3|320 Kbps] <Melodic Hard Rock, Garage Rock>
@@ -724,35 +753,6 @@ The Great Whitecross & Guardian - Revival (2017) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A161D2523BC4FD8C54F41F5C21619A65A571079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954076   (344395) от 06.11.2015
-
-Scorpions - Animal Magnetism (1980) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Real
-02. Don't Make No Promises (Your Body Can't Keep)
-03. Hold Me Tight
-04. Twentieth Century Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D7DECD37AB0B151E32BA597CACEB8008B8E29F
 ```
 
 https://mybot314.ru/tekegram_catalog/

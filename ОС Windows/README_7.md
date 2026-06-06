@@ -1,3 +1,84 @@
+###  Публикация: 1479012   (1009971) от 21.06.2021
+
+Microsoft Windows 10.0.19041.1052, Version 2004 (Updated June 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1052.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A241209CB49CB9228D84D5B73DE6D8E0DB437110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479007   (1009931) от 21.06.2021
+
+Microsoft Windows 10.0.17763.1999, Version 1809 (Updated June 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1999.
+Оригинальные образы business_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28123FF9A55B7E1F54C79605CC02D5DC377E5BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479008   (1009925) от 21.06.2021
+
+Microsoft Windows 10.0.17763.1999, Version 1809 (Updated June 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1999.
+Оригинальные образы business_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1ED79B26C3F477C34948CD2589A0C78510B836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479017   (1009901) от 21.06.2021
 
 Microsoft Windows 10.0.19043.1052, Version 21H1 (Updated June 2021) - Оригинальные образы от Microsoft MSDN [En]
@@ -606,87 +687,6 @@ Microsoft Windows NT Server 4.0 Build 1381 Service Pack 1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD605FECAD03EFB19D81B496111FB5AC52663E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976939   (967528) от 19.01.2016
-
-Microsoft BackOffice Server 4.5 4.0.1381.1 [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft BackOffice Server - интегрированный набор серверных программ, оптимизированный для операционной системы Windows NT Server. BackOffice Server позволяет создавать мощные и интегрированные серверные решения в рамках как локальных, так и глобальных сетей. Этот пакет совместно с лицензией на доступ (Client Access License) предоставляет наиболее простой и экономичный (   Читать дальше...   )Язык интерфейса: английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6988C2769A5A8963A38C4A66012578062BB0AF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978297   (963165) от 23.01.2016
-
-Recovery USB-Flash for Lenovo IdeaPad 100-15IBY / Windows 8.1 (х64) [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963165.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Lenovo_100_15IBY_W81.tib,
-записанный на ноутбуке Ideapad 100-15IBY (80mj005hrk) с помощью программы Windows Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676241CB7AD6D89C82E91BEF655ABB5B49974EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359860   (961716) от 14.02.2020
-
-Windows PowerShell 5.1 [Ru]
-
->>ОС Windows
->>Разное (RC, Beta и Service Packs)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это автономный установщик Windows PowerShell 5.1. Не требующий подключения к сети интернет. Пакет установки только русский.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F26C86FD3249F3F1C917AAB2FF4F46B9EA2E3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

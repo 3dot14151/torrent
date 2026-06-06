@@ -1,3 +1,96 @@
+###  Публикация: 596652   (130836) от 31.12.2012
+
+VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Soul, Funk/Soul, Disco>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gwen Guthrie - Ain't Nothin' Goin' On But The Rent [03:27]
+02. Donald Byrd - Love Has Come Around [03:38]
+03. Shanon - Let The Music Play [03:32]
+04. Kleer - Get Tough [03:19]
+05. Chaka Khan - I Feel For You [05:45]
+06. Earth, Wind & Fire - Let's Groove [03:30]
+07. Sister Sledge - Thinking Of You [03:42]
+08. Patrice Rushen - Forget Me Nots [04:06]
+09. Bohannon - Let's Start II Dance Again (Part II) [05:13]
+10. Levert - Casanova [03:58](   Читать дальше...   )Жанр: Hip Hop, Electro, Soul, Funk/Soul, DiscoПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525182   (129193) от 21.01.2022
+
+Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop, Acoustic, Lo-Fi>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rumours (04:10)
+ 02. Rocky Trail (03:31)
+ 03. Comb My Hair (03:06)
+ 04. Angel (03:16)(   Читать дальше...   )Жанр: Indie Pop, Acoustic, Lo-FiПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823889   (126113) от 12.10.2025
+
+VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ildar Bik - Talika (5:49)
+02. Gabriel Slick - Searching (5:08)
+03. Inessa - Atacama (7:09)
+04. Tibetania - Orchard (5:43)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 02:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA81BF075B1E4AD45AEFA5D3BB0A5102A8BBEF35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692580   (122188) от 18.01.2024
 
 VA - The Orient Collective: Space Tribe (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -664,111 +757,6 @@ VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D1ACD7FE87F3D8E707FC61B06F36763905F5F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488881   (91024) от 27.04.2012
-
-Solo Tango Orquestra - Historias de Tango (2010) [FLAC|Lossless]<Tango Argentino>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milonga Sentimental (live) (2:19)
-02. Toda mi Vida (2:50)
-03. Mano Brava (2:14)
-04. Gallo Ciego (3:29)
-05. A las cinco en la giralda (live) (3:13)
-06. Cite Tango (live) (5:46)
-07. Amelitango (live) (3:21)
-08. Oblivion (live) (4:02)
-09. Verano Porteno (live) (6:25)
-10. Solitude (3:43)(   Читать дальше...   )2010Жанр: Tango ArgentinoПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479996   (87373) от 09.04.2012
-
-VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<Романсы>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гори, гори моя звезда (Б.Штоколов)
- 02. Я помню вальса звук прелестный (Н.Брегвадзе & М.Джабуа)
- 03. Романс о романсе (В.Пономарева)
- 04. Нищая (А.Малинин)
- 05. Ямщик, не гони лошадей (С.Захаров)
- 06. Сердце на снегу (М.Магомаев)
- 07. Во глубине сибирских руд (Л.Сметанников)
- 08. Старый муж (Песня цыганки) (Н.Раутио)
- 09. Я Вас любил (Ф.Царикати)
- 10. Ночь светла (Т.Синявская)(   Читать дальше...   )1999Жанр: РомансыПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480009   (87305) от 09.04.2012
-
-VA - Русская народная хоровая песня (2000) [FLAC|Lossless]<Русская народная хоровая песня>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ай, заинька, ай, серенький
- 02. Пойду ль, выйду ль я
- 03. Самара-городок
- 04. Помню, я еще молодушкой была
- 05. Камаринская (Небывальщина)
- 06. Валенки
- 07. Ах, вы сени, мои сени
- 08. Во кузнеце
- 09. Бояре, мы к вам пришли
- 10. Как у наших у ворот(   Читать дальше...   )2000Жанр: Русская народная хоровая песняПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

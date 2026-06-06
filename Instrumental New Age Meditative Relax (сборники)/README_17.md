@@ -1,3 +1,32 @@
+###  Публикация: 966595   (218948) от 18.12.2015
+
+VA - Pastel Lounge Christmas Time (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sansinena - Christmas in Blackwater
+02. Atthis Alcedo - Feel What You Feel
+03. Cafe Royale - Thunderplump
+04. Max Denoise - Blue Sky(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B215482B5B562E3E24011C1A7EAC88C68371B75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085078   (216552) от 20.12.2016
 
 VA - Fields Of Gold Music For Romance (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lyric, Relax Lounge>
@@ -716,35 +745,6 @@ Bond - Just Bond Compilation (2018) [MP3|320 Kbps] <Instrumental, Classical Cros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67269046F5EA312A75BCE6A543A86E8C3EE6F603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087113   (144797) от 28.12.2016
-
-VA - Acoustic Covers Rewind (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Torn
-02. Portland UK - The Boxer
-03. Thom Cooper - God Only Knows
-04. Dean Dyson - Dancing in the Dark(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F55453F6DE63E57BDBE1BEED0E1A0BA04349B26
 ```
 
 https://mybot314.ru/tekegram_catalog/

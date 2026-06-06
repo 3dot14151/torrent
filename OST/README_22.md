@@ -1,3 +1,32 @@
+###  Публикация: 1083589   (273630) от 16.12.2016
+
+James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose Creek Oppression (01:55)
+02. Seven Angels of Vengeance (03:25)
+03. Lighting the Fuse (01:22)
+04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49758CBB3D0D54C6C1005E6229BD11B4DFCF132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083592   (273473) от 16.12.2016
 
 Михаил Костылев - 28 Панфиловцев (Оригинальная музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -738,35 +767,6 @@ Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E94C3809D03D9263D11190D38A4AC32EC773597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268005   (229768) от 09.12.2018
-
-OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moniker - Makutekahu [2:09]
- 02. Moniker - Ricky Runs [1:46]
- 03. Moniker - Cloak of the Sky [2:58]
- 04. Rima Te Wiata & Julian Dennison - Ricky Baker Birthday Song [0:51](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A38B1A2DC7F0128D5A707E14F7601B59756ED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

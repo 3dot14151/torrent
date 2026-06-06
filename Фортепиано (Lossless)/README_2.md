@@ -1,3 +1,32 @@
+###  Публикация: 943318   (449432) от 03.10.2015
+
+Beethoven - Piano Sonatas Nos.8, 14, 23 (Rudolf Serkin) (2003) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Romantic Period, Classical Period, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata No. 8 in C minor ("Pathtique"), Op. 13
+01. Grave - Allegro di molto et con brio (08:51)
+02. Adagio cantabile (05:34)
+03. Rondo Allegro (04:07)(   Читать дальше...   )Жанр: Classical, Chamber Music, Romantic Period, Recitals, Classical Period, SonataПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E1035171262EF73A2E87114D4CB4B9A8505B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409365   (447232) от 16.09.2020
 
 Craig Armstrong - Piano Works (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
@@ -704,35 +733,6 @@ Falla - Complete Works for Piano Solo (Ricardo Requejo) (1999) [FLAC|image +.cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01EA43D933C529BB93106BF1B9E7B193E214C5FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075847   (315773) от 24.11.2016
-
-Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тень трагического, какого-то неизбежного рока витает над гением Микеланджели, осеняя все, к чему прикасаются его пальцы. Стоит сравнить его Шопена с тем же Шопеном в исполнении других - самых крупных пианистов.
-01 Mazurka, op. 67 no. 2- Cantabile (2:02)
-02 Mazurka, op. 56 no. 2- Vivace (1:48)
-03 Mazurka, op. 67 no. 4- Moderato animato (3:10)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6EDD64AADA286137F6F00D22988435778738F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

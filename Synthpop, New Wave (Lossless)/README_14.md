@@ -1,3 +1,61 @@
+###  Публикация: 1314729   (517137) от 16.07.2019
+
+A Flock Of Seagulls - Inflight - The Extended Essentials (2019) Remix [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Ran (So Far Away) (07:46)
+02. Modern Love Is Automatic (07:20)
+03. Space Age Love Song (05:46)
+04. Wishing (If I Had A Photograph Of You) (08:34)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD9DB2A3DA54186BFAF9B3D52F23B32E7B4C1AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930313   (516194) от 22.08.2015
+
+Alphaville - So8os (Soeighties) Presents - Curated By Blank & Jones (2014) [FLAC|image + .cue] 2CD Remastered<Synth-pop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big In Japan (Extended Re-Mix) 07:26
+ 02. Sounds Like A Melody (Special Long Version) 07:43
+ 03. Forever Young (Special Dance Version) 06:10
+ 04. Jet Set (Jellybean Mix) 06:32(   Читать дальше...   )Жанр: Synth-pop, ElectronicПродолжительность: 02:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCEF8D0D01E930571C60358EBF2FB6838B01C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314980   (516050) от 17.07.2019
 
 Drab Majesty - Modern Mirror (2019) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop, Post-Punk>
@@ -710,64 +768,6 @@ Erasure - Ne:EP (2021) Mini Album [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8834CB3936F56AE58254A66DDAB210CC6A8C822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408852   (451596) от 14.09.2020
-
-DEADLIFE - City of Eternal Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Breach [00:01:26]
-02. Generation Damage [00:04:40]
-03. We Are One & the Same [00:04:23]
-04. To Unify With Clear Sight [00:05:05](   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave, DarkwaveПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712FD835C7D9B6EBF1DDC3938D8B8538E42CBD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408796   (451459) от 14.09.2020
-
-PRIZM - All Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night [00:03:48]
-02. Disco Biscuit [00:04:00]
-03. Lose You [00:03:18]
-04. Mine [00:03:51](   Читать дальше...   )Жанр: Electro, SynthpopПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481AF625365E58FC24FB546A035565BA9A16A747
 ```
 
 https://mybot314.ru/tekegram_catalog/

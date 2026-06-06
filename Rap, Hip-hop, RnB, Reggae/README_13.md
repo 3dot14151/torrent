@@ -1,3 +1,90 @@
+###  Публикация: 1014847   (775415) от 09.05.2016
+
+MiyaGi & Эндшпиль - HAJIME Part.1 (2016) [MP3|256-320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HAJIME (INTRO)
+02. OneLove
+03. God Bless
+04. Санавабич(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD1D58B83BED1CD7BC0444A50D33661F84C1113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212646   (775034) от 13.03.2018
+
+Грот - Лучшее (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обитатели рая
+02. Лиза
+03. Кровь с кислородом
+04. Рубежи(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB7E7134B33A3713024DB5071E3548D4A43749A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117653   (773441) от 13.04.2017
+
+SERPO & DJ MTR - На осколки (2017) EP [MP3|320 Kbps] <Hip-Hop, Reggae, House>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773441.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вести из прошлого
+2. Пока горит моя звезда
+3. Я налью вина
+4. На Осколки(   Читать дальше...   )Жанр: Hip-Hop, Reggae, HouseПродолжительность: 00:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51DB225515EE48FBBEDDD7992810F2CB2E9BB69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124917   (772904) от 13.04.2017
 
 Rag'n'Bone Man - Human (2017) [MP3|320 kbps] <R'n'B, Soul, Indie>
@@ -656,93 +743,6 @@ VA - Pornhub Valentine's Day Album (2019) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E1EF58F646ABAFDE0C231A38382FFC831B2545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021320   (732311) от 29.05.2016
-
-Баста - Баста 5. Часть 2 (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Финальный матч (feat. Смоки Мо)
-02. Виски и кокаин (feat. Нервы & Смоки Мо)
-03. Выпускной (Медлячок)
-04. XTZ(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E26B44E4C391F29365F413952B9C28F3F465037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283856   (731822) от 18.02.2019
-
-UB40 - UB40 (1988) Reissue [FLAC|Lossless|image + .cue] <Electronic, Synth-pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance With The Devil
-02. Come Out To Play
-03. Breakfast In Bed
-04. You're Always Pulling Me Down(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475252E1163360CA1BF8A05AB8753D24828D57FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285152   (724776) от 24.02.2019
-
-Nyctophiliac - Dark Side of the Mental (2016) [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Trip Hop, Dark Jazz>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter The Temple (3:03)
-02. Dark Side Of The Mental (3:35)
-03. Metamanoir (3:42)
-04. Blunted Session (3:45)(   Читать дальше...   )Жанр: Abstract Hop, Trip Hop, Dark Jazz, Experimental Electronic, Lo-FiПродолжительность: 01:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E03F5CE5036B82B31A2DAA74AE6CD636F72D5BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

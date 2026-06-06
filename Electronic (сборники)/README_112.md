@@ -1,3 +1,90 @@
+###  Публикация: 1039928   (593652) от 03.08.2016
+
+VA - Transparent World Melodies (2016) [MP3|320 Kbps] <Trance, Progressive, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming -  Altered Senses 7:06
+02. A.R.D.I -  Silicon Society (Original Mix) 7:08
+03. Richard Durand Ft. Simon -  Always The Sun (Ahmet Atasever Remix) 7:20
+04. Alex M.O.R.P.H -  Not All Superheroes Wear Capes (Radio Edit) 3:14(   Читать дальше...   )Жанр: Trance, Progressive, EnergyПродолжительность: 08:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01AB9DE14E1CC3F29757E0C916477B06A39CEC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549796   (592893) от 08.05.2022
+
+VA - The Virtual Vision (2022) [MP3|320 Kbps] <Electronic, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592893.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Virtual Vision - это авангард в мире электронной синтетики. В арсенале сборника представляется коллекция мягкой антиутопической электроники, в значительной степени управляемой брейкбитом, приправленного пылью иллюзий и осколками провальных идей.001. Darkmode - Jason X
+002. Odra - Harmonics
+003. Magnetron - Cold Hearted Vision
+004. Petit Astronaute - Polar(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 11:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F8A0CD0D61B4527FD332A8D36D7059B1E42371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549790   (592891) от 08.05.2022
+
+VA - Y-Zotope: Relax Synthetic Sounds Mix (2022) [MP3|320 Kbps] <Relax Electronic, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экспериментальный электронный сет предлагает подборку треков, авторы которых в своём творчестве использует аутентичные народные инструменты вместе с современными электронными средствами. Они создают психоделичные саундскейпы, позволяя слушателю окунуться в фантастические миры, глубину веков, почувствовать себя путешественниками во времени и Вселенной.001. E.Lemental - Your Love
+002. Shur-I-Kan - Ebb And Flow
+003. Yoshinori Hayashi - Make Up One’s Mind
+004. Franca - Chiron(   Читать дальше...   )Жанр: Relax Electronic, SynthwaveПродолжительность: 08:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A86784A0D92CA6B718E018943B64AF2E0D051C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549763   (592840) от 08.05.2022
 
 VA - Lyrical Rhythm And Blues (2022) [MP3|320 Kbps] <R&B, Soul>
@@ -640,115 +727,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040764   (585567) от 06.08.2016
+###  Публикация: 918629   (585999) от 16.07.2015
 
-VA - Starts Games 125 Splash (2016) [MP3|241-320 Kbps] <House, UK Garage, Future House, Electro, Tribal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585567.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dr Kucho & Gregor Salto - Can't Stop Playing (Oliver Heldens & Gregor Salto Remix) 04:16
-002. 3Lau - How You Love Me (Arston Remix) 05:47
-003. Alex Whisper - Addicted To Drums (Original Mix) 06:08
-004. Discorocks - One Day In July (Original Mix) 06:02(   Читать дальше...   )Жанр: House, UK Garage, Future House, Electro, TribalПродолжительность: 11:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7900EDE4BB5CCE64C9B6FD07F0101C8153F243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040643   (585562) от 06.08.2016
-
-VA - Best Time to Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Global Player 2015, Lounge Edition Vol.1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aqua Mundi - Mezcal Shadows
-02. Rey Salinero - Flor de Almendro
-03. Chillelektro - Cala Pi
-04. Arrojas - Asombrosa(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:22
+01. Guenter Haas - Alone but Never Lonely (06:04)
+02. Karen Gibson Roc. Johannes Huppertz - Fly Light (04:08)
+03. Mathieu. Florzinho - EchoTales (04:36)
+04. Project Blue Sun - The Essence of Life (05:44)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:35:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0126921B9A412268DCA46B6FA896EBBC4AAA0890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040720   (585523) от 06.08.2016
-
-VA - 50 Summer Hits Across Workout (2016) [MP3|320 Kbps] <House, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antoine Delvig & Alex Van Diel  -  Sea, Sex & Sun (Extended Mix)  4:23
-02. Grindclock  -  Sight Beyond Sight (Original Mix)  4:32
-03. Bob Sinclar  -  Someone Who Needs Me (Kryder Remix)  5:08
-04. Abel Ramos  -  Higher  3:30(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 03:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F9100D9F32C73F4EA8CAC3C898829B81958BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040808   (585468) от 06.08.2016
-
-VA - Новая Жажда Скорости Без Тормозов vol.4 (2016) [MP3|320 Kbps] <Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cally & Riot - World In My Hands (Original Mix)
-02. Frequencerz - 12FU (Original Mix)
-03. Airtunes - Vampires (Original Mix)
-04. Faizar - The Darkness Drops (Original Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FEC4C074AFB730C67710BA70900D756FABE74C
+magnet:?xt=urn:btih:47B76781DF442B3C427CA2F0774AF0DFFEC7E7C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

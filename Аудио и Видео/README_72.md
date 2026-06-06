@@ -1,3 +1,55 @@
+###  Публикация: 1276162   (788540) от 15.01.2019
+
+Транс / Trance (2013) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудник аукционного дома Саймон отвечает за сохранность картин во время проведения аукциона и в случае опасности должен запереть картину в сейфе. Во время ограбления он получает удар по голове и просыпается в больнице с амнезией. Саймон единственный кто знает, где находится картина, которой нет ни в сейфе, ни у грабителей. Бандиты похищают и пытают его. А после (   Читать дальше...   )Производство: Великобритания, Франция / Cloud Eight Films, Decibel Films, Film4, PathéЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Дэнни БойлАктеры: Джеймс МакЭвой, Венсан Кассель, Розарио Доусон, Дэнни Сапани, Мэттью Кросс, Вахаб Ахмед Шейх, Марк Полтимор, Таппенс Мидлтон, Саймон Кунц, Майкл ШэйфферПеревод: Дублированный (License)Субтитры: Русские (Full), английскиеПродолжительность: 01:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B60A2CBAA42EBC3EF200E36E0FECE5B65D9612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276271   (788535) от 15.01.2019
+
+Этим летом / Summer '03 (2018) WEB-DL [1080p] ATV (Line)
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь 16-летней Джейми идёт своим чередом: она гуляет, любит и дружит. Всё резко переворачивается с ног на голову, когда на поверхность выходит ворох семейных секретовПроизводство: США / Big Cat Productions, Summer 03 FilmЖанр: Комедия, ДрамаРежиссер: Бекка ГлисонАктеры: Андреа Сэвадж, Джои Кинг, Эрин Майя Дарк, Джун Скуиб, Пол Шир, Джек КилмерПеревод: Дублированный (Line)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310701B477C5DEF5114698B828258FD15A7AB256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203283   (788528) от 01.02.2018
 
 ЛЕГО Ниндзяго Фильм / The LEGO Ninjago Movie (2017) BDRip [720p] ATV
@@ -663,64 +715,6 @@ VA - Nightflight New York, Vol. 2 (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Smo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:554BED2DF20EB6B5E050BE26A1AF61AD4DF42A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511934   (787951) от 23.11.2021
-
-VA - Nightflight New York (2013) [AAC|~331 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Connection - Tranquility Station (Smooth Evening Cut) (4:31)
-02. Frank Borell - Sleepy Hollow (Slow Your Life Mix) (7:35)
-03. Pascal Dubois - Housestream (Mindworm Mix) (5:10)
-04. Cocogroove - Martini Royale (Kiss Me James Mix) (5:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E63B296DE48785C908E958CDAFF77BADFE233C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511960   (787948) от 23.11.2021
-
-VA - Sunset in Africa, Vol. 2 (2021) [AAC|~322 Kbps] <House, Deep House, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rosko De Soul - Still Waters (Original Mix) (6:08)
-02. D'Joe - Passing By (Thap Soul Remix) (5:50)
-03. Lennart Richter - I Can't Sleep (Original Mix) (6:19)
-04. Monodeluxe - When the Time Will Come (5:28)(   Читать дальше...   )Жанр: House, Deep House, Organic HouseПродолжительность: 02:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1798412E6540A5DEAA69B07D134BDE411302629
 ```
 
 https://mybot314.ru/tekegram_catalog/

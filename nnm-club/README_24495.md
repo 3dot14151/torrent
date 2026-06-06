@@ -1,25 +1,196 @@
-###  Публикация: 1769731   (100598) от 30.12.2024
+###  Публикация: 1732090   (107527) от 23.06.2024
 
-Елена Камбурова - Дорога (2000) [MP3|320 Kbps] <Ретро>
+Чудо техники с Сергеем Малозёмовым (23.06.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элетросамокаты: есть ли разница между дешевыми и дорогими моделями и как улучшить этот индивидуальный вид транспорта, чтобы передвигаться на нем было и удобно, и безопасно? Что выгоднее — купить свой или брать напрокат?
+Как спрятать холодильник или, например, духовой шкаф на кухне, чтобы они не портили фасад мебели, насколько удобна в быту встраиваемая техника, с (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED4D82186AF0FA0AAD4BACA7184D00726A8B9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731540   (107526) от 23.06.2024
+
+Cavalera Conspiracy - Schizophrenia (1987) Re-Recorded, 2024, Nuclear Blast[FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Re-Recorded) (0:32)
+02. From the Past Comes the Storms (Re-Recorded) (4:54)
+03. To the Wall (Re-Recorded) (6:12)
+04. Escape to the Void (Re-Recorded) (4:41)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9283189B28E4CF39EB4A4684CDB591A040C70A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732061   (107525) от 23.06.2024
+
+Seven Spires - A Fortress Called Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – A Fortress Called Home
+02 – Songs Upon Wine-Stained Tongues
+03 – Almosttown
+04 – Impossible Tower(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D178CDC9B2C20AAE7CD8A8934A372AEA97FABF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732039   (107524) от 23.06.2024
+
+Within Temptation - Worlds Collide Tour (2024) Live in Amsterdam [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Solemn Hour (Live in Amsterdam) (5:39)
+02. Faster (Live in Amsterdam) (4:30)
+03. Paradise (What About Us?) (Live in Amsterdam) (5:25)
+04. Stand My Ground (Live in Amsterdam) (5:01)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7C9DAB6659C94E529FE6895AF9864F4015EAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732116   (107523) от 23.06.2024
+
+Mountainroad DSP - Lumina Delay 2.0.0.289 VST 3, AAX (x64) RePack by MOCHA [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lumina Delay - это первая в мире полностью визуальная и захватывающая (7.1.4) задержка, которая выходит за рамки ограничений стандартных задержек.
+Вместо традиционных ручек Lumina Delay использует интуитивно понятную функцию click-and-drag, позволяющую пользователям создавать точки задержки на сетке и легко настраивать параметры.
+Благодаря регулированию громкости, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC721A292AB0E78B38EA6B5D8A757500A7A2DD00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732171   (107522) от 23.06.2024
+
+Snowy White - Unfinished Business (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unfinished Business [00:06:19]
+02. Evening Blues [00:03:33]
+03. Alone with Me [00:05:35]
+04. Overland and See [00:04:54](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807020DA0115E6034181F819F4ED48624346F260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731930   (107521) от 23.06.2024
+
+VA - DJ Hits '98 Volume 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 
 >>Pop
->>Советская эстрада, Ретро
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Река [00:05:23]
-02 - Песня шарманщика [00:03:42]
-03 - Над твердью голубой [00:03:30]
-04 - Подай мне, надежда, руку [00:03:06](   Читать дальше...   )Жанр: РетроПродолжительность: 01:03:06
+01. Doctor Delite - Let The Music Play (Radio Mix)
+02. Sweetbox - Another Minute (Album version)
+03. Ultimate KAOS - Casanova (7 mix)
+04. Express Of Sound feat. Afrika Bambaataa - Funky Weekend (Radio Mix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:12:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFB990D49DC4B671FA059C5D2AE14301D2A5F798
+magnet:?xt=urn:btih:30CB76CE726F0AB1DD946EFEB3D6CC9598BD89A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770015   (100597) от 30.12.2024
+###  Публикация: 1731852   (107520) от 23.06.2024
 
-Артём Март | Пережить 90-е (Книга 5). Моя Оборона! Лихие 90-е. Том 5 (2024) [MP3, Сергей Уделов]
+Kinkfolk - Kinkfolk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 90-х я был начальником охранного агентства «Оборона», но из-за предательства все потерял. До конца жизни остался простым охранником. А потом погиб в драке и… попал в молодого себя? На дворе снова 1993 год, я полон сил, а Обороны еще не существует. Судьба подбросила мне шанс прожить жизнь заново, а еще того самого предателя на соседнее сидение моей машины.Жанр: Альтернативная история, БоевикиИздательство: ЛитРес: чтецПродолжительность: 07:52:25
+01. Popcorn (4:21)
+02. Not Bad (4:38)
+03. Stee-Wee (4:52)
+04. I'm Not Sure (4:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB79D2993AF43C7879C1654AF0FF5C17AF19F11D
+magnet:?xt=urn:btih:E7AA7DD419CD752B738D628B4FD09A7C2C20C806
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770098   (100596) от 30.12.2024
+###  Публикация: 1732086   (107519) от 23.06.2024
 
-Гарольд и Кумар уходят в отрыв / Harold & Kumar Go to White Castle (2004) BDRip [H.264]
+V.A. - Split Torso Trauma (2011) Split [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кореец Гарольд и индус Кумар снимают одну квартиру на двоих и все вечера после работы проводят вместе? укуриваясь в хлам. Хорошенько подымив в очередной раз, приятели решают пойти перекусить и, поддавшись на рекламу по ТВ, отправляются на поиски закусочной "Белый замок", где продают лучшие в мире бургеры...Производство: США, Канада, Германия / Endgame Entertainment, Harold & Kumar, Kingsgate FilmsЖанр: комедия, приключенияРежиссер: Дэнни ЛейнерАктеры: Джон Чо, Кэл Пенн, Нил Патрик Харрис, Дэвид Крамхолц, Эдди Кэй Томас, Паула Гарсес, Кристофер Мелони, Малин Акерман, Брук Д`Орсей, Энтони Андерсон, Райан Рейнольдс, Фред Уиллард, Итэн Эмбри, Роберт Тинклер, Стив БраунПеревод: дублированный (West Video), профессиональный многоголосый, авторский (Антон Карповский, с ненормативной лексикой)Язык озвучки: русский, английскийСубтитры: русские (на места без перевода и полные), английскиеПродолжительность: 01:28:23
+01. Antropofagus - Consumed By A Lacerating Desire
+02. Antropofagus - Eternity To Devour
+03. Putridity - Zombie Oral Sex
+04. Putridity - Necropedophile (Cannibal Corpse cover)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:36:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23345CDC7F7E8A1215368C632EC387020548CB34
+magnet:?xt=urn:btih:36980D9E0DCA99B620290F69FF653EE13AA84939
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770107   (100595) от 30.12.2024
+###  Публикация: 1731895   (107518) от 23.06.2024
 
-Пушистый переполох / A Doggone Adventure (2018) WEBRip [H.264/1080p]
+Rondelle55 - Qualitative Dissertation Methodology (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_100595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джек-рассел-терьер по кличке Мёрфи вырос в секретном научном центре и обладает сверхъестественной способностью: он умеет общаться с людьми. Однажды его находят дети, увлеченные расследованием таинственных происшествий. Теперь молодым детективам и говорящему псу предстоит не только разгадать тайну заброшенного поместья на окраине города, но и выяснить, как же Мёрфи (   Читать дальше...   )Производство: США / Team 5 Entertainment, Team4FilmsЖанр: приключения, семейныйРежиссер: Тони РэнделАктеры: Майкл Гальо, Джейден Хедден, Уокер Минтц, Джонатан Тайсор, Сидни Такрей, Фредди Джон Джеймс, Джарет Сакри, ДжессиПеревод: Дублированный (Видео Продакшн)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:32
+01. Happy Mother's Day Mums (2:04)
+02. Lucy Hong Nhung Velvet (3:03)
+03. Qualitative Dissertation Methodology (3:06)
+04. The Birds Sing to Yen (3:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF6C369DC5FB8227AFCA05F9BD66BBB20D5FBED6
+magnet:?xt=urn:btih:DB90E6E446A68546394E78DA365543E5933FA25F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770135   (100594) от 30.12.2024
+###  Публикация: 1732023   (107517) от 23.06.2024
 
-Сокс. Лучший друг семьи / Sox (2013) WEBRip [H.264/1080p]
+Antropofagus - No Waste of Flesh (1999) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_100594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новой семье трудно приспособиться, когда в их жизнь приходит очаровательная собака. Как только обнаружатся особые способности пса, местный ловец собак и Федеральное бюро по расследованию собак не остановятся ни перед чем, чтобы поймать его.Производство: США / Afflatus Productions, Core Faith MediaЖанр: комедия, семейныйРежиссер: Дж. ХортонАктеры: Дэвид ДеЛуис, Керри Фейрман, Джеймисон Хаазе, Дж. Хортон, Эйс Хантер, Эндрю Лоэр, Берл Моусли, Эшли Ноэль, Роберт Паркс-Валлетта, Донна ПьерониПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: Русский, английскийСубтитры: Русские (AI)Продолжительность: 01:19:32
+01. Welcome To My Slaughterhouse
+02. Love You In Decay
+03. Recollections Of Human Habits
+04. Thick Putrefaction Stink(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:41:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94D2A764F204FD170DFFFC09D9F8CE684E0AB29B
+magnet:?xt=urn:btih:668B41EA21484E834010C6013913CEECE56AF376
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770140   (100593) от 30.12.2024
+###  Публикация: 1731939   (107516) от 23.06.2024
 
-Бруно Ясенский | Избранные произведения [в 2-х томах] (1957) [DJVU]
+Sheppard - Zora (Zopa) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Australian indie pop>
 
->>Художественная литература
->>Современная поэзия и проза
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В настоящее издание вошли избранные произведения Бруно Ясенского, известного поэта, драматурга и романиста.Жанр: История, прозаИздательство: Художественная литератураФормат: DJVUКачество: Необработанный скан
+01. Zora [00:01:24]
+02. Daylight [00:03:14]
+03. Good Time [00:02:52]
+04. Got To Be Love [00:03:48](   Читать дальше...   )Жанр: Australian indie popПродолжительность: 00:47:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31CD21F5A1ED39AC18FCC0802CB229D784A22A9B
+magnet:?xt=urn:btih:E87AFC540CEB4338AE41B1406FF626C877D0996E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769692   (100592) от 30.12.2024
+###  Публикация: 1731881   (107515) от 23.06.2024
 
-Паутина преступления / The Crooked Web (1955) BDRip [H.264] [AVO]
+Max Esquivel - Formas (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм рассказывает о внешне добропорядочном владельце небольшого ресторана в Лос-Анджелесе, к которому подсылают двух правительственных агентов с тем, чтобы выманить его в Германию, где он должен предстать перед судом за совершённое им там восемь лет назад убийство.Производство: США / Clover ProductionsЖанр: фильм-нуар, драма, криминалРежиссер: Нэйтан ЮранАктеры: Фрэнк Лавджой, Мари Бланчард, Ричард Деннинг, Джон Майлонг, Гарри Лоутер, Стивен Рич, Луис Мэрилл, Винс Барнетт, Джордж Цизар, Джуди КларкПеревод: Авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:17:02
+01. Wiköl (9:12)
+02. Abril (4:37)
+03. Tres Hermanos (5:28)
+04. Cafezinho (5:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CAF330710BD23A5D47F2392A91E6638B10948B7
+magnet:?xt=urn:btih:4446B56085CE20A3A9DF04CEAA6260B0B9BEB822
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,28 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770088   (100591) от 30.12.2024
+###  Публикация: 1731859   (107514) от 23.06.2024
 
-V.A. - Music For Dreams, Best Of 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+My Diligence - 5 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <heavy psych, posthardcore, powerfull rock, stoner rock>
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Troels Hammer - I Done All I Could
-02. The Swan and The Lake - Primavera Gelato
-03. Jacob Gurevitsch - Morning View
-04. Ambala, Troels Hammer, Anders Ponsaing - Quiet Yellow Purple(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:42:33
+Список альбомов:
+My Diligence - 2014 - Who Killed the Driver
+My Diligence - 2015 - My Diligence
+My Diligence - 2018 - Sun Rose(   Читать дальше...   )Жанр: heavy psych, posthardcore, powerfull rock, stoner rockПродолжительность: 5 CD, 03:06:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:373B47AB8239D470137B9C9A7971D9353CCD372F
+magnet:?xt=urn:btih:83D92211EB18ED18D79EC95315F9A60B06865E2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770109   (100590) от 30.12.2024
+###  Публикация: 1731896   (107513) от 23.06.2024
 
-Гарольд и Кумар уходят в отрыв / Harold & Kumar Go to White Castle (2004) BDRip [H.264/720p]
+Sound Momentum - Blue Groove (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_100590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кореец Гарольд и индус Кумар снимают одну квартиру на двоих и все вечера после работы проводят вместе? укуриваясь в хлам. Хорошенько подымив в очередной раз, приятели решают пойти перекусить и, поддавшись на рекламу по ТВ, отправляются на поиски закусочной "Белый замок", где продают лучшие в мире бургеры...Производство: США, Канада, Германия / Endgame Entertainment, Harold & Kumar, Kingsgate FilmsЖанр: комедия, приключенияРежиссер: Дэнни ЛейнерАктеры: Джон Чо, Кэл Пенн, Нил Патрик Харрис, Дэвид Крамхолц, Эдди Кэй Томас, Паула Гарсес, Кристофер Мелони, Малин Акерман, Брук Д`Орсей, Энтони Андерсон, Райан Рейнольдс, Фред Уиллард, Итэн Эмбри, Роберт Тинклер, Стив БраунПеревод: дублированный (West Video), профессиональный многоголосый, авторский (Антон Карповский, с ненормативной лексикой)Язык озвучки: русский, английскийСубтитры: русские (на места без перевода и полные), английскиеПродолжительность: 01:28:23
+01. Short Is Fine (5:33)
+02. Be SeriousOnce (4:19)
+03. Back From Holidays (4:00)
+04. Mt Queen (4:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC7EE678E6EABE27479597985B2BA93BC5C3645C
+magnet:?xt=urn:btih:7E598C4B12823DA1A63790704BD6529EAD7E7FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,28 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769724   (100589) от 30.12.2024
+###  Публикация: 1732002   (107512) от 23.06.2024
 
-VA - Рождественский романс (2015) [MP3|320 Kbps] <Романсы>
+Barney Kessel - Contemporary Latin Rhythms! & Breakfast At Tiffany's (1957 - 1962) 2014, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Latin Jazz>
 
->>Pop
->>Советская эстрада, Ретро
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Юрий Визбор - Милая моя [00:02:03]
-02 - Елена Фролова - Сегодня таяло, сегодня… [00:03:14]
-03 - Тамара Гвердцители - Элегия [00:04:24]
-04 - Марина Капуро, группа Яблоко - Однозвучно гремит колокольчик [00:03:58](   Читать дальше...   )Жанр: РомансыПродолжительность: 01:19:37
+01. Blues In The Night [2:41]
+02. The Days Of Wine And Roses [2:32]
+03. Latin Dance No.1 [2:34]
+04. Lady Byrd [3:33](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Latin JazzПродолжительность: 01:18:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
+magnet:?xt=urn:btih:72F5C8F14D6CE85179981A5275638B277999B45C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,28 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769773   (100588) от 30.12.2024
+###  Публикация: 1732085   (107511) от 23.06.2024
 
-VA - Compilation part 136 Electronic (2024) [MP3|320 Kbps] <Electronic>
+Cavalera - Schizophrenia (2024) Re-Recorded [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jumanov - Mirage
-02. Akmalov - Living is Beautiful
-03. Azimov - Leave Me
-04. Jumanov - Fight for Life(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:22:33
+01. Intro
+02. From The Past Comes The Storms
+03. To The Wall
+04. Escape To The Void(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:43:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:195EA66C63D3617E1F62C1A18D3136D9487BC7C7
+magnet:?xt=urn:btih:657F3F17F344A1CE47F18AEAAF2BD982666170AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,26 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769812   (100587) от 30.12.2024
+###  Публикация: 1731903   (107510) от 23.06.2024
 
-Ф. Гутман, Л. Лайонс | Органические полупроводники (1970) [DJVU]
+Trut - T.S.Q: Method & Madness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Научная и техническая литература
->>Техническая литература
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемая вниманию читателей книга известных австралийских ученых Ф. Гутмана и Л. Лайонса является первым зарубежным изданием, в котором собраны и обработаны результаты исследований органических полупроводников, выполненных в нескольких тысячах оригинальных работ.
-В книге большое внимание уделено различным теоретическим подходам к изучению физики органических (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+01. Entrance (1:11)
+02. Tears Crusher (2:34)
+03. We Can't Lose Nothing Anymore (2:09)
+04. Drooling Tongue (3:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:30:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED1007E8166FEE9B5820041A3A978C4FEFC98974
+magnet:?xt=urn:btih:09B4C20F04C0841F1D2DA8F6F722DFC036A7CC76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -323,25 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770052   (100586) от 30.12.2024
+###  Публикация: 1731843   (107509) от 23.06.2024
 
-Без видимых причин / Sans mobile apparent (1971) BDRip [AV1/1080p] [10-bit] [VO]
+Darcy Stamp - It Doesn't Have To, But It Might (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главный герой — инспектор Стефан Карелла, он расследует убийства, происходящие одно за другим. Вначале убит состоятельный французский гражданин, затем старик, астролог. Первоначально кажется, что убийства не связаны друг с другом, но затем детектив находит некий дневник, который позволяет приблизиться к раскрытию дела.Производство: Франция, Италия / Cinétel, Euro International Film (EIA), Président FilmsЖанр: триллер, детективРежиссер: Филипп ЛаброАктеры: Жан-Луи Трентиньян, Доминик Санда, Саша Дистель, Карла Гравина, Поль Кроше, Лаура Антонелли, Жан-Пьер Марьель, Стефан Одран, Жиль Сегаль, Пьер ДоминикПеревод: Одноголосый любительский (ССК+, Русское видео)Язык озвучки: русский, французскийСубтитры: французскиеПродолжительность: 01:40:59
+01. Cassandra (7:17)
+02. It Doesn't Have To, But It Might (7:55)
+03. The Trolley Song (5:42)
+04. Blue Rondo à la Turk (4:17)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23E409670994F58B7F979F78584A4C328E92C0AE
+magnet:?xt=urn:btih:5BA38A7B8C64E8505785FA23D02C293956F625A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,26 +546,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770179   (100585) от 30.12.2024
+###  Публикация: 1732149   (107508) от 23.06.2024
 
-VA - The Magic of Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+The Mysterines - Afraid of Tomorrows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt Rock>
 
->>Классика
->>Классика (сборники) (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sergey Bryukhno - Carol of the Bells (Transcr. for Orchestra by Sergey Bryukhno) (1:12)
-02. Anastasia Calmus - Admirers (From A Slave of Love”)Жанр: ClassicalПродолжительность: 02:36:20
+01. The Last Dance [00:04:30]
+02. Stray [00:03:36]
+03. Another Another Another [00:03:19]
+04. Tired Animal [00:04:06](   Читать дальше...   )Жанр: Alt RockПродолжительность: 00:44:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B04DFD97CFC05C19B871DC47F2B622324FB6349D
+magnet:?xt=urn:btih:8DABF9B9B1EEEEDFAC12456BE86D55A6878F1D63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,26 +575,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770103   (100584) от 30.12.2024
+###  Публикация: 1732139   (107507) от 23.06.2024
 
-Микки: Однажды под Рождество / Mickey's Once Upon a Christmas (1999) WEB-DL [H.264/720p]
+Wasaya Feat. Aram Kalousdian - Curtain Falls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Микки, Минни и их знаменитые друзья Гуфи, Дональд, Дейзи и Плуто собираются вместе, чтобы рассказать в трех удивительных историях о волшебстве Рождества.
-Мини и Микки расскажут о том, как однажды решили подарить друг другу незабываемое Рождество. Гуфи и Макс поделятся впечатлениями о своих рождественских приключениях, а еще о том, как к ним в гости пришел настоящий (   Читать дальше...   )Производство: США, Южная Корея / Walt Disney Pictures,Жанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Джан Фалкенштейн, Алекс Манн, Брэдли РэймондАктеры: Келси Грэммер, Уэйн Оллвэйн, Расси Тейлор, Тони Ансельмо, Дайан Мишель, Тресс МакНилл, Алан Янг, Билл Фармер, Кори Бертон, Шон Флемминг и другиеПеревод: Дублированный (iTunes)Язык озвучки: русский, английскийСубтитры: Русские (Forced), Русские , EnglishПродолжительность: 01:05:53
+01. Burden Of Memories , Franck Hermanny (Adagio) & Aram Kalousdian) [00:07:49]
+02. Silence , Kristoffer Gildenlow (Ex. Pain Of Salvation) & Aram Kalousdian) [00:05:44]
+03. If I Leave Today , Andrea Arcangeli (DGM) & Aram Kalousdian) [00:05:36]
+04. Into Flesh And Blood , Johan Niemann (Evergrey) & Aram Kalousdian) [00:06:35](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:38:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A5DC6E50C55D92B4C1BA69DE7C75BECAC788FBD
+magnet:?xt=urn:btih:FD2D220582A333DE71DB821F3DA2EB0064664463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769270   (100583) от 30.12.2024
+###  Публикация: 1732134   (107506) от 23.06.2024
 
-Сергей Завьялов - 12 Albums, 20 Singles (2019-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Chanson>
+Сто к одному (23.06.2024) WEBRip [H.264/1080p]
 
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Волчонок [00:03:49]
-02. Хоп-хоп [00:03:21]
-03. Называли меня сирота [00:03:34]
-04. Со мною до конца [00:03:27](   Читать дальше...   )Жанр: Pop-ChansonПродолжительность: 12:56:07
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" – невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Бокс" против команды "Кикбоксинг"Язык озвучки: РусскийПродолжительность: 00:39:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:813703CD085EBB915BCA9EA5C2CDCB9C30B85384
+magnet:?xt=urn:btih:349BC3E00E2FA2FB0EF7C0360E764DCEBA720900
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,25 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770148   (100582) от 30.12.2024
+###  Публикация: 1731528   (107505) от 23.06.2024
 
-В.В. Еремин, Н.Е. Кузьменко, А.А. Дроздов и др. | Химия. Учебник для 11 класса (базовый уровень) (2022) [PDF]
+Kittie - Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Metal>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник продолжает курс химии для старшей школы, изложенный в учебнике «Химия. Базовый уровень. 10 класс» авторского коллектива преподавателей химического факультета МГУ им. М. В. Ломоносова.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+01 - Fire (00:03:28)
+02 - I Still Wear This Crown (00:03:42)
+03 - Falter (00:03:57)
+04 - Vultures (00:03:18)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:35:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CA76FCFDCBBFD46F2D9620E7E0160127EBC1834
+magnet:?xt=urn:btih:567013D330B67D91EBA58BB3EB2BDE651C703F9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,25 +662,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770152   (100581) от 30.12.2024
+###  Публикация: 1731919   (107504) от 23.06.2024
 
-С.А. Пузаков, Н.В. Машнина, В.А. Поп­ков | Химия. Учебник для 11 класса (углублённый уровень) (2022) [PDF]
+INK - African Roots (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник углублённого уровня включает основные сведения о строении ато­ма, химической связи, межмолекулярных взаимодействиях, термодинамике, кинетике и стехиометрии химических реакций, классификации и свойствах важнейших неорганических веществ. Особое внимание уделено медико-биоло­гическому значению химических процессов, химических элементов и их со­единений. Вопросы (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан + OCR
+01. Mitozan (2:38)
+02. Amazone (5:05)
+03. African Roots (5:13)
+04. Interlude I (0:57)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D57626AF087AC972E1CDFCA5226AF1D8D839F39D
+magnet:?xt=urn:btih:1173D0E8C95662AA63402C576FC592FF30F872E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,28 +691,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768969   (100580) от 30.12.2024
+###  Публикация: 1732058   (107503) от 23.06.2024
 
-VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2024) [MP3|320 Kbps] <Rock, Pop, OST>
+Memphis May Fire - Remade In Misery (2022) [FLAC|Lossless|tracks + .cue] <Post-Hardcore>
 
->>Other Styles
->>OST
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mike Shinoda & Emily Armstrong — Heavy is the Crown (01:42)
-02. Freya Ridings — I Can't Hear It Now (02:41)
-03. Marcus King — Sucker (03:44)
-04. Raja Kumari & Stefflon Don — Renegade (We Never Run) (feat. Jarina De Marco) (02:41)(   Читать дальше...   )Жанр: Rock, Pop, OSTПродолжительность: 01:02:24
+01. Blood & Water
+02. Bleed Me Dry
+03. Somebody
+04. Death Inside(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:37:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:130573064FD08C595A2340D0D76C4D1439285A5A
+magnet:?xt=urn:btih:4458E7A69F2529FBE69FDEA40B92922E3D6617DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,186 +720,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770016   (100579) от 30.12.2024
+###  Публикация: 1731910   (107502) от 23.06.2024
 
-Сергей Нечаев | Экономика. Для тех, кто про нее не может слышать (2023) [MP3, Игорь Пронин]
+Bruno Hubert Trio - Fire Waltz (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Какова история денег? Почему США всем рулят? Как увеличить доход и уменьшить расходы? Эта аудиокнига предложит вам простые ответы на непростые вопросы, а также докажет, экономика – это доступно и крайне увлекательно!
-Экономика присутствует в нашей жизни каждый день, ведь каждый день мы заглядываем в кошелек и за что-то кому-то платим. Это бытовая повседневная экономика. (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 10:17:04
+01. I Fall In Love Too Easily (8:02)
+02. Golden Earrings (7:58)
+03. I've Grown Accustomed To Her Face (6:44)
+04. Con Alma (8:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:09:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAF3D72FEE2C3382E75270106567F7AB41C611B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769819   (100578) от 30.12.2024
-
-Ч. Киттель | Статистическая термодинамика (1977) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100578.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой книге, посвященной статистической физике и термодинамике, особое значение имеет общая методическая идея автора в построении ставшего, казалось бы, уже традиционным курса, посвященного физике тепловых явлений.
-Основная цель книги состоит в том, чтобы последовательно изложить основные положения современной физической статистики и ряд ее применений для (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F524D2C1F60FF2BD0BD55C1BFD6310706198A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770034   (100577) от 30.12.2024
-
-Hauma: A Detective Noir Story (2023) [Multi] (1.05) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hauma - это визуальный роман в стиле нуар с дедукцией, действие которого происходит в самом сердце Мюнхена. Почувствуйте себя Джудит, бывшим детективом с острым умом и талантом доводить дела до конца, и раскройте заговор среди высших слоев городского общества. Исследуйте реальные места в уникальном художественном стиле, погружаясь в мир столицы Баварии.Тип издания: LicenseРазработчик: SenAm GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACADD59162534E0BD6507FC38A7C446CDF6CB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770043   (100576) от 30.12.2024
-
-Журнал | Знание-сила №1 (1171) (январь 2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC54C596219CF05322C79C213C181602900AA70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769825   (100575) от 30.12.2024
-
-Джейн Чизхолм, Эн Миллард | Ранние цивилизации (1994) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Ранние цивилизации» рассказывает о расцвете первых мировых цивилизаций Египта и Месопотамии, охватывая период с 3 тыс. лет до н.э. до Римского завоевания. Здесь также говорится о первых цивилизациях Индии и Китая, которые существовали в тот период. В книге дается полный обзор всего исторического периода с аспектами повседневной жизни.
-Издание прекрасно иллюстрировано, (   Читать дальше...   )Жанр: энциклопедияПеревод: A.M. ГоловИздательство: РосмэнФормат: PDFКачество: Обработанный скан+ OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9844D0D5506B00375345337C7D0FDE834BE9A370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770049   (100574) от 30.12.2024
-
-Журнал | Information Security / Информационная безопасность №6 (декабрь 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тематика журнала – информационная безопасность и все, что с ней связано. По мере развития IT технологий, проблема их безопасного использования становится год от года все актуальнее. Вот почему главной задачей журнала является ориентирование потребителя в море новых решений в этой области.Жанр: Безопасность серверов, сетей и информацииИздательство: ООО "Гротек"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E034F1E049A07B556AADD30D7E6C073E6D07C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769823   (100573) от 30.12.2024
-
-Джейн Чизхолм | Мировая история в датах (1994) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100573.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мировая история в датах» — прекрасная, богато иллюстрированная книга. Она будет полезна всем, кто интересуется историей и культурой.
-Читатель отправится в увлекательное путешествие во времени и пространстве, пред ним наглядно предстанет единое человечество со всеми его противоречиями.
-Эта книга — удачная попытка синхронного изложения важнейших событий в огромном (   Читать дальше...   )Жанр: энциклопедияПеревод: М.Ц. Шабат и Е.В. КомиссаровИздательство: РосмэнФормат: PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4521F08F11B77809B783F11A2523B3DDE41B9C86
+magnet:?xt=urn:btih:08BE2D20FA798EABB0E9A3FECA0232F3D405BAA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

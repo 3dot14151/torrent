@@ -1,3 +1,90 @@
+###  Публикация: 1345129   (165012) от 17.12.2019
+
+Jean Michel Jarre - Images: The Best Of Jean Michel Jarre (1991) Compilation, Reissue, 1992, Disques Dreyfus [FLAC|Lossless|image + .cue] <Ambient, New-Age, Experimental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Oxygene 4 [3:09]
+ 02 - Equinoxe 5 [3:22]
+ 03 - Chants Magnetiques 2 [3:57]
+ 04 - Oxygene 2 [3:12](   Читать дальше...   )Жанр: Ambient, New-Age, ExperimentalПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11C17AA8285C03657C6CC1FBE7C2FBCBF948968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597539   (164103) от 17.12.2022
+
+VA - Yoga Music Session 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Estación Del Mar - A La Sombra De Un Roble (4:24)
+02. Dyan Garris,Sherry Finzer - Forest Whispers (5:20)
+03. Dellasollounge - Fantasy (Original Mix) (5:23)
+04. Ann Grace - Intromotion (1:35)(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E3AFCF2F93F6220FBAC64C2C3C9FAD749FCA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597528   (164085) от 17.12.2022
+
+VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigerforest - Bellefontaine (Original Mix) (5:33)
+02. Dharma Frequency - Floating Dreams (Original Mix) (4:00)
+03. Elmara - Northern Lights (Original Mix) (3:38)
+04. Eskadet - Te Revoir (Original Mix) (6:37)(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579333AF9AC08D38FF92CEA1BF085186E292D57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597822   (164080) от 17.12.2022
 
 Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
@@ -664,93 +751,6 @@ Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681768   (132348) от 04.12.2023
-
-Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dendera (11:05)
-02. Pillars of Eternity (9:28)
-03. Of Lapis and Gold (11:36)
-04. Hieroglyphs and Mysteries (10:00)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525666   (129244) от 21.01.2022
-
-Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pearl of My Life (3:23)
- 02. Heartache (3:40)
- 03. Youth, Love and Fantasy (3:39)
- 04. Love Connection (4:55)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD1FBE80C273C0B96F2429D804E811E2E2F8D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525545   (129190) от 21.01.2022
-
-Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris by Night (3:51)
- 02. Sourire (4:26)
- 03. Seine (3:39)
- 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

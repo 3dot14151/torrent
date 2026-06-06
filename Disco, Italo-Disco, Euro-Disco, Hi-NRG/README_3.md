@@ -1,3 +1,61 @@
+###  Публикация: 1089193   (953751) от 02.01.2017
+
+Mark Ashley - Greatest Hits II (2013) [MP3|320 Kbps] <Disco,  Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Not Alone
+02. It's All Over
+03. You Are My Paradise
+04. Destination Love(   Читать дальше...   )Жанр: Disco,  Euro-DiscoПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133E9798AE41324B76CEF491062A743640D3CF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362112   (951109) от 22.02.2020
+
+The New Marketts - Step On It (1977) LP [MP3|320 Kbps] <Disco, Instrumental, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Coaxing (2:47)
+02. Mary Hartman, Mary Hartman (You Have Never Been In Love) (2:54)
+03. Smile Happy (2:46)
+04. African Lightning (3:07)(   Читать дальше...   )Жанр: Disco, Instrumental, Funk SoulПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1B504D564717B258C1186A4C11630412474D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362022   (951067) от 22.02.2020
 
 Funkaloo - Robot Dancer (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -682,64 +740,6 @@ VA - ZYX Italo Disco New Generation Vol. 16 (2020) 2CD, Compilation [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:136E4008BEC31CE340F0FA9C49D547225DADEE56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100729   (899370) от 04.02.2017
-
-VA - Let's Go Into Space (2012-2015) 4LP [MP3|320 Kbps] <Electronic, Cosmic Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный комплект официального издания сборников космического диско 70-80х годов от германской студии Private Records, выпущенных недавно на виниле.Список альбомов:
-2012 - Let's Go Into Space I
-2013 - Let's Go Into Space II
-2014 - Let's Go Into Space III(   Читать дальше...   )Жанр: Electronic, Cosmic DiscoПродолжительность: 02:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BB6DE268894B36BAF96A0B2FA30EC21EDAB6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370418   (897031) от 27.03.2020
-
-Branjo Sound - I Wanna Dance Bump (1978) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cock A Doodle Do (5:30)
-02. Thank You Baby (5:02)
-03. That's Good (4:21)
-04. I Wanna Dance Bump (4:08)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73C91F04E006F8DCCA52A7A3CF6993860362B6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

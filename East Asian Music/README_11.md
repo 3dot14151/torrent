@@ -1,3 +1,160 @@
+###  Публикация: 937766   (485139) от 16.09.2015
+
+Loli-Hunter Music - 7 альбомов (2009-2012) Touhou Instrumental /Doujin/ [FLAC|tracks] <Harcore, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2012.07.09 (LHCD-TH007) Bring Back the '98!
+2012.08.22 (LHCD-TH008) Distant Again
+2012.11.10 (LHCD-THS003) Songs of AyaТип издания: DoujinЖанр: Harcore, ElectronicФормат: Touhou InstrumentalПродолжительность: 00:04:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6F7C257253C3D26E4809A693950717E274D15A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544967   (484969) от 10.09.2012
+
+Liang Xu - Three Times (2011) [MP3|320 кб/с]<World, New age>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484969.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:42) 01. Rise
+(5:13) 02. Three times (past, present, future)
+(4:35) 03. Sound of water from Lu and Gu
+(4:11) 04. Free great wisdom (pradjna)
+(3:47) 05. Sagadawa
+(4:06) 06. Passing by Hulunbuir
+(3:32) 07. Moon at highlands
+(3:30) 08. Nomadic sun
+(4:26) 09. Distant Mongke Tengri
+(4:06) 10. Pilgrimage roadЖанр: World, New ageПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB5BCD918B2FDF43760B44D45C8648FB90CC65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 699550   (484539) от 14.09.2013
+
+Yoshio Kimura - 13 albums (1995-2012) [MP3|320 кб/с]<Instrumental>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484539.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (00:58:26):
+(3:13) 01. Anata Dake O
+(3:42) 02. Miserarete
+(3:34) 03. Fuyu No Riviera
+(3:19) 04. Koyubi No Omoide
+(2:20) 05. Ai No Kiseki
+(2:31) 06. Shiroi Blanco
+(2:38) 07. Yoake No Scat
+(2:40) 08. Kinjirareta Koi
+(2:43) 09. Aruhi Totsuzen(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D644AB0F816677DACB5E4D02D31C9FED54DBFDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938067   (483940) от 17.09.2015
+
+Like a rabbit - 23 альбома (2008-2011) Touhou Vocal, Instrumental, Vocaloid /Doujin/ [FLAC|tracks] <J-Pop, Eectonic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2010.10.11 (LRCD-0018) SKY PHILIA (Kouroumu 6)
+2011.05.08 (LRCD-0020) distribution (Reitaisai 8)
+2011.08.13 (LRCD-0021) Kazekaoru Shinkou ~ One Thousand Breeze (C80)Тип издания: DoujinЖанр: J-Pop, EectonicФормат: Touhou Vocal, Instrumental, VocaloidПродолжительность: 00:15:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B905C8FF5FCD5CF6B2BDBE84DF66940EADE2EAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938063   (483847) от 17.09.2015
+
+C.H.S. | Cutie & Headshaking Sounds - 26 альбомов (2005-2015) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <Harcore, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2014.10.26 (CHS-0018) deposition e.p.2 (M3-34)
+2014.12.30 (CHS-0019) KAKATTEKOYEAH!!!! (C87)
+2015.04.26 (CHS-0020) R.U.U.K! (M3-35)Тип издания: DoujinЖанр: Hardcore, ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:20:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B9253C6415A1956B88162AE8E78CC19C36965A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938066   (483744) от 17.09.2015
 
 Kraster - 26 альбомов (2008-2013) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop, J-Rock>
@@ -615,164 +772,6 @@ VA - Treasure Edition, Chinese Music Classics Of The 20th Century (2004) 24 CDs 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944004   (444608) от 05.10.2015
-
-Toru Takemitsu (武満徹) - The Film Music Of Toru Takemitsu (1997) [FLAC|Lossless]<Modern Classical, Experimental, Score>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music From Rikyu (15:15)
-02. Music Of Training And Rest (From Jose Torres) (04:44)
-03. Funeral Music (From Black Rain) (04:12)
-04. Waltz (From The Face Of Another) (02:13)(   Читать дальше...   )Жанр: Modern Classical, Experimental, ScoreПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0922F93F674B47B3E768C30FF7D21C60C94BF6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553002   (443533) от 28.09.2012
-
-Kinoco Hotel - 3 альбома (2010-2011) [MP3|192 кб/с]<J-Rock, J-Pop>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinoco Hotel shouka II [2:12]
-02. Shiroi heya [4:06]
-03. Hijou naru yoake [3:02]
-04. Kiken na uwasa (Shukujo shiyou) [3:39]
-05. Fuukei [8:19]
-06. Kinoko no torico [2:31]
-07. Ningyo no koi [2:53]
-08. Kouya he  [4:56]
-09. Aijin kyouhan sekai [3:01]
-10. Marianne no koukotsu [6:07](   Читать дальше...   )Жанр: J-Rock, J-PopПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039B6DC655266ED99447FB13CB1847554147ED5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945018   (437290) от 08.10.2015
-
-Rokugen Alice - 32 альбома (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock, Gothic/Symphonic Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2013.08.12 (RGOT-0001) Fushigi no Kuni no Oto Tetsuraku ~ Mayakashi-hen (C84)
-2014.08.16 (RGOT-0003) Fushigi no Kuni no Oto Tetsuraku ~ Yumegatari-hen (C86)
-2014.12.29 (RGOT-0004) Fushigi no Kuni no Oto Tetsuraku ~ Aku no Mesame (C87)Тип издания: DoujinЖанр: J-Rock, Gothic/Symphonic MetalПродолжительность: 00:17:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3B81BBE0E18161A05DE707831E341AA4B2828D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554936   (433811) от 02.10.2012
-
-VA - Sound Of The Crystal Energy (4 albums) (2009) [MP3|320 кб/с]<Instrumental, Healing>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433811.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Words of the Mountain
-
-(24:06) 01. Words of the Mountain
-
-CD2 - Love of the Earth
-
-(21:17) 01. Love of the EarthЖанр: Instrumental, HealingПродолжительность: 00:45:23
-
-Love and blessing are the ultimate forces that could bring life back to the universal origin and to become one with nature; they also come to be feng shui’s highest state. When our hearts are filled with love and blessing, we would then possess the most blissful and beautiful spiritual feng shui. “The Heart of Blessing” transmits the energies of the mountain and earth through crystal music, and allows for the love in the heart to be firm like the mountain and vast like the earth. It is then transformed into boundless blessings to be shared with all things in the universe.
-
-Любовь и благословение - окончательные силы, которые могли возвратить жизнь универсальному происхождению и стать один с природой; они также становятся самым высоким государством фэншуй. Когда наши сердца заполнены любовью и благословением, мы тогда обладали бы самым блаженным и красивым духовным фэншуй. “Сердце Благословения” передает энергии горы и земли через кристаллическую музыку, и учитывает любовь в сердце, чтобы быть устойчивым (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0B98F2CF8A95BF216BE8B67CF1DA8D95B849CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945418   (433111) от 10.10.2015
-
-Shoujo Byou - 26 альбомов (2004-2012) /Doujin/ [FLAC|tracks] <J-Rock, Gothic/Symphonic Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2011.12.31 (GIRL-2002) Vision -Seiyaku no Heikairo Shikkoku no Otome- (C81)
-2012.04.11 (LACM-4913) unleash
-2012.08.10 (GIRL-1009) Sousyou Crossline (C82)Тип издания: DoujinЖанр: J-Rock, Gothic/Symphonic MetalПродолжительность: 00:18:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D36ACED4958CF25D9199095BF4DA16B7B2C1831
 ```
 
 https://mybot314.ru/tekegram_catalog/

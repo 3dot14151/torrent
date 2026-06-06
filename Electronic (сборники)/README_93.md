@@ -1,3 +1,90 @@
+###  Публикация: 1223571   (671639) от 06.05.2018
+
+VA - Red Rythm Evolution (2018) [MP3|320 Kbps] <Eurodance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые сливки клубной музыки в стиле евроданса в микстайпе "Red Rythm Evolution" обрадуют любителей этого музыкального направления. Целых сто двадцать композиций дарует море драйва и позитивного настроения.001. Ace Of Base - My Deja Vu
+002. Pumping Guys - Lose Control (Original Mix)
+003. Masterboy - And I Need You
+004. Brasslover - Step Back (Dub Mix)(   Читать дальше...   )Жанр: Eurodance, Club, HouseПродолжительность: 07:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26BE437C2CEFA0063DF54B8804E53EDD050E5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136808   (671135) от 24.05.2017
+
+VA - Synthetic  vol.6 (2017) [MP3|320 Kbps] <Synth Pop, EBM, Dark Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funker Vogt - Traumatic Event (DJ Bim Remix) (06:59)
+02. Accessory - At The End (04:38)
+03. Toys No More - Ich Atme Und Tanze (03:52)
+04. Leaether Strip - Paranoia Nr13 (Kant Kino Kontrasts) (04:58)(   Читать дальше...   )Жанр: Synth Pop, EBM, Dark ElectroПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353444CBAA299D44C22CDE20027FB91610424AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537064   (670965) от 14.03.2022
+
+VA - Atomic Pulse: Psy Trance Euphoria (2022) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psy Trance – это музыкальная интерпретация чистой энергии. Этот стиль уже давно ушел глубоко в машинное звучание, и в результате звуки уже не соотносятся с реальностью. Звуки стали некоторой субстанцией, созданной человеком, но живущими самим по себе. Из таких звуков и составляется эта музыка, складываясь сложным рисунком с причудливыми формами, каждая из которых (   Читать дальше...   )001. Underhead - Skuff 1
+002. Derotonin - Panfloozy
+003. Satya - Let Shit Happen
+004. N-Kore - Fried Sequencer(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFECE18880F574CC5D9D7219EBEF545F62D4FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536865   (670872) от 14.03.2022
 
 VA - Stardust 01: Vocal House Mixed (2022) [MP3|320 Kbps] <Vocal House, Dance, Electro>
@@ -660,93 +747,6 @@ VA - TOP 100 Club (June) (2016) [MP3|320 Kbps] <House, Electro House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90D950EDE7D57CAF339623FBC557EFF647CF663F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031320   (668580) от 03.07.2016
-
-VA - Relax to House Vol.1 (2016) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3SE - Adio (Pascal Junior Remix)
-02. Abraham Ruiz & Tewax - Fuck Du Follow (Original Mix)
-03. Affkt feat. Haptic - Fixate (Original Mix)
-04. Alan Walker - Sing Me To Sleep (PARKX Extended Mix)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 11:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686A2DB97FDA4948C3084E4C57E6EE278E9807B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224055   (668176) от 08.05.2018
-
-VA - Deep House Decipherments 008 (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668176.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dani Corbalan - City Lights (Original Mix)
-002. Nina Lares - You And I
-003. Raum+Zeit - My Game
-004. Taylor Osbourne - Moving Up(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B0ABD4227FD67D6663623CBFCA1FD312FCFF27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224062   (668175) от 08.05.2018
-
-VA - Interstellar Techno Mix (2018) [MP3|320 Kbps] <Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам по вкусу актуальная электро музыка, которая будет радовать где бы вы не были, то лучше что сможем, это предложить вам свежий техномикс под названием "Interstellar Techno Mix". Мелодии микса звучат крайне современно и приятно, в связи с чем она обещает быть интересной большому количеству меломанов электронной музыки.001. The Fog vs Chus & Ceballos - Been A Long Time (Mark Knight Remix)
-002. 4Tune500 - Dancing in the Dark (Mark Jenkyns Remix)
-003. Aldo Hertz - Saturno Illuminated (Original Mix)
-004. Gisella - I Will Never (Andrea Giungo Remix)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 12:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30468B1BB956DF64A888178C243F26B261B4E63
 ```
 
 https://mybot314.ru/tekegram_catalog/

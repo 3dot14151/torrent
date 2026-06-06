@@ -1,3 +1,32 @@
+###  Публикация: 1001983   (850469) от 30.03.2016
+
+Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Military, New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember Me Prelude    00:51
+02. Fiesta Patria    03:14
+03. Thirty-One Nights    03:59
+04. The Swallows of Na' Lu'um    05:29(   Читать дальше...   )Жанр: Brass & Military, New Age, InstrumentalПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF345B827B00440BF4974F4DD912CB00C832D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111353   (848175) от 05.03.2017
 
 Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 13 CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, New Age>
@@ -708,35 +737,6 @@ Asian Zen - Valentine’s Healthy Rituals (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D838EB07F6FC0C3C461333324EBCE4463B0B710F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379924   (830754) от 04.05.2020
-
-Salvador Candel - Tocando Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bailando en las estrellas 03:02
-2. Eternidad 05:05
-3. Tocando cielo	04:41
-4. Abrazando a la tierra 08:49(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A194CA22B59CB6D82EBD3A089359778BCDA401D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

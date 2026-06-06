@@ -1,3 +1,142 @@
+###  Публикация: 572843   (377769) от 11.11.2012
+
+Jane Air - 6 альбомов + 10 синглов + 2 EP + Live (2001-2012) [MP3|320 кб/с]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AlternativeПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F702C3DAAFD30FE3C4EE8D1C1A1B7B61662E55E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069009   (377628) от 02.11.2016
+
+Ленинград - Очки Собчак (2016) Single [MP3|320 Kbps] <Rock>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Очки СобчакЖанр: RockПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF40D380616A572B443D09EE462F5B4343A03E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254102   (377509) от 12.10.2018
+
+VA - Охота 84 (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deviltears - Верни мне сердце
+02. Александр Шумнов - Наше детство
+03. Долбушина и Пугач - Опять снишься
+04. El Mashe - Б.Б.Б.(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA683160E704BC83F52524A44DAEDE452370DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575263   (377107) от 09.09.2022
+
+Ермен Анти & Art Chaos Community - Груз 2022 (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Новая искренность [00:01:36]
+02 - Невесомости нет [00:03:08]
+03 - Огонь по штабам [00:04:07]
+04 - Под домашний арест [00:05:37](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1E1E39B10EAA51B762A210C7B646B67F8DF0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575459   (377007) от 09.09.2022
+
+Найк Борзов - Потерянный среди звёзд (Акт II) (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пещерный
+2. Совместимость
+3. Не плачь
+4. Переход(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B978576C9D7B7A6F862022FF27F77386BD9A9BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 14662   (376200) от 24.09.2019
 
 Наталья Маркова и группа Двуречье - Светозар (1995)
@@ -607,148 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A2BD449868DD03FD1D2987EB1AB4E1F7299421B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176735   (369190) от 22.10.2017
-
-Ленинград - Кандидат (2017) Single [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369190.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. КандидатЖанр: Rock, SkaПродолжительность: 00:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0646107E468B40D5BDA87E6AAFC9760C5E673CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070214   (368795) от 06.11.2016
-
-nobody.one - No Care (2016) [MP3|320 Kbps] <Instrumental Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elastic
-02. Watergirl
-03. Razoresolve
-04. Heroin(   Читать дальше...   )Жанр: Instrumental Rock, Alternative RockПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A487C4A533510B67F82696ACDDC861D5A236E4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328048   (368163) от 28.09.2019
-
-ЭлектропартиZаны - Небо над Чевенгуром (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368163.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Небо над Чевенгуром
-2. Аполит
-3. Черная весна
-4. Электрический хаос(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE902AFBCA00C21EF5561DFADB5F4F562A0A599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255103   (368061) от 16.10.2018
-
-Мумий Тролль - Вечерний чай (2018) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368061.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На перекрёстках судьбы (live; версия 2018)
-2. Инопланетный гость (live)
-3. Девочка (live)
-4. Утекай (live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6F4EAAE52182D986C0B7D212A9D4961111621B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255104   (368050) от 16.10.2018
-
-Мумий Тролль - Морская.20 (2018) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368050.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Воспитанник упавшей звезды (live)
-2. Вдруг ушли поезда (live)
-3. Девочка (live)
-4. Утекай (live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5F6B37E4A6CC8B48CE3EB5C47233916B0894B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

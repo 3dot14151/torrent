@@ -1,3 +1,322 @@
+###  Публикация: 1577945   (350165) от 21.09.2022
+
+Marillion - Holidays In Eden (1991) 3CD, Deluxe Edition, 2022 [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cover My Eyes (Live at Hammersmith, 30/09/1991) [00:03:55]
+02. Lords of the Backstage (Live at Hammersmith, 30/09/1991) [00:01:51]
+03. Blind Curve (Live at Hammersmith, 30/09/1991) [00:04:14]
+04. The Uninvited Guest (Live at Hammersmith, 30/09/1991) [00:04:24](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 3 CD, 02:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2D84938010B0F90B2F7674D788355E7D6C94B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329816   (350156) от 06.10.2019
+
+Shanghai - Shanghai (1982) LP [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SOS (3:27)
+02. Always A Rebel (4:09)
+03. X-Ray Vision (4:59)
+04. I Need Your Love (3:46)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D72C6C2C6AB8310061DFC24D811965F7024374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578045   (350070) от 21.09.2022
+
+Grydgaard - Secrets from the Palace (2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting Sheep (05:28)
+02. In Harmony (04:05)
+03. Lifeless People (06:24)
+04. Palace of Peace (04:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7907952715AA320FB052976A38C8DA8855051EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578042   (350062) от 21.09.2022
+
+Grace From Gadgets - Grace From Gadgets (2022) [MP3|320 Kbps] <Progressive Rock, Prog Related>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buried in the Air 04:55
+02. Closer Than the Beat is to the Heart 03:53
+03. I Wish for a Lot of Things 03:30
+04. My Ghosts 04:04(   Читать дальше...   )Жанр: Progressive Rock, Prog RelatedПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C680002E247A58F961DC73107C73EF6FECF7FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578141   (350038) от 21.09.2022
+
+Millenium - Tales from Imaginary Movies (2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tales from Imaginary Movies (The Opening Credits) [00:02:15]
+02 - Invisible Superhero [00:07:44]
+03 - A World Full Of Spies [00:04:59]
+04 - Brightness Hidden In The Dark [00:07:22](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA5935EB3171CEAB6CA4F0D42684D736EEA30B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854594   (349722) от 14.11.2016
+
+On-The-Go - 4 альбома + 6 синглов + 3 EP`s (2008-2016) [MP3|320 кб/с]<Indie Rock, Math, Indie, Dance Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская группа On-The-Go, исполняющая песни на английском языке. Музыку On-The-Go можно описать как многогранный инди-рок, наполненный романтичными текстами о бескрайней природной стихии, любви и наших внутренних переживаниях.Albums:
+2009 - On-The-Go
+2012 - November
+2014 - Young Hearts(   Читать дальше...   )Жанр: Indie Rock, Math, Indie, Dance Rock, ElectronicПродолжительность: 04:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1A45992D4C45AE29BC38F8E9CE8943056974A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418433   (349287) от 24.10.2020
+
+Kadavar - The Isolation Tapes (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I - The Lonely Child (06:19)
+ 02. II - I Fly Among the Stars (04:48)
+ 03. III - Unnaturally Strange (_) (03:28)
+ 04. IV - (I Won‘t Leave You) Rosi (05:16)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE49B4971B366B6398AE45C222E1F298CB627E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179413   (348913) от 31.10.2017
+
+Deep Purple - Classic Songs Live In Concert (2017) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway Star
+02. Into The Fire
+03. Hard Lovin’ Man
+04. Strange Kind Of Woman(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA31BFCADE315250C5EECE0293DDFF0F5584FFFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 838503   (348887) от 06.11.2014
+
+Queen - Forever (2014) 2 CD, Deluxe Edition [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me In Your Heart Again (Remastered 2014)
+02. Love Kills (The Ballad)
+03. There Must Be More To Life Than This
+04. Play The Game (Remastered 2014)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251294C80CEB4C31A926A77082E9ECE0466B26D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578371   (348166) от 22.09.2022
+
+Mutautu - 2 Albums (2019-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruins [00:04:20]
+02. Lost Shoes Blues [00:06:23]
+03. Hear Them Coming [00:04:16]
+04. Graveyard Of Giants [00:05:09](   Читать дальше...   )Жанр: Heavy Psych, Stoner, Bluesy RockПродолжительность: 2 CD, 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6A5154E000D3E139DF36E485AFE8E5F7DE9B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578306   (348165) от 22.09.2022
+
+Stratovarius - Fright Night (1989) Remastered, 1994, Victor [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Shock 	4:33
+02. False Messiah	5:16
+03. Black Night    	3:40
+04. Witch-Hunt      	3:19(   Читать дальше...   )Жанр: Rock, Speed Metal, Heavy MetalПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7308C6E5CE58FACAA4FFDB82DBA892EF0F4FE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578365   (348164) от 22.09.2022
 
 Stratovarius - Dreamspace (1994) Remastered, 1994, T&T [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Metal>
@@ -423,325 +742,6 @@ Green Grey - WTF?! (2016) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F5696AECF5DA2C513344022138C1162E3C75F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 793732   (342600) от 27.10.2018
-
-Anathema - 11 Studio Albums, 3 Live Albums, 6 Compilations (1993-2018) [MP3|320 кб/с]<Doom, Death Metal (early), Atmospheric, Progressive Rock (late)>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342600.jpg" />
-</div>
-
-
-###  Подробнее
-
-1993 - Serenades (Remastered 2003)
-1995 - The Silent Enigma (Remastered 2003)
-1996 - Eternity (Remastered 2003)
-1998 - Alternative 4 (Remastered 2003)(   Читать дальше...   )Жанр: Doom, Death Metal (early), Atmospheric, Progressive Rock (late)Продолжительность: 22:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D74ADACE6D33C2895A349E821E2774DD3E79C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419201   (342199) от 27.10.2020
-
-Ose - Adonia (1978) Reissue CD, 2017, Amphonotones [MP3|320 Kbps] <Electronic, Prog Rock, Ambient, Minimal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Approche Sur A  (16:01)
-02. Orgasmachine  (3:42)
-03. 29 h 08 mn  (6:59)
-04. L'aube Jumelle  (9:50)(   Читать дальше...   )Жанр: Electronic, Prog Rock, Ambient, MinimalПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9908E73F1013457C67E3066994A10BE160311855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180370   (342082) от 03.11.2017
-
-Bryan Adams - Ultimate (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342082.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Go Down Rockin'
-2. Can't Stop This Thing We Started
-3. Run To You
-4. Ultimate Love(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84BB3FBAD71378795BCCF8855B27E1B77DD5901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419255   (342057) от 27.10.2020
-
-Looking-Glass Lantern - A World of Great Invention (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Came into the Home (06:02)
- 02. The Letter (04:14)
- 03. A New Freedom (04:49)
- 04. Inside a World of Wonder (10:42)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3517ECABDC7C185E4DEF812C049CAE82CD3149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419206   (342055) от 27.10.2020
-
-The Flower Kings - Islands (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342055.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Racing With Blinders On (04:33)
- 02. From The Ground (04:11)
- 03. Black Swan (05:58)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B88C957EA8DEC7C4F6EE831171169480F118AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578910   (341225) от 25.09.2022
-
-Stratovarius - Fourth Dimension (1995) Remastered, 1995, T&T [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Against The Wind	3:48
-02. Distant Skies	4:10
-03. Galaxies	5:01
-04. Winter	6:32(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93270397D901B850D4A2D2C612B11B71460B1FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578904   (341223) от 25.09.2022
-
-Stratovarius - Intermission (2001) [OGG Vorbis|484 Kbps] <Rock, Prog Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will My Soul Ever Rest In Peace?	4:58
-02. Falling Into Fantasy	5:15
-03. The Curtains Are Falling	4:26
-04. Requiem	2:56(   Читать дальше...   )Жанр: Rock, Prog Rock, Heavy MetalПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F8A58618368D7C33167D28E26AE97385325338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579000   (341219) от 25.09.2022
-
-Black Angel - 5 Albums (2019-2022) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe [00:04:10]
-02. Black Rose [00:03:40]
-03. All or Nothing [00:05:43]
-04. Take Me Down [00:04:52](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 5 CD, 03:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222444A7450BD16F59AF428550AC6543E2C4CFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330410   (341009) от 10.10.2019
-
-Freddie Mercury - Mr. Bad Guy (1985) Special Edition, Remastered, 2019 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Turn It On (3:42)
-02. Made In Heaven (4:07)
-03. I Was Born To Love You (3:39)
-04. Foolin' Around (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2255DE5BF92434632D50A66BCC9AF8C7E566DD4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578924   (340959) от 25.09.2022
-
-Chris Rea - The Best Of Chris Rea (1994) [OGG Vorbis|484 Kbps] <Rock, Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell
-02. Josephine
-03. Let's Dance
-04. Fool (If You Think It's Over)(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5003F43189CADCBBE210EEE079AD7AF2B17F4949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258001   (340888) от 28.10.2018
-
-AC/DC - Fort Lauderdale 6th September 1977 (2018) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Wire (6:23)
-02. Hell Ain't a Bad Place to Be (4:30)
-03. Whole Lotta Rosie (5:45)
-04. The Jack (9:55)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B56B94F1F13191AC5F865E138585C9B044D4755
 ```
 
 https://mybot314.ru/tekegram_catalog/

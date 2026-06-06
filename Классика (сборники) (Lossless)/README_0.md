@@ -1,3 +1,32 @@
+###  Публикация: 992288   (902418) от 01.03.2016
+
+VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Classic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902418.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD1: 
+01. Sarah Brightman -  Time To Say Goodbye (Quarantotto) (4:07)
+02. Il Divo -  You Raise Me Up (Lovland) (4:02)
+03. Nigel Kennedy -  Czardas ((Monti) (5:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: СD1: 01:14:49; CD2: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD12FD85EFC495BE19EAD94D7812A598C91CD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992342   (902391) от 01.03.2016
 
 VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks + .cue] <Classical>
@@ -714,35 +743,6 @@ VA - Great Romantic Piano Favorites (The World's Most Beautiful Melodies) (1997)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A371E93D399C7DD9221B8AF3A3932B9E466E14DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506366   (800892) от 30.10.2021
-
-Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Folk>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Million Stars (3:51)
-02. Ave Maria (4:30)
-03. Sacred Night (4:08)
-04. Sagnet om julerosen (3:43)(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF41F5D9431AB4158D8A139996E05BC8BC73A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

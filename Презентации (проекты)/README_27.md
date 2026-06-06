@@ -1,3 +1,55 @@
+###  Публикация: 1134816   (682392) от 18.05.2017
+
+Проекты - VideoHive - Travel Deals And Discounts - 14752116 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон AE - Travel Deals And Discounts, отлично подойдет для профессионального продвижения вашего туристического бизнеса.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E74AACB952CCE67E043ECCAED01062785DAFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796857   (681056) от 16.06.2014
+
+VideoHive - Broadcast Design - Complete News Package 5 - 6058779 [AEP]
+
+>>След.
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания новостного блока, который можно приурочить к любому событию и оригинально преподнести вашу информацию даже искушенному зрителю.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1705507FC35756F3F17D9F7BBEA3A3184254CBB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 675807   (679967) от 06.07.2013
 
 Проекты - VideoHive - International Typography [AEP]
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20336CB4B1E3590D9B4EBAB56EECA2EBE0C97D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904641   (651000) от 05.06.2015
-
-Проекты - VideoHive - Edge Platinum [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания презентации, слайд шоу, портфолио. Проект предназначен для редактирования в АЕ.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C5D55C321CE9228A2938F9852E7EDE7D82924C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904633   (650809) от 05.06.2015
-
-Проекты - VideoHive - Whiteboard Animation - 2678559 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания презентации. Проект предназначен для редактирования в АЕ.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1603FD8B3B1172DE43D06E580FE11B201A31251
 ```
 
 https://mybot314.ru/tekegram_catalog/

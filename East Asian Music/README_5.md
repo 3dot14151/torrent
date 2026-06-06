@@ -1,3 +1,38 @@
+###  Публикация: 339058   (667415) от 20.05.2011
+
+Huang Hui - Singing Of Bamboos (2005) [APE|Lossless]<Chinese Instrumental>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_667415.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yao Ethnic Dance
+2. Rapeseed Flower
+3. Homesickness
+4. Little Cowboy
+5. Little Cabbage
+6. Lullaby
+7. Flowers and Kids
+8. Mountain Air in Yimengshan
+9. Rainbow Girls
+10. Jasmine(   Читать дальше...)Жанр: Chinese InstrumentalПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339051   (667334) от 20.05.2011
 
 Butterfly Girls Band - Dancing Skirts in Flying Flowers (2009) [APE|Lossless]<Chinese Ethnic>
@@ -770,33 +805,6 @@ MinstreliX - Memoirs (2007) [FLAC|Lossless|tracks + .cue] <Neoclassical Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A96DAFD4431CF371CAD9D2BAC747A80FD4CD7383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799951   (644296) от 27.06.2014
-
-Aki no Sora - 10 альбомов (2008-2013) [FLAC|Lossless] <Vocal, J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644296.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:04] 01. 三澤秋 - ぼくらの朝におはよう
-[03:04] 02. 三澤秋 - ぼくらの朝におはよう (instrumental)Жанр: Vocal, J-PopПродолжительность: 00:00:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453DEF98AB37D8C880325D96A71B34D5EAD2CE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1573116   (385600) от 05.09.2022
+
+Peyton Parrish - Rise of Vikingr (2022) [MP3|320 Kbps] <Alternative, Nu Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bardagi (04:03)
+02. Dane (Feat. The Lone Wolf) (04:06)
+03. Helgafjell (Feat. David Michael Frank) (03:35)
+04. Draugr (02:42)(   Читать дальше...   )Жанр: Alternative, Nu Metal, Folk MetalПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E47D6F46DFC719CF96B9D4C5351963D56526E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414470   (385392) от 08.10.2020
+
+Five Finger Death Punch - A Decade Of Destruction Vol. 2 (2020) Compilation [MP3|320 Kbps] <Heavy Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue On Black
+02. The Tragic Truth
+03. Broken World
+04. I Refuse(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC6670AC0BB303079322F75EE6BE6A38DF5B5B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253444   (383562) от 09.10.2018
+
+Impellitteri - The Nature Of The Beast (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383562.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hypocrisy (3:06)
+ 2. Masquerade (3:34)
+ 3. Run For Your Life (3:33)
+ 4. Phantom Of The Opera (4:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0033E932872313BBF92F8051D18600CF642A039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253490   (383559) от 09.10.2018
+
+MaYaN - Dhyana (2018) 2CD [MP3|320 Kbps] <Symphonic Death Metal, Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383559.jpg" />
+</div>
+
+
+###  Подробнее
+
+1CDЖанр: Symphonic Death Metal, OperaПродолжительность: 01:04:52
+1. The Rhythm Of Freedom
+2. Tornado Of Thoughts - I Don't Think Therefore I Am
+3. Saints Don't Die(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D242C2807DF6907971FECF61F4F6D850B0A8A255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068189   (383369) от 31.10.2016
 
 Soulemission - Tales Of Inevitable Death (2016) [MP3|320 Kbps] <Black Metal>
@@ -629,122 +745,6 @@ Debustrol - Válka (2016) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78CA96F9AA3B4BC261E57DCFDFAF777DE89F5BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067867   (383094) от 31.10.2016
-
-Theocracy - Ghost Ship (2016) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paper Tiger
-02. Ghost Ship
-03. The Wonder Of It All
-04. Wishing Well(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1F33878836298B3EA6FB53641AF744A29A7CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068201   (383086) от 31.10.2016
-
-The Angina Pectoris - Seven Year Itch (2016) [MP3|320 Kbps] <Gothic Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faces Of Death 03:02
-02. Seven Year Itch 03:59
-03. Drained Lake 03:39
-04. Perservere 04:03(   Читать дальше...   )Жанр: Gothic Rock, MetalПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7AF24BF50A9637D54FF8E55A809B1350C7932C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068194   (382981) от 31.10.2016
-
-Suffocate for Fuck sake - In my blood (2016) [MP3|320 Kbps] <Post-Metal, Post-Hardcore, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stina 07:42
-02. I am your god 06:05
-03. Sentence 06:25
-04. Through the gate 03:20(   Читать дальше...   )Жанр: Post-Metal, Post-Hardcore, SludgeПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C11B157C2E80294ADAAE1BD7CE40A654DB40FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067945   (382971) от 31.10.2016
-
-Hammer King - King Is Rising (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Is Rising 04:58
-02. Last Hellriders 02:49
-03. For God And The King 03:22
-04. Warrior's Reign 04:21(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443415D5DEDB383EBA641D7C01038BC7375494C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

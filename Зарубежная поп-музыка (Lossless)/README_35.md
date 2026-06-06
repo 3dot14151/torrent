@@ -1,3 +1,177 @@
+###  Публикация: 1129756   (720802) от 29.04.2017
+
+Didi Robinson - Du Warst Mein Schoenster Traum (1992) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Du hast noch nie das Meer gesehn
+2. Jenny's Traume
+3. Wenn die Erde bebt
+4. Das verlorene Lacheln(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2380051F2D8DB196554BD8C2846B1A1896D905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531772   (720646) от 16.02.2022
+
+Julio Iglesias - Recital At The Festival ''The Golden Orpheus '73'' (1973) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now As Twenty Years Since
+02. Like The Poplar Along The Road
+03. Nina
+04. El Pajaro Chogui(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35A6BC4B9C2E282754B1BFEF4CABB588CB36625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129621   (720437) от 29.04.2017
+
+Dalida - 30 ans deja (2017) 2CD  [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720437.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bambino
+02. Gondolier
+03. Histoire d'un amour(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129834   (720338) от 29.04.2017
+
+VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boef - Habiba (3:35)
+02. Anne-Marie - Ciao Adios (3:19)
+03. Kensington - Bridges (3:38)
+04. Burak Yeter feat. Danelle Sandoval - Tuesday (3:59)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Pop RapПродолжительность: 02:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129685   (720321) от 29.04.2017
+
+VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну какой релиз публиковать субботним предпраздничным утром - конечно 100 Hits: Sunday Morning Songs. Этим сборником британский лейбл Demon Music Group продолжает серию боксетов для самых различных слушателей (ссылку на серию NNM-Club вы найдете в конце релиза). Сдесь собраны спокойные, светлые и умиротворяющие композиции со всего света. 100 мягких мелодий собраны (   Читать дальше...   )CD1:
+01. Kris Kristofferson - Sunday Morning Comin' Down  (4:33)
+02. Johny Cash - It Ain't Me Babe  (3:04)
+03. Lulu - The Man Who Sold The World  (3:51)(   Читать дальше...   )Релиз состоялся: 17 февраля 2017Жанр: Dance, Pop, RockПродолжительность: 06:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B187667912098D3F6F8FAD72AF6995110B2BC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129692   (720232) от 29.04.2017
+
+VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katy Perry feat. Skip Marley - Chained To The Rhythm (3:57)
+02. Ed Sheeran - Castle On The Hill (4:21)
+03. Alma - Chasing Highs (3:15)
+04. Zedd & Alessia Cara - Stay (3:30)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3B1F1E0B4C9C23DB1CB3A498CB799790E225B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400492   (719253) от 05.08.2020
 
 The Boy Least Likely To - The Wrong End of a Rainbow (2020) A Collection of B Sides and Rarities [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Rock Lo-fi>
@@ -573,180 +747,6 @@ Vanessa Mai - Fur Dich (2016) [FLAC|Lossless|image + .cue] <Рор>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E70737EE8B8C8B6DAC086200E6C95F90B0432430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286412   (712851) от 02.03.2019
-
-Madonna - Platinum Hits '2000 (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Pie
-02. Frozen
-03. Beautiful Stranger
-04. The Power of Goodbye(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A5DC9638C62D1BFA3605A8E2E1B3CB5D5642BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025240   (712199) от 11.06.2016
-
-Femme Schmidt - Raw (2016) [FLAC|Lossless|tracks] <Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To The Edge    03:34
-02. The Music    03:54
-03. Golden    03:24
-04. Temple of Tears    03:36(   Читать дальше...   )Жанр: Pop, Female VocalПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA907CA9E3B5DEE51F66887C03A8AFF54988F85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025156   (712133) от 11.06.2016
-
-VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Me Amadeus
-02. Papa Don't Preach
-03. Glory of Love
-04. There'll Be Sad Song(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52FF7511BDC41CF6BC945C38107DCD5EE2DA2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025059   (712112) от 11.06.2016
-
-Laid Back - Unfinished Symphonies (1999) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key To Life (3:27)
-02. Walking (4:12)
-03. Pop The Question (3:56)
-04. Cool Down Max (4:03)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1469F9820E138E31D4C366B6A6CB45F23C045C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025062   (711961) от 11.06.2016
-
-Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Me High    07:20
-02. There's A Fire    05:37
-03. Only One Night    07:34
-04. Heartflash    05:58(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F51BA05FA39EAD68408DDC0CED4B23B1A0B64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286623   (711183) от 03.03.2019
-
-Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Lossless|image + .cue] <Pop, World, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Ruby Don't Take Your Love To Town
-2.	For The Good Times
-3.	A Stranger In My Place
-4.	Rueben James(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427446A97558438509E862F7F615CA0C50956269
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1267126   (267720) от 05.12.2018
+
+VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018) [FLAC|Lossless|tracks] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - The Last Dancer (Extended Mix) (vs. Shapov)
+02. Cosmic Gate - Tonight (Allen Watts Extended Mix) (feat. Emma Hewitt)
+03. Richard Durand - The Air I Breathe (Extended Mix)
+04. Shane54 - Return To Love (Cubicore Remix) (feat. Jonathan Mendelsohn)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3669AE69A1A428ADD929ED14C91EDC67B7CA0EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339254   (267013) от 18.11.2019
+
+VA - Magic Island - Music For Balearic People Vol. 9 (Mixed by Roger Shah) (2019) [FLAC|Lossless|image + .cue] <Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarks - Cayo Largo (3:27)
+02. Eddie Murray feat. Veronica Moran - Inception (3:25)
+03. Ihab Sameh - Silent Waves (4:12)
+04. Jukebox 80s - Ripped Knees (4:28)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836BDAC09D4F1474EE4EB7520437B00D1921B5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190318   (266990) от 10.12.2017
+
+Markus Schulz & Dakota - The Nine Skies (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Nine Skies Intro (Original Mix)  2:25
+02.  Bravo On The Go (Original Mix)  2:43
+03.  Follow Me (Original Mix)  2:45
+04.  Mota - Mota (feat. Koen Groeneveld) (Original Mix)  3:26(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91AAB0494076A8BBAADE610625FD214A59A7F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267495   (266578) от 06.12.2018
 
 VA - Cosmic Cubes - A Cosmic Trance Compilation Vol. 1-6 (1994-1997) 6x2CD, Compilation [FLAC|Lossless|image + .cue] <Trance, Goa Trance, Progressive Trance>
@@ -658,93 +745,6 @@ VA - From Bonzai With Love 97 (1997) [FLAC|Lossless|tracks] <Trance, Hard Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE5783B9ABB06558C2C5A869E45B3DB202B82DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629929   (199241) от 28.04.2023
-
-Armin van Buuren - Feel Again (2023) 6CD [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive House, Dance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199241.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Armin van Buuren feat. Wrabel - Feel Again
-02. Armin van Buuren - Oumuamua
-03. Armin van Buuren & The Stickmen Project - No Fun(   Читать дальше...   )Жанр: Trance, Progressive House, Dance |Продолжительность: 04:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D9218414CA647F4D83050B746650B26CA4FB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650206   (194767) от 03.08.2023
-
-VA - Black Hole Trance Music 06-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LadyByrd - Every Second (York Extended Remix) [5:17]
-02. Freak E Beatz & ANVY - The One (Extended Mix) [4:55]
-03. Serra 9 feat. Meredith Nee - To Get Even (Extended Mix) [4:38]
-04. Cosmic Gate - Mirador (Extended Mix) [7:25](   Читать дальше...   )Жанр: Vocal Trance, TranceПродолжительность: 02:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A16F24AE3C812E8F8B299EF1B4982B37F137E854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657878   (191897) от 06.09.2023
-
-VA - Outburst Records Presents Prism Volume 4 (2023) [FLAC|Lossless|tracks] <Hard Trance, Hard Techno,Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Space Brothers - Doors (Mark Sherry Remix) [4:46]
-02. Gordon Tennant - Callisto [3:01]
-03. Mark Sherry & Sygma - Beyond Starlight [2:47]
-04. Mark Sherry & Steve Dekay - Smiler [3:12](   Читать дальше...   )Жанр: Hard Trance, Hard Techno,Uplifting TranceПродолжительность: 03:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC3BF7D88C5C880D9E25C61F5867147873E465B
 ```
 
 https://mybot314.ru/tekegram_catalog/

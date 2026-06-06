@@ -1,3 +1,177 @@
+###  Публикация: 970453   (140638) от 30.12.2015
+
+VA - Romantic Collection Gold (2002) [MP3|192 кб/с] <Jazz, Blues, Guitar Music>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blues
+01 - Gary Moore - Still Got The Blues For You
+02 - Ronnie Earl - Round Midnight
+03 - Patricia Barber - Let It Rain(   Читать дальше...   )Жанр: Jazz, Blues, Guitar MusicПродолжительность: 07:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5AC96C7F6807377142CE09DA50D686F2808F1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273328   (137686) от 31.12.2018
+
+VA - Stranger Blues (2018) [MP3|320 Kbps] <Blues, Soul, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137686.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chad Elliott - Rest Heavy
+002. Delta Moon - Stuck In Carolina
+003. Bto - House Of The Rising Sun
+004. Big House - Guitars & Whiskey(   Читать дальше...   )Жанр: Blues, Soul, JazzПродолжительность: 09:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE85554A8962F27E0E1D87FD652831EE8FD601EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679874   (134877) от 27.11.2023
+
+VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134877.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scott Sawyer - Passing By [07:45]
+002. Brass Energy - A Walk In The Park [02:55]
+003. Jonah Yano - Always [05:23]
+004. Carlos Camilo - Trust The Moment [04:11](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FEF2B1C1E7331CD7362A98E62C2E46C190041F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681437   (132549) от 03.12.2023
+
+VA - Romantic Relaxing and Nostalgic Blues Music (2023) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132549.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Beard - All Night Long [06:16]
+002. Doug MacLeod - Mystery Woman [05:02]
+003. Mighty Sam McClain - I'm Tired of These Blues [07:00]
+004. ZZ Top - Blue Jean Blues (2005 Remaster) [04:40](   Читать дальше...   )Жанр: BluesПродолжительность: 20:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69457AB884B635D2D67E3E30F2523535EC4D0F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682142   (130780) от 09.12.2023
+
+VA - 120 Best Slow Songs For Relax [part II] (2023) [MP3|320 Kbps] <Blues-Rock, Country, Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130780.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Buddy Guy feat. Jason Isbell - Gunsmoke Blues [03:09]
+002. Larry Miller - Blues Forever [05:26]
+003. Danielle Nicole - Take It All [02:58]
+004. Kenny Wayne Shepherd - Blue On Black [05:30](   Читать дальше...   )Жанр: Blues-Rock, Country, BalladПродолжительность: 11:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C2F9128F9BB79AB1574327C981ED926E392762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684319   (127834) от 15.12.2023
+
+VA - Best Jazz Songs of 2023 (2023) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terrace Martin - Valdez Off Crenshaw (feat. Kamasi Washington, Cory Henry & Robert ''Sput'' Searight)
+02. Yussef Dayes - Black Classical Music (feat. Venna & Charlie Stacey)
+03. Theo Croker - GOOD DAY
+04. Alfa Mist - BC(   Читать дальше...   )Жанр: JazzПродолжительность: 06:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83AFFD138EF3E6A9E168AE6318DDF7519691188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823620   (125866) от 12.10.2025
 
 Frezee - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz, Chillout, Female Vocal, Other>
@@ -383,7 +557,7 @@ VA - Instrumental Jazz Variations (2024) [MP3|320 Kbps] <Jazz, Instrumental, Imp
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_111502.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ Jackie Venson - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79EA51C7B2A5DE944CA640AC40EAAE37B6FC4E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801088   (66240) от 08.06.2025
-
-Brian Owens - Compilation (2025) [MP3|320 Kbps] <Soul, Jazz, R&B>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lord Knows (Ain't Personal) [04:03]
-02. Looking for a Daddy (feat. Theresa Payne) [04:41]
-03. Soul Anthem (Bring It Back) [01:49]
-04. Got to Give It Up (Japan Bonus Track) [11:00](   Читать дальше...   )Жанр: Soul, Jazz, R&BПродолжительность: 04:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41EE941BA7C677B128CC3F24D2370DC869CD29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808464   (64966) от 25.07.2025
-
-VA - The Voice Of Jazz: Vocal Essence (2024) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64966.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samara Joy - Warm In December (04:14)
-002. Anduze - Bad Side (03:18)
-003. Fred Hersch & Esperanza Spalding - But Not For Me (09:32)
-004. Kassa Overall & Theo Croker - Make My Way Back Home (03:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 07:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82CF745DE2A68B3014D91E711DBF68D4E4E69C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716517   (58779) от 23.04.2024
-
-VA - Blues Melancholy (2024) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dаvе Williаms - Аll Whо Аrе Wеаry
-002. Dаrnеll Соlе - Sоngbird
-003. Lоnе Stаr Mоjо - Hеy Hеy
-004. Jеаn Раul Rеnа - Рареr Bаg(   Читать дальше...   )Жанр: BluesПродолжительность: 09:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D33E602DCB345AF3A0E01873232959ACCB6CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719013   (57841) от 02.05.2024
-
-VA - Jazz Blues (2024) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BBM - Naked Flame [06:07]
-002. Big Daddy Wilson - I'm Walking [04:17]
-003. Boney James - Solid [04:05]
-004. Dana Gillespie - Who's Got The Blues To Blame [05:04](   Читать дальше...   )Жанр: BluesПродолжительность: 12:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC71576AE6426859E7FE5CF06FD6778195E0EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722402   (56551) от 14.05.2024
-
-VA - Good Women in Good Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anne & the Blues Diggers - Still Left in Your Heart [02:57]
-002. Anni Piper - Mystery of Love [03:30]
-003. Nora Jean Bruso - Things Done Changed [04:39]
-004. Pristine - The Blind [05:24](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EBF484641F379A55A269F3A84E357C5D20477E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724115   (56141) от 18.05.2024
-
-VA - Smooth Relaxing Jazz (2024) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sinne Eeg - Round Midnight (7:45)
-002. Emma Smith - But Not for Me (7:40)
-003. Katrine Madsen - From a Mother to a Child (7:32)
-004. Vanessa Rubin - If You Could See Me Now (7:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 09:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6F165CFBC63FDEECEAB9DB2D6A7495B56EF43F
 ```
 
 https://mybot314.ru/tekegram_catalog/

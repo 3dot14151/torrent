@@ -1,3 +1,90 @@
+###  Публикация: 1366378   (923874) от 11.03.2020
+
+VA - Beatport Chillout: Electro Sound Pack #28 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maximilien - Crazy Vocoding
+002. Chris Le Blanc - Into My Dream (Original Mix)
+003. Ambrozia - Velvet (Peter Martin Remix)
+004. Ticane - Altitude(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A2423F28009551AAEAA213778FF6922D84C910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095926   (922871) от 22.01.2017
+
+VA - Kazan Deeper 2017 (2017) [MP3|320 Kbps] <Deep House, Melodic, Progressive, Funky>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amen B & Miroslav Vrlik - 2 Faced People (Martin Cloud Remix) 06:01
+02. Rauwkost - Slipe And Slide 06:49
+03. Peer Van Mladen - With You 05:37
+04. Sam Greycious - Going Back 08:35(   Читать дальше...   )Жанр: Deep House, Melodic, Progressive, FunkyПродолжительность: 02:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8895AA4B14A36707DAEFDAC2F2143AE929E6AB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095910   (922827) от 22.01.2017
+
+VA - Ultimate Vocals (2017) [MP3|320 Kbps] <Nu Disco, Funky, Progressive, Club, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix And Bebe Rexha - In The Name Of Love 03:15
+02. Armin Van Buuren Feat. Kensington - Heading Up High (Swanky Tunes Remix) 03:11
+03. Max Ruby - Meldonium (Radio Edit) 03:09
+04. Greenage - Drift 08:05(   Читать дальше...   )Жанр: Nu Disco, Funky, Progressive, Club, SoulfulПродолжительность: 05:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21104B6E172AC3E41C904372BF46FEE1B861A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095985   (922812) от 22.01.2017
 
 VA - Empire Records - Chill Out 9 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -670,93 +757,6 @@ VA - Beatport Electro House: Sound Pack #331 (2021) [MP3|320 Kbps] <House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4535F3866B4F0E985D3818CDEB34CF803D37F50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490484   (917548) от 21.08.2021
-
-VA - Beatport Drum And Bass: Sound Pack #333 (2021) [MP3|320 Kbps] <Bass, D&B, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sadhu - Occult Dance Music
-002. Mind Artifice - Dreams
-003. Yung.Raj - Oofie
-004. Crate Classics - Mercy Dub(   Читать дальше...   )Жанр: Bass, D&B, BasslineПродолжительность: 08:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBD3D69D6D18D08299700C03195AC221349834D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096827   (917535) от 25.01.2017
-
-VA - Beatport Trance Pack (25.01.) (2017) [MP3|320 Kbps] <Trance, Uplifting, Tech Trance, Progressive, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bryan Summerville - Sensual (Original Mix)  7:39
-02.  Lightform - Orbs (Extended Mix)  6:08
-03.  Alan Morris - Anaconda (Extended Mix)  5:32
-04.  Rene Ablaze & F.G. Noise - Departure (Original Mix)  7:39(   Читать дальше...   )Жанр: Trance, Uplifting, Tech Trance, Progressive, VocalПродолжительность: 09:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DE5EE8D1DD2B3F88F1CBC7A83E272C60C86D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490543   (917509) от 21.08.2021
-
-VA - The Ethnic Bass Party (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astrou - Lost The Light
-002. Black Sun Empire - Eraser
-003. Nymfo - Stamppot
-004. Furney - Electricite De La Nuit(   Читать дальше...   )Жанр: Drum And Bass, Bassline, JungleПродолжительность: 08:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1CC9777051C902FEA740D7CEDAC3F3C7C890C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

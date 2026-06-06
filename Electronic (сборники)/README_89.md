@@ -1,3 +1,90 @@
+###  Публикация: 1535092   (686424) от 06.03.2022
+
+VA - Beatport Progressive Trance: Sound Pack #501 (2022) [MP3|320 Kbps] <Progressive, Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляемый 501-й релиз электро транса от Beatport - это целых 130 наполненных прогрессией треков, которые готовы стать источником вдохновения для своего слушателя001. Fallen Order - No Ecmo
+002. Metta & Glyde - Primal Fear
+003. Solarstone - Equilibrium
+004. Daftiser - Avenger(   Читать дальше...   )Жанр: Progressive, Trance, ElectroПродолжительность: 12:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2A8DDDD4E3F04034C98434398E3305E57B4F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535088   (686423) от 06.03.2022
+
+VA - Beatport Progressive House: Sound Pack #500 (2022) [MP3|320 Kbps] <Progressive, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный релиз от Beatport - это золотая жила свежих треков в стиле Progressive House с экзотической смесью традиций создания электронной музыки и современных инноваций DJ мастеринга.001. Gogzy - Monochrome
+002. Gijs De Mik - Never Alone
+003. Out Of Mind - Another Day
+004. Genix - Kill Switch(   Читать дальше...   )Жанр: Progressive, House, ElectroПродолжительность: 10:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B733706554AF360F29597D3D6348911D63A1C45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535194   (686422) от 06.03.2022
+
+VA - Summer Chillout: Distant Places Relax Mix (2022) [MP3|320 Kbps] <Chillout, Lounge, Relax, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь в путешествие возьмите с собой сборник релакс-музыки с летним названием "Summer Chillout: Distant Places Relax Mix". Встречайте рассвет, любуйтесь зеленой долиной с высоты горного утёса или медитируйте на берегу моря под вдохновляющие мелодии лонгплея.001. Engtanz - Path Of Virtue
+002. Soft Drink - Meet Dubai
+003. Suduaya - Green Tara
+004. Asteroid - The Light In The Shadow(   Читать дальше...   )Жанр: Chillout, Lounge, Relax, DowntempoПродолжительность: 09:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21EEF47CC6A2398E19AD0513803C3AA3947BE3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535153   (686306) от 06.03.2022
 
 VA - The Best In EDM: Dance House Mixtape (2022) [MP3|320 Kbps] <EDM, Dance, Club, House>
@@ -658,93 +745,6 @@ VA - Tantric Lounge Massage: Sexy Erotic Chill Music To Improve Your Love Life F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:666A054F86AA15F9D73D005A2E60204E348EE2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290015   (682073) от 18.03.2019
-
-VA - Cr2 Miami 2019 (3 CD) (2019) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Nervo & Lux - Why Do I (Stash Konig Remix) (03:42)
-02. 3LAU Ft. Carly Paige - Would You Understand (Original Mix) (03:30)
-03. Virtual Self - Ghost Voices (Original Mix) (04:27)(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 05:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC7CDBF9C6AA40D7387602A2706922809687E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289693   (681988) от 18.03.2019
-
-VA - DubStep Pro V.35 (2013) [MP3|320 Kbps] <DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT - 13 Angels On My Broken Windowsill (Fractal Remix)
-02. Silkie - Time Delay (Original Mix)
-03. Mutated Mindz - Moshing N Rocking (Original Mix)
-04. Cottonmouth feat. Holly Grey - Revel In Me(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E0C8BEF363130E8D5D626BC3A4027C9F17F42B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029530   (681955) от 26.06.2016
-
-VA - Hits of My Soul Vol. 02 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond Feat. Zoe Johnston - We're All We Need (Album Mix) (04:23)
-02. Russell G & Shadow Of Two - Neon (Original Mix) (05:45)
-03. Worakls - When The Birds Go In The Wrong Way (06:55)
-04. Bryan Milton ft. Ana Criado - Afterglow (Original Mix) (06:04)(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 03:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F6B2B8F94AB5AE12060593406A254728A3D47E
 ```
 
 https://mybot314.ru/tekegram_catalog/

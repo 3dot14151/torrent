@@ -1,3 +1,148 @@
+###  Публикация: 1785990   (69032) от 20.03.2025
+
+Puzzle Ways - Adventure (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adventure (3:58)
+02. Forsaken (5:30)
+03. Hear My Melody (4:49)
+04. Feed the Monster (3:43)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7052CB60CD7B0926D6D1E60DC7B313E928D739B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785988   (69018) от 20.03.2025
+
+Digitalo - Love Dance Cosmos (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi There Woman (4:09)
+02. My Baby (3:53)
+03. Milky Way (3:53)
+04. Summer Time Lover (3:56)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D41C7CBAF0AF371257813C6C9118137DD48B946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786649   (68999) от 21.03.2025
+
+VA - Night'n Day Music Tracks (Expanded Edition) (Mike Mareen and His Music Productions) (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trappy Toxic - Shuffle Mix (2:05)
+02. Mike Mareen - Here I Am (Megatrain-Mix) (7:27)
+03. Rocco Caruso amp Children's Voice - Tirami Su (Maxi Version) (5:38)
+04. Dj's Project - How Are You (Maxi Version) (7:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C793B32592C8BA5A91527F0869F5273B5D33B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786869   (68939) от 22.03.2025
+
+VA - Rewind - 29 Italo Disco Classics (1997) 2CD [FLAC|Lossless|tracks+.cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch - Disco Band (4:07)
+02. Righeira - Vamos A La Playa (5:09)
+03. Valerie Dore - The Night (6:17)
+04. Ryan Paris - Dolce Vita (7:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E19193EE1B55BEB54B6AB905D709B206C7D5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787821   (68585) от 29.03.2025
+
+Ancient Silence - The 1st Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunter of the Night (3:14)
+02. Heart Survivor (4:23)
+03. Good Love (4:18)
+04. You're My Heartbeat Melody (3:21)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF11D269BCBC80F589241A19A05452591593EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789164   (68378) от 02.04.2025
 
 Paul Parker - Strong (The Album) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco, Hi-NRG>
@@ -597,148 +742,6 @@ Discotron - Last Night A DJ Saved My Life (2017) [FLAC|Lossless|tracks] <Nu-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8832AB2742D27B5457D9D5139A7606D3E65E4C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729783   (53502) от 12.06.2024
-
-V.A. - ZYX Italo Disco Spacesynth Collection 10 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Synthwave>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - Mission Hyperdrive 06:00
-02. Galaxy Observer - Martian Spaceship
-03. Synthesis - Beyond Time
-04. Mind Vision - Final Mission(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthwaveПродолжительность: 02:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA54CFC5FCB486F188FDFEE72E68815AF567059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730308   (53222) от 15.06.2024
-
-VA - Sabadell Sound 2 - The Ultimate Collection (2024) 2xCD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53222.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Closed - Crazy Love 6:32
-02. Azul Y Negro - The Night 6:10
-03. David Lyme - Let's Go To Sitges 4:47(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 02:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26716355D07E25FFF794440A0D512BA1CFC2F602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730941   (52896) от 18.06.2024
-
-Chillymouse - You're My Love, You're My Life (Jason Parker X Bootmasters remix) (2021) [FLAC|Lossless|tracks] <Nu-Disco, Disco House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillymouse - You're My Love, You're My Life (Jason Parker X Bootmasters remix) (4:42)Жанр: Nu-Disco, Disco HouseПродолжительность: 00:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7DC762173939105527F1C324F844FDCF6C8071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737471   (49711) от 17.07.2024
-
-Victoria Nordmann - Best Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Days
-02. Good Days (Extended Version)
-03. Be My Desire
-04. Dance(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317B3F2F27EFF6A6ED36F63CEF25DB827E9F3B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738460   (49173) от 22.07.2024
-
-VA - ZYX Italo Disco Dub Versions (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Paul - Good Version (Instrumental) 05:06
-02. Ken Laszlo - Tonight (Instrumental) 05:41
-03. Swan - Don't Talk About It (Instrumental) 06:11
-04. Felli - Diamond In The Night (Instrumental) 05:24(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1159B2C786C615F7539EEC01CD7A1AC542997587
 ```
 
 https://mybot314.ru/tekegram_catalog/

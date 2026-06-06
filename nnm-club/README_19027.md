@@ -1,654 +1,22 @@
-###  Публикация: 968553   (262153) от 20.12.2017
+###  Публикация: 1338757   (268981) от 16.11.2019
 
-Титаник / Titanic (1997) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодые влюбленные Джек и Роза находят друг друга в первом и последнем плавании «непотопляемого» Титаника. Они не могли знать, что шикарный лайнер столкнется с айсбергом в холодных водах Северной Атлантики, и их страстная любовь превратится в схватку со смертью…Производство: США /  Twentieth Century Fox, Paramount Pictures, Lightstorm EntertainmentЖанр: Драма, МелодрамаРежиссер: Джеймс КэмеронАктеры: Леонардо ДиКаприо, Кейт Уинслет, Билли Зейн, Кэти Бейтс, Фрэнсис Фишер, Глория Стюарт, Билл Пэкстон, Бернард Хилл, Дэвид Уорнер, Виктор ГарберПеревод: Дублированный BD CEEСубтитры: Русские, английскиеПродолжительность: 03:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C538380F3A1AE6D8B1F31B855ACA33156864724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192941   (262152) от 20.12.2017
-
-Статус Брэда / Brad's Status (2017) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма имеет хорошую работу и любящую, счастливую семью. Однако Брэд становится одержим тем, что у его бывших одноклассников жизнь сложилась куда лучше, чем у него. Герою придется вновь столкнуться со своими и друзьями и чувством собственной несостоятельности, что приведет к самым забавным и нелепым последствиям.Производство: СШАЖанр: Драма, КомедияРежиссер: Майк УайтАктеры: Бен Стиллер, Остин Абрамс, Дженна Фишер, Майкл Шин, Джемейн Клемент, Люк Уилсон, Шази Раджа, Луиза Ли, Майк Уайт, Хавьер ГробетПеревод: Дублированный (itunes)Субтитры: ОтсутствуютПродолжительность: 01:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A3A48D3D57C2C0A3AA9FDE7370F07E42E2BA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193309   (262151) от 21.12.2017
-
-Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Четверки (10.12.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262151.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 декабря 2017 года, воскресенье. 13:30 МСК
-4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
-Бобслей. Мужчины-Четверки
-Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553685EF81111A84F2B014E3F379543461C14C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193332   (262150) от 21.12.2017
-
-Горные лыжи. Кубок мира 2017–2018. Альта-Бадия (Италия). Мужчины. Гигантский слалом (17.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262150.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 декабря 2017 года, воскресенье. 11:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Альта-Бадия (Италия).
-Мужчины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B43D2C89C204E59AC1AC6EF4A05CF830495609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193308   (262149) от 21.12.2017
-
-Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Двойки. 2-я попытка (09.12.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262149.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 декабря 2017 года, суббота. 17:00 МСК
-4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
-Бобслей. Мужчины-Двойки. 2-я попытка
-Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517C08FC53C1D840F13A6E7199FD6D11AE3234FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193374   (262148) от 21.12.2017
-
-Warfect - Depicting The Macabre (2009) [APE|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creation 03:38
-02. Heathen Reigns 04:19
-03. Depicting the Macabre 03:39
-04. Symbol of Submission 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC8A22FDD39CCE1C434985F9DC1535863217210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193424   (262147) от 21.12.2017
-
-VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Men-D - Vine napoi (Original Mix)
-02. Eric Maes - Circular Time (Original Mix)
-03. Zirenz, Men-D - Valhalla (Original Mix)
-04. NRGFactory - Behind the Light (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAD17359A3EFB3621687EDEDC2BF658A701BE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193604   (262146) от 21.12.2017
-
-VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Denton – Curtain Call (Original Mix)
-02. Bryan Kearney – Adrenaline (Original Mix)
-03. Craig Connelly & Jessica Lawrence – How Can I (John O'Callaghan Extended Remix)
-04. Cold Blue – Once in Time (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B367CC838795F3C17E4F07C1BEFD36F781BF608C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193390   (262145) от 21.12.2017
-
-Hellwitch - Syzygial Miscreancy (1990) Remastered, 2017 [FLAC|Lossless|image + .cue] <Technical Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ascent
-02. Nosferatu
-03. Viral Exogence
-04. Sentient Transmography(   Читать дальше...   )Жанр: Technical Death Metal, Thrash MetalПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4772CBA5298481479B7F4C099303BC2F7895013A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193612   (262144) от 21.12.2017
-
-VA - The Best Of Suanda Base (Mixed by Ahmed Helmy) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mantra, Ruslan Radriges & Lucid Blue – Take Me Higher (Club Mix)
-02. Nathia Kate, Robin Vane & Russian Dolls – Always (Ruslan Radriges Remix)
-03. Twin View – Bubblegun (Ruslan Radriges Remix)
-04. UltraNova – V1! Rotate! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C223810CDFFECA6125D47B5DAAC1A8D40FDBF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193586   (262143) от 21.12.2017
-
-VA - DJ Box - Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Oakenfold – Deep Space (Original Mix)
-02. Freejak & Martay M'Kenzy – Out of Breath feat. Martay M'Kenzy (Extended Mix)
-03. Tilt & Ruby Turner – Deeper in Love feat. Ruby Turner (Original Mix)
-04. Cory Enemy & Chris Bushnell – Keep It Coming (Club Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA806BED85E36EE1E14667D0CAFF560A8017577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193311   (262142) от 21.12.2017
-
-Warfect - Exoneration Denied (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exoneration Denied
-02. Drone Wars
-03. Filled with Hate
-04. Inflammatory(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D97880F7600466AF09ED3A7ADB2FDAB14F27D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193432   (262141) от 21.12.2017
-
-VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Numark - Story of A Little Elf (Original Mix)
-02. CJ Stereogun - Margarita's Heart (Original Mix)
-03. Dreaman - Justice (Original Mix)
-04. Emotion Love - Secrets of Life (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6962085561412A43B360AD64B89966EC5CA9CBD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193430   (262140) от 21.12.2017
-
-afarOne - Lucen (2012) Karlrecords [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Modern Classical, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apart (05:10)
-02. Due (06:07)
-03. Naked Icon (06:55)
-04. El Sueno De La Razon (05:47)(   Читать дальше...   )Жанр: IDM, Leftfield, Modern Classical, AmbientПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC13E3EB1162345F338F9CE9A97DD9EC058DEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193428   (262139) от 21.12.2017
-
-Andrea Belfi - Ore (2017) Float [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, Contemporary Jazz, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anticline (10:01)
- 02. Iso (05:58)
- 03. Lead (05:54)
- 04. Ton (12:21)(   Читать дальше...   )Жанр: Ambient, Experimental, Minimal, Contemporary Jazz, DowntempoПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79477BC85C7EF4497A0C80E451F4508FF1B17651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193377   (262138) от 21.12.2017
-
-Warfect - Scavengers (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purveyors of Cadavers
-02. Reptile
-03. Anatomy of Evil
-04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB85A2C4F69E41EE21748AE7E19E990072FF281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193409   (262137) от 21.12.2017
-
-B.E.N.T. - Eleven (2001) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit The Road
-02. Evil Greazer
-03. Brain Trust
-04. Nightscape(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04E921B630489EC5C0B1E52F7F7F97304070B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193425   (262136) от 21.12.2017
-
-Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make You Believe In Love (03:33)
-02. Please Don't Go (03:23)
-03. Next To Me (03:00)
-04. One Flight Away (03:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193444   (262135) от 21.12.2017
-
-Broken Thoughts - Keju Luo (昆明市) - Discography 8 Releases (2011-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Modern Classical, Ambient, Drone, Minimal>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subatomic Days (05:00)
- 02. Losslessness (05:00)
- 03. Douglas Firs (05:00)
- 04. The Primal Forces Of Nature (05:00)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Experimental, Modern Classical, Ambient, Drone, Minimal •Продолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9527964DBDC05DFBA26031B0C70535C34C0D52AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193455   (262134) от 21.12.2017
-
-Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Verità (05:02)
-02. Luomo Nero (04:28)
-03. Canzone Contro La Paura (03:44)
-04. Lamezia Milano (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193297   (262133) от 21.12.2017
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.22 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Al Bano & Romina Power  -  Il Ballo Del Qua Qua  2:50
-02.  Pupo  -  Vita Da Artista  3:19
-03.  Toto Cutugno  -  Solo Noi  4:07
-04.  Umberto Tozzi  -  Tu Piccolo  4:44(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBE19C4C8B4815332E7B3D826AEA34CBF8C7DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193338   (262132) от 21.12.2017
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.24 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tony Dallara  -  Come Prima  2:05
-02.  Schola Cantorum  -  Il Calendario  2:31
-03.  Pupo  -  La Vita E Molto Di Piu  3:15
-04.  Riccardo Fogli  -  Malinconia  4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA5A56E4AC0F06439C86160EA3DA701214177CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193396   (262131) от 21.12.2017
-
-Журнал | Жилая среда №10 (142) (ноябрь 2017) [PDF]
+Журнал | Vogue IN №10 (октябрь 2019) [PDF] [En]
 
 >>Журналы
->>Домоводство (журналы)
+>>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все об интерьерном дизайне: от международных выставок до реализованных проектов петербургских архитекторов. Средства реализации идей: товары, материалы, технологии.Жанр: Дизайн интерьеровФормат: PDF
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:498749DBF897C4418A8E67788A0232EF5683C23E
+magnet:?xt=urn:btih:FAC866F9C5E5F481F3321508AA6F1828C46E1337
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193466   (262130) от 21.12.2017
+###  Публикация: 1338627   (268980) от 16.11.2019
 
-Сергий Нилус | Святыня под спудом (2005) [FB2, EPUB, PDF]
+Журнал | Harper’s Bazaar MX №11 (ноябрь 2019) [PDF] [Es]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Журналы
+>>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: ПравославиеФормат: FB2, EPUB, PDF (для Букридеров Amazon Kindle, Sony Reader и др.)
+«Харперс базар» — женский журнал о моде, стиле и обществе, вышедший в свет в США в 1867 году, издавался еженедельно компанией «Harper and Brothers». С 1901 года «Harper’s Bazaar» в формате альбома стал выходить ежемесячно.Жанр: Женский журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B10D52B4966D2DDFE85944DD52E27530D4F8BEA8
+magnet:?xt=urn:btih:1DE7068B314EA14BAAC4A2FC6ABEBED7673229FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193531   (262129) от 21.12.2017
+###  Публикация: 1338641   (268979) от 16.11.2019
 
-Beegie Adair & Friends - Christmas & Cocktails (2011) Green Hill Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Vocal Jazz, Christmas>
+Eliane Elias - Love Stories (2019) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beegie Adair - Let It Snow, Let It Snow, Let It Snow (2:57)
-02. Denis Solee - Winter Wonderland (3:58)
-03. Beegie Adair & Jaimee Paul - Jingle Bells/Jolly Old St. Nicholas (3:22)
-04. Lori Mechem (feat. Jack Jezzro) - White Christmas (4:04)(   Читать дальше...   )Жанр: Mainstream Jazz, Vocal Jazz, ChristmasПродолжительность: 00:56:31
+01. A Man and a Woman [3:17]
+02. Baby Come to Me [5:03]
+03. Bonita [5:53]
+04. Angel Eyes [5:25](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:43:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2B72F823BDCCF57BB43E73EB1A87AAC2363C003
+magnet:?xt=urn:btih:F7152A86208BD95B3312A5244FA7C11501E9387F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -711,28 +79,624 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193324   (262128) от 21.12.2017
+###  Публикация: 1338758   (268978) от 16.11.2019
 
-VA - Capriccio All’italiana: Italian Hit Parade Vol.23 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+Журнал | Vogue IN №9 (сентябрь 2019) [PDF] [En]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Al Bano & Romina Power  -  Libertа  4:21
-02.  Patrizio Puanne  -  You're My World (il Mio Mondo)  3:06
-03.  Bobby Solo  -  Zingara  2:43
-04.  Fausto Leali  -  Ci Sei Solo Tu (I've Been Loving You Too Long)  3:50(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:59
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09D51E1F7EEE9797741ABF596E0D54ED740F0386
+magnet:?xt=urn:btih:3F114F1E5AA75CDFD472F65078353877C25A0A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338753   (268977) от 16.11.2019
+
+Журнал | Vogue MX №11 (ноябрь 2019) [PDF] [Es]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0035D7146EBED7CA2CD2BEC9ABF93394FB23DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338751   (268976) от 16.11.2019
+
+Журнал | Vogue Latin America №11 (ноябрь 2019) [PDF] [Es]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1840833EFDC0285A09C6C92ADD2BE00A772211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338628   (268975) от 16.11.2019
+
+Журнал | HOLA Fashion ES №11 (ноябрь 2019) [PDF] [Es]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все последние новости о моде (подиумы, модели, дизайнеры, тренды, красные дорожки, стиль жизни).Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E5BE7681DE999537E7458063F4002BD997A4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338633   (268974) от 16.11.2019
+
+Диакон Георгий Максимов | Православие и ислам (2012) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга написана для мусульман, желающих понять христианство и для христиан, желающих понять ислам; для мусульман, желающих лучше узнать ислам и для христиан, желающих лучше узнать христианство.Жанр: Религиозная литератураФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F3D5ED00EE63EBE000FC2FBB83FF7960787903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338648   (268973) от 16.11.2019
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (16.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268973.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске программы "Еда живая и мёртвая" расскажут о креме: почему к десертам с этим ингредиентом нужно относиться с осторожностью и существует ли тот, что не несёт вреда фигуре. Из рубрики "За что такие деньги?" зрители узнают, есть ли мясо в самых дешёвых пельменях и отличаются ли они от тех, что в разы дороже. Также в программе поговорят (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5031DF15792EF88052560FD2B458614BCA61A68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338689   (268972) от 16.11.2019
+
+Формула 1. Сезон 2019. Этап 20. Гран-при Бразилии. Свободная практика 2 (15.11.2019) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Бразилии. Свободная практика 2
+Арена: Автодром Интерлагос - Жозе Карлос Пасе (Сан-Паулу, Бразилия)
+15 ноября 2019 года, пятница. 21:00 МСКТелекомпания: Матч АренаЖанр: СпортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FBBBB808F33F4B98D48A5406A30D7CCC17E2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338698   (268971) от 16.11.2019
+
+Opera 65.0.3467.42 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D21E675F83AF572AAB605BF2D5DF1C2917A274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338651   (268970) от 16.11.2019
+
+НТВ |  Квартирный вопрос (16.11.2019) SATRip
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши герои всегда открыты кулинарным экспериментам — чего только не вытворяют на своей кухне! Хотя она сама у них аппетита уже не вызывает. Им нравятся вкусные, сочные цвета. Заварим для них переделку с инжиром!Телекомпания: НТВЖанр: ТВ-шоуПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF0B19551F6B708BF26D1F47BE3931789FC504F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338686   (268969) от 16.11.2019
+
+Формула 1. Сезон 2019. Этап 20. Гран-при Бразилии. Свободная практика 1 (15.11.2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Бразилии. Свободная практика 1
+Арена: Автодром Интерлагос - Жозе Карлос Пасе (Сан-Паулу, Бразилия)
+15 ноября 2019 года, пятница. 17:00 МСКТелекомпания: Матч TV (Sportbox HD)Жанр: СпортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214FFEA2CD847C3CFDB59AA0647A1C1DB9B950B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338642   (268968) от 16.11.2019
+
+Главная дорога (16.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разбил гаджет на дороге — лишился прав. Коснулся бампером другого автомобиля, но не поцарапал его — тоже лишился прав. Мало кто из водителей заметил, как новые правила запретили разъезжаться и "решать вопрос" на месте. Андрей Федорцов и Денис Юченков расскажут, почему можно стать пешеходом на полтора года, если другой участник аварии всё же позвонит в полицию. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2EE2BC493B5EC7A28B3DC8545D29B030B9606C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 276020   (268967) от 28.12.2010
+
+Шнеко-роторные машины появятся на наших дорогах?!
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268967.jpg" />
+</div>
+
+
+###  Подробнее
+
+За решение этой задачи взялся петербуржец Алексей Бурдин, инициатор проекта "Трансформируемые шнеки или ТЕШ-драйв". Концепция шнеко-роторных вездеходов известна инженерам уже более ста лет и не пошла в серийное производство. Шнекоходы опирались не на гусеницы или колёса, а на два горизонтальных, заострённых с концов цилиндра, на поверхности которых был наварен "архимедов винт", он же шнек. При вращении они толкают машину вперёд или назад в зависимости от желания водителя.(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189400   (268927) от 08.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Лейк-Луиз (Канада). Женщины. Супергигантский слалом (03.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268927.jpg" />
+</div>
+
+
+###  Подробнее
+
+03 декабря 2017 года, воскресенье. 21:00 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Лейк-Луиз (Канада).
+Женщины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DBE2FF3E0779E40624AA7A5BDBDC827C85CDA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190101   (268926) от 08.12.2017
+
+Bobby Timmons - Six Classic Albums (1957 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268926.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cliff's Edge [06:32]
+02. Tenderly [07:05]
+03. Princess [06:18](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 03:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6DB3A3F40DFAC2B56AC284A981E34328188117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190029   (268925) от 08.12.2017
+
+Vassafor - Malediction (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devourer of a Thousand Worlds (16:27)
+02. Emergence (of an Unconquerable One) (05:05)
+03. Elegy of the Accurser (07:27)
+04. Black Winds Victoryant (14:17)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E487A5228B02929AAB8650071973AB18DC8772B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189925   (268924) от 08.12.2017
+
+Marc Hartman - 4 Seasons To Chill (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Glow
+02.  My Morning Sun
+03.  My Offences
+04.  Endless Summer (feat Airily - Shining Sun)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0C9A704EA70CCDC0FBA2BF668E0FA2C355C2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338640   (268923) от 16.11.2019
+
+Escape With Romeo - Greatest Hits (1999) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Goth Rock, New Wave, 90s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody (5:54)
+ 02. Helicopters In The Falling Rain (4:50)
+ 03. Serious (4:30)
+ 04. Teargas Baby (4:25)(   Читать дальше...   )Жанр: Electronic, Synthpop, Goth Rock, New Wave, 90sПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF0C7BB1FB0A5FDA5E2CF99A45AC1EED32924B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338779   (268922) от 16.11.2019
+
+Формула 1. Сезон 2019. Этап 20. Гран-при Бразилии. Свободная практика 3 (16.11.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Бразилии. Свободная практика 3
+Арена: Автодром Интерлагос - Жозе Карлос Пасе (Сан-Паулу, Бразилия)
+16 ноября 2019 года, суббота. 18:00 МСКТелекомпания: Матч АренаЖанр: СпортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE205EE598058A305195D6D60D9DF2FEB050D9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338696   (268921) от 16.11.2019
+
+RadioMaximus 2.26.2 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1C6C3F8B16B511798058294AF327DDB7FDF5FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338687   (268920) от 16.11.2019
+
+A'mbar - Love Maniac (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Maniac (17:00)
+02. Together To Heaven Or Hell (4:03)
+03. Sweet Lover (Part 1) (4:23)
+04. Sweet Lover (Part 2) (4:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7690127A3ED48F7DA6CDDA480B0133FE46889AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338761   (268919) от 16.11.2019
+
+Журнал | Vogue USA №12 (декабрь 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755E4747C844575A6879847EF11ACCDBE075BCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338528   (268918) от 16.11.2019
+
+TinkerTool System 6.82 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268918.jpg" />
+</div>
+
+
+###  Подробнее
+
+inkerTool System 6 — новая версия утилиты для администрирования macOS
+
+Выпущена новая версия утилиты TinkerTool System, позволяющей управлять скрытыми настройками операционной системы macOS.
+Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198DE5558242227E4B5250790115F55138958D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338691   (268917) от 16.11.2019
+
+Журнал | Psychologies №12-01 (47) (декабрь 2019 - январь 2020) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Psychologies - уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E70E75AC1F2B453832EF460F6DFFFCC035310B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

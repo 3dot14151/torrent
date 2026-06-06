@@ -1,3 +1,90 @@
+###  Публикация: 515510   (655936) от 26.06.2012
+
+VA - Club Session, Summer Edition (House Music Collection) (2012) [MP3|320 кб/с]<Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Train (Original Mix) - Fisher & Fiebak
+02. Keep On Groovin (Original Mix) - Funkstar
+03. Ethamin (Kid Shakers Remix) - SL Curtiz, Domovnik
+04. Knock On Your Heart (feat. Alec Sun Drae)Жанр: Funky, Club HouseПродолжительность: 01:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B951A0D06FFD61EAC96EFB303D0914313693069F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226302   (655854) от 20.05.2018
+
+VA - Amsterdam Trance Factory (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воодушевляющая электронная музыка с хорошими ритмами и самыми эксцентричными мотивами была собрана в специальную тематическую коллекцию под названием «Amsterdam Trance Factory». Альбом получился удачно органичным по звуковым качествам и продакшену. Каждая мелодия звучит идеально, и вся музыкальная картина имеет хороший микс.001. Maria Milewska & Andrew Henry - Crystalized (Original Mix)
+002. Roman Messer feat. Christina Novelli - Fireflies (Original Mix)
+003. Cyril Ryaz - Dark Side (Sunset & Steve Dekay Extended Remix)
+004. DJ Pasyk - My Fantasy(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FD14B3B90EA30AC12519034C4DC2BF13191DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140467   (655781) от 06.06.2017
+
+VA - Music For Your Car Vol.4 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655781.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Paffendorf - Where Are You 2K17 (South Blast! Remix) 5:00
+002.  Heaven42 - Dancing And Moving 5:07
+003.  Manu Da Bas - Come Baby Come (Extended Mix) 4:45
+004.  Helena Paparizou - Haide (Summer Breeze Remix) 3:39(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E1351B4EFE9D10EB4B7714789114956BF7527B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539495   (654919) от 28.03.2022
 
 VA - Beatport Electro House: Sound Pack #506 (2022) [MP3|320 Kbps] <Electro House>
@@ -676,90 +763,6 @@ Timur Mingazov - MBS Mix #26 (Spring Song / Trance Mar`16) (2016) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5446D5CAFFFE4E8A219CEACEE8A3620EA6D38627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031363   (652171) от 04.07.2016
-
-Timur Mingazov - MBS Mix #27 (Why Spring- - Deep House Apr `16) | (2016) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Born In Silence Intro
- 1.Yotto – Crosswalk
- 2.Kyle Watson – Moments
- 3.Sons Of Mafia – Chimera(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFAE80FDD8DEC930819903DD23CA0019A695C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031638   (652170) от 04.07.2016
-
-VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nicky Romero -  Novell (Original Mix) 5:35
-002. KSHMR feat. Sidnie Tipton -  Wildcard (Radio Edit) 3:09
-003. Sam Feldt -  Been A While (Madison Mars Remix) 3:39
-004. Tiesto & Bobby Puma -  Making Me Dizzy (Extended Mix) 4:40(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00818734E28D77A6E02C2ABFBC6816233B7F3202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031352   (652163) от 04.07.2016
-
-A.S.T - The Planet Of Music CD 4 - Mix By A (2016) [MP3|320 Kbps] <Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652163.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ сборникЖанр: Future HouseПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD597BF5A84579E2759AE746286BA6989D0D16BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

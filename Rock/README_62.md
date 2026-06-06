@@ -1,3 +1,299 @@
+###  Публикация: 1575325   (376992) от 09.09.2022
+
+Abrams - In The Dark (2022) [MP3|320 Kbps] <Stoner Rock, Heavy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Like Hell [00:03:59]
+02 Death Tripper [00:03:25]
+03 Better Living [00:04:16]
+04 In The Clouds [00:02:59](   Читать дальше...   )Жанр: Stoner Rock, Heavy RockПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8409828BE2E0BCB00E78782928CB4CC01BCCCFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575345   (376916) от 09.09.2022
+
+Scream Of The Butterfly - 2 Albums (2020-2022) [MP3|320 Kbps] <Heavy Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Keen-Eyed Man [00:00:45]
+02. Sinking Merry-Go-Round [00:04:18]
+03. Ain't No Living [00:03:15]
+04. Hallway Of A Thousand Eyes [00:02:53](   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 2 CD, 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9C9C0A9331D30C77909A6B9347DD7A891240BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574425   (376231) от 12.11.2012
+
+Jimmy Barnes - The Rhythm And The Blues (2009) [MP3|320 кб/с]<Rock | Soul | Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Red Hot
+02.  That's Right
+03.  Hallelujah I Love Her So
+04.  Thats How It Is
+05.  Keep A Knocking
+06.  Reconsider Me
+07.  Shake Rattle And Roll
+08.  Rockin Pneumonia
+09.  A Fool In Love
+10.  You Cant Judge A Book(   Читать дальше...   )Жанр: Rock | Soul | BluesПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B398B677BEBB365E6AA4FDEFEA9B182A308ABE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575503   (375485) от 10.09.2022
+
+Stratovarius - Destiny (1998) [OGG Vorbis|485 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.		Destiny	10:15
+02.		S.O.S.	4:15
+03.		No Turning Back	4:22
+04.		4000 Rainy Nights	6:00(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFE7A879B6FBB9504A27717A973C5FB390CA4B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575552   (375398) от 10.09.2022
+
+Slade - The Hucknall Miners' Welfare Club (2022) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dizzy Mamma (Live at the Hucknall Miners' Welfare Club) [05:15]
+02. Night Starvation (Live at the Hucknall Miners' Welfare Club) [03:52]
+03. Take Me Bak 'Ome (Live at the Hucknall Miners' Welfare Club) [05:16]
+04. Wheels Ain't Coming Down (Live at the Hucknall Miners' Welfare Club) [04:11](   Читать дальше...   )Жанр: RockПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330B5BA5463804C61CEF263FD295377307670114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575551   (375387) от 10.09.2022
+
+Slade - Alive! At Reading (2022) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Bak 'Ome (Alive! At Reading;Live) [04:51]
+02. When I'm Dancin' I Ain't Fightin' (Alive! At Reading;Live) [04:07]
+03. Wheels Ain't Coming Down (Alive! At Reading;Live) [04:26]
+04. (Medley) Somethin' Else, Pistol Packin' Mama, Instrumental Jam, Keep It rockin' (Alive! At Reading;Live) [06:22](   Читать дальше...   )Жанр: RockПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCAFDD63EE1999D02CA4685B96D975E8CB33A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575553   (375224) от 10.09.2022
+
+Slade - The New Victoria (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them Kinda Monkeys Can't Swing (Live at The New Victoria) [04:46]
+02. The Bangin' Man (Live at The New Victoria) [04:58]
+03. Gudbuy T'Jane (Live at The New Victoria) [04:44]
+04. Far Far Away (Live at The New Victoria) [04:20](   Читать дальше...   )Жанр: RockПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B2989A3EA01419616EFDA100F5EF904A9BEDEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949438   (375119) от 24.10.2015
+
+Weary Eyes - How To Leave Places (2015) [MP3|320 кб/с]<Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375119.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Killer Whale
+2. Keanu Leaves
+3. Secret Doors You Wish You Had
+4. Level Up!(   Читать дальше...   )Жанр: Post RockПродолжительность: 00:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C255431A9B3DB6D7536EBD92489310C1315A2991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254362   (375088) от 13.10.2018
+
+Suzi Quatro - Suzi Quatro (1973) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 48 Crash (3:59)
+02. Glycerine Queen (3:52)
+03. Shine My Machine (3:54)
+04. Official Suburbian Superman (3:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B5E3D15A4B2C0982FBFA3620756B8F33170A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069391   (373958) от 04.11.2016
+
+Flash the Readies - Kayos (2016) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obodin
+02. Kitten Diver Fair
+03. Harey
+04. Some Kinda Sucker(   Читать дальше...   )Жанр: Progressive Rock, Post-RockПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969388BB0014AD8BFD09B15B1B4960C7963B8484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069517   (373544) от 04.11.2016
 
 Queen - On Air (2016) Live [MP3|320 Kbps] <Rock>
@@ -470,293 +766,6 @@ Death Valley High - CVLT (AS FVK) (2016) [MP3|320 Kbps] <Industrial Rock, Experi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25FC0AA64F366B71573B5B6BD718817A5961EFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576194   (368692) от 13.09.2022
-
-Wölfhead (Wolfhead) - Blood Full Moon (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Doom, Psych>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rattlesnake Woman
-02. Ritual Invocation
-03. Dance of the Wolf
-04. Funeral Hearse(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Doom, PsychПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9E91308A8102215B245CF30618ABE0EB5E6943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576244   (368616) от 13.09.2022
-
-Stratovarius - Elements Pt.1 (2003) Reissue, 2008, Victor [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagleheart	3:50
-02. Soul Of A Vagabond	7:22
-03. Find Your Own Voice	5:10
-04. Fantasia	9:56(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627DF49D6C24583FEAA6BD322C0ED7DC3BF508DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576129   (368601) от 13.09.2022
-
-Taxi Caveman - 2 Albums (2021-2022) [MP3|320 Kbps] <Heavy Psych Stoner Doom Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...And the druids turn to sand [00:14:36]
-02. Death Cards [00:15:02]Жанр: Heavy Psych Stoner Doom RockПродолжительность: 2 CD, 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987D09E824C6361530CBBC8E00529AAF5CAF1796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576106   (368600) от 13.09.2022
-
-Hudu Akil - Eye for an Eye (2020) [MP3|320 Kbps] <Heavy Rock, Stoner, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Who Do I Kill
-03. Hot Pursuit
-04. Interlude(   Читать дальше...   )Жанр: Heavy Rock, Stoner, PunkПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8463272212516AEFF83E931F2F7368CC3F27333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576108   (368498) от 13.09.2022
-
-Stratovarius - Infinite (2000) [OGG Vorbis|485 Kbps] <Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hunting High And Low       	4:08
-02. Millennium                            	4:09
-03. Mother Gaia                     	8:18
-04. Phoenix                            	6:13(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C0002F8FF337835B8464BAB0B6DE557B5A58E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576169   (368495) от 13.09.2022
-
-Citizen - Life In Your Glass World (2021) Deluxe Edition, 2022 [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Dance Approximately [00:04:07]
-02. I Want To Kill You [00:03:12]
-03. Blue Sunday [00:03:52]
-04. Thin Air [00:03:03](   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE592539E2BFA5230D34400C4152EC65C4DC9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576111   (368493) от 13.09.2022
-
-US - 2 Albums (2020-2022) [MP3|320 Kbps] <Progressive Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars in broad daylight [00:18:06]
-02. Carousel [00:11:56]
-03. Song for Koen [00:19:37]Жанр: Progressive Symphonic RockПродолжительность: 01:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7B569950CC17109B8240EBAC184C7FE867236F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576118   (368480) от 13.09.2022
-
-Super Vintage - 2 Albums (2020-2022) [MP3|320 Kbps] <Classic Hard Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Ride [00:04:17]
-02. Indian Soul [00:05:51]
-03. Hero [00:04:43]
-04. Rolling Thunder [00:05:09](   Читать дальше...   )Жанр: Classic Hard Blues RockПродолжительность: 2 CD, 01:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F6D4B966E195A8A73FEFDBE0B5F0E8F203145F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416017   (367657) от 16.10.2020
-
-Different Image Project - Where Do You Want Ghosts To Reside (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind The Lines II (06:32)
- 02. Guilty (Album) (05:52)
- 03. In The Darkness (07:57)
- 04. Freedom (05:05)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB3376B4BCF6EE0D8DE1A465BD9E470764901BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416039   (367655) от 16.10.2020
-
-Alice Cooper - Alice Cooper FM Broadcast May 1978 (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under My Wheels (Live)
-02. I'm Eighteen (Live)
-03. Is It My Body (Live)
-04. I Never Cry (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5000055DB8C30FAB8AD36F3D9327F450307EFE26
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,23 +1,22 @@
-###  Публикация: 894451   (657355) от 31.05.2015
+###  Публикация: 340188   (658374) от 28.05.2011
 
-ESET NOD32 4.x/3.x (x32 x64) Offline Update 11711 (май 2015) [Multi/Ru]
+VA - Electro Face (03.05.2011) [MP3|320 kbps]<House, Electro-House>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_658374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Свежие базы для обновления вашего антивируса марки ESET в оффлайн-режиме (без входа в интернет). В состав входит обновление компонентов для русскоязычных версий программы (x32 и x64).
-Поддерживаемые версии антивирусной программы: 4.x и 3.x .
+Жанр: House, Electro-HouseПродолжительность: 12:11:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFDF1DFE47E13289AB119C9B9CD9964669EF977A
+magnet:?xt=urn:btih:404B93B5A7690B47277063A4EA237F9BC935BDC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 901902   (657354) от 31.05.2015
+###  Публикация: 341547   (658364) от 28.05.2011
 
-Ubuntu*Pack 14.04.2 MATE (май 2015) [i386 + amd64] (2xDVD)
+Pedro Del Mar - Mellomania Deluxe 488 (23-05-2011) [MP3|256 kbps]<Trance>
 
 >>Архив торрентов
->>Архив *Nix
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.Разработчик: UALinuxЯзык интерфейса: Мультиязычный (русский присутствует)
+PEDRO DEL MAR IN THE MIX:
+
+01. the 808s - lights out (nick galea remix)Жанр: TranceПродолжительность: 02:01:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE30B8C3559E449C4B8CA2AE6FE8FFA92BA34318
+magnet:?xt=urn:btih:1DE636F09C6623648F7A7D1DDA0CC81D40A18125
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +52,208 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903588   (657348) от 31.05.2015
+###  Публикация: 340950   (658349) от 28.05.2011
 
-Робот по имени Чаппи / Chappie (2015) BDRip [H.264]
+Bruno Sanfilippo - Subliminal Pulse (2011) [MP3|320 kbps]<Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_658349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Third Geometry (5:42)Жанр: AmbientПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C89405AE8AC1FF972090E32F2C40F549F587CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341024   (658305) от 28.05.2011
+
+VA - Ibiza Summer Trance (2011) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_658305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Weikum - Adem (Original)Жанр: TranceПродолжительность: 02:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36123C546618CD567F8C76FFD06CC73E340DD3CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514584   (658299) от 24.06.2012
+
+VA - TMP: Clear Sky 077 (2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658299.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sean Bay - At The End Of The World (Sean Bay Remix)
+002. Steve Brian & Cressida - Cambodia (Original Mix)
+003. Scott Lowe & Duncan Brewer feat. Dan Winter - City Lights (Original Mix)
+004. Soulforge - Ferris Wheel (Original Mix)
+005. Rene Ablaze feat. Synthesia - Inner Touch (Verum Remix)
+006. Rene Martens - Point of No Return
+007. Solarstone - Ultraviolet (Tucandeo Dream Mix)
+008. Ronny K. - Unstoppable (Original Mix)
+009. Richard Durand feat. Progressive Brothers - Veda (Richard Durand vs. the World Collab Mix)
+010. Running Man - Your Rules (Original Mix)2012Жанр: Trance, Vocal TranceПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96960CE151F2C6FBB3A85223523B664CD2B17CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514565   (658298) от 24.06.2012
+
+Газета | Готовим вкусно № 2 [2012] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658298.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Готовим вкусно" - газета для тех, кто любит вкусно приготовить, вкусно поесть, вкусно угостить друзей. Красочное издание для радушных хозяек. В нем рассказывается, как принимать гостей и сервировать стол. В каждом номере кулинарные рецепты изысканных и повседневных блюд.2012Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2084E168FD1A7E7ED220D26FBC0D3A74CAF2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514190   (658296) от 24.06.2012
+
+Veronica Falls - Veronica Falls (2011) [MP3|279-310 кб/с]<Indie, Indie Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Found Love In A Graveyard
+02. Right Side Of My Brain
+03. The Fountain
+04. Misery
+05. Bad Feeling
+06. Stephen
+07. Beachy Head
+08. All Eyes On You
+09. The Box
+10. Wedding Day(   Читать дальше...   )Жанр: Indie, Indie PopПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D897E9C5D8967EE9066AEA4356CDA510D1FDE93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514589   (658295) от 24.06.2012
+
+VA - Trance Desire Volume 21 (2012) (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andrew Rayel - 550 Senta (Aether Mix)
+002. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+003. Pedro Del Mar & illitheas - Bahia Del Sol (Illitheas Mix)
+004. Ana Criado - Can't Hold Back The Rain (Stuart Trainer Remix)
+005. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix)
+006. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix)
+007. ATB feat. Melissa Loretta - If It's Love (Jeziel Quintela, Jquintel & Manufactured Superstars Remix)
+008. Coldplay feat. Raphael Pujol - Paradise (Mike Foyle & X-Vertigo Vocal Mix)
+009. Goldenscan - Sunrise 2011 (Original Mix)
+010. Full Tilt feat. Deirdre McLaughlin - Surrender (Original Mix)2012Жанр: Vocal TranceПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05334E38E03AEB7697F0DEA40C3C5177B3A5329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514514   (658292) от 24.06.2012
+
+Байя / Baja (1995) DVDRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чаппи — вундеркинд. Как и любой другой ребенок, он попадает под влияние своего окружения, и только его сердце и душа помогут ему найти свой путь. Но есть одна вещь, которая делает Чаппи непохожим на всех остальных: он — первый робот, способный чувствовать и думать.Производство: Мексика, США, Columbia Pictures, Alpha Core, Genre FilmsЖанр: Фантастика, Боевик, ТриллерРежиссер: Нил БломкампАктеры: Шарлто Копли, Дев Патель, Ниндзя, Йоланди Фиссер, Хосе Пабло Кантилльо, Хью Джекман, Сигурни Уивер, Брэндон Оре, Джонни Селема, Андерсон КуперПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced, Full), Английский (Full)Продолжительность: 02:00:20
+После сделки с наркодельцами запахло жареным и парочка молодых людей отправляются в бега. Но в небольшом мексиканском городке Баха их настигает хладнокровный наемный убийца и начинается смертельная игра…Жанр: Триллер, Драма, КриминалРежиссер: Курт ВоссАктеры: Молли Рингуолд, Донал Лог, Крис Ширер, Нельсон Лион, Майкл Никлз, Корбин Бернсен, Вейн Дюваль, Карен С. Греган, Лэнс ХенриксенПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 01:28:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FE5E6E928E501A2B418567D41E254889275EA84
+magnet:?xt=urn:btih:0C00284007CB7183CF4D4CE6B8A29FFA63DEE94F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,85 +261,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 903487   (657340) от 31.05.2015
+###  Публикация: 514340   (658290) от 24.06.2012
 
-Робот по имени Чаппи / Chappie (2015) BDRemux [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чаппи - вундеркинд. Как и любой другой ребенок, он попадает под влияние своего окружения, и только его сердце и душа помогут ему найти свой путь. Но есть одна вещь, которая делает Чаппи непохожим на всех остальных: он – первый робот, способный чувствовать и думать.Производство: Мексика, США, ЮАР / Columbia Pictures, Alpha Core, Genre FilmsЖанр: Фантастика, Боевик, ТриллерРежиссер: Нил БломкампАктеры: Шарлто Копли, Дев Патель, Ниндзя, Йоланди Фиссер, Хосе Пабло Кантильо, Хью Джекман, Сигурни Уивер, Брэндон Оре, Джонни Селема, Андерсон КуперПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4108AEF60C5F3C1BC24B76802A77DA2CDD926D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887432   (657329) от 31.05.2015
-
-Чужестранка / Outlander (2014) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) SET
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клэр, работавшая медсестой во время Второй мировой войны, случайно перемещается во времени и попадает в 1743 год. В этом мире, полном приключений, она знакомится с шотландским рыцарем Джейми. У героев завязывается страстный роман, несмотря на то, что сердце Клэр разрывается между двумя мужчинами — Джейми и ее мужем Фрэнком, который остался в другом времени.Производство: СШАЖанр: фантастика, драма, мелодрамаРежиссер: Анна Ферстер, Брайан Келли, Ричард Кларк, Джон ДалАктеры: Каитриона Бэлфи, Сэм Юэн, Дункан Лакруа, Гари Льюис, Грэм Мак Тавиш, Тобиаш Мензес, Стивен Уолтерс, Аннет Бэдленд, Родерик Джилкисон и др.Перевод: Многоголосый закадровый, профессиональный - Sony Entertainment TelevisionПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8EC34ECFAEDB5EA46AFAF65DA28FC9988103D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341548   (657295) от 29.05.2011
-
-Pedro Del Mar - Mellomania Vocal Trance Anthems 158 (23-05-2011) [MP3|256 kbps]<Trance>
+VA - Зарубежные клубные новинки vol.23 (2012) [MP3|320 кб/с]<Club, Dance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. lune - girls with bangs (tiesto remix)
-02. cazzi opeia - i belong to you (axel bauer & lanford remix)
-03. dune - heiress of valentina (alesso remix)
-04. duderstadt feat. hannah ray - painted red (original mix)
-05. atb feat. jansoon - gold (josh gallahan remix)
-06. styller feat. suzanne isis - escape velocity (original mix)
-07. mike saint-jules pres. saint x feat. sandel - fight on (original mix)
-08. masoud feat. hannah ray - here we go (philippe el sisi remix)
-09. roger shah feat. moya brennan - morning star (original club mix)Жанр: TranceПродолжительность: 00:59:02
+01. Addict DJs feat. Ellenyi - Walk Away (Original Mix) (7:00)
+02. Alfred Rooseniit & Carl Hedstrom - Rise (Original Mix) (5:33)
+03. Andrew Bennett & Strobe - Magnolia (Original Mix) (7:07)
+04. ATB feat. Ramona Nerra - Never Give Up (Club Mix) (6:44)
+05. Audien Ft. Ruby Prophet - These Are The Days (Original Mix) (6:30)
+06. Brown Sugar - Let The Bass Kick (Original Mix) (6:36)
+07. Carita La Nina & Mark Simmons - That Melody (Original Mix) (6:22)
+08. Chuckie & Promise Land feat. Amanda Wilson - Breaking Up (Original Club Mix) (6:18)
+09. Cutee B feat. Jarell Perry - Fantasy (Bob Sinclar Remix) (6:19)
+10. Dimitri Vangelis & Wyman - Russia (Original Mix) (6:26)2012Жанр: Club, DanceПродолжительность: 04:42:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7396FA9F6905B8BECB0AAEE32BD31B29034EE4D9
+magnet:?xt=urn:btih:2FACD14430E18F40A108619B8900D3F29FDD3A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,34 +296,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515008   (657237) от 25.06.2012
+###  Публикация: 514379   (658289) от 24.06.2012
 
-Symfonia - In Paradisum (Japan Edition) (2011) [MP3|320 кб/с]<Melodic Power Metal>
+DJ Kocmoc - Euphoria Summer Dance vol.2 (12.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fields Of Avalon (05:09)
-02. Come By The Hills (05:01)
-03. Santiago (05:54)
-04. Alayna (06:17)
-05. Forevermore (05:31)
-06. Pilgrim Road (03:37)
-07. In Paradisum (09:35)
-08. Rhapsody In Black (04:34)
-09. I Walk In Neon (05:44)
-10. Don't Let Me Go (03:57)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:00:11
+1. Daddy Yankee vs Dave Kurtis vs Luca Cassani - Everybody Gasolina (CDJ Slider Mash-Up)
+ 2. Lowboys - Wind Of Change (Original Mix)
+ 3. Adele - Rolling In The Deep (Emelyanov & Stitch Bootleg)
+ 4. Daniel Portman & Stanley Ross - The Flow (Original Mix)
+ 5. Depeche mode-Enjoy the silence (Dj Martynoff mashup)
+ 6. Jennifer Lopez & A-One - Get Right (Dj Shummi Mash-Up)
+ 7. Britney Vs. Maison & Dragen - Criminal De Janeiro (Elkana pAz Mash-Up)
+ 8. Martin Solveig - Ready 2 Go (Tamudo's ''World'' Mash-up)
+ 9. Electro Music Shop - Kinky Girl (Club Mix)
+ 10. Erick Decks, DJ Sign & Felice - Running 2012 (Felice House Mix)(   Читать дальше...   )12.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:00:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D0221B95A958C5F75D4191CA38B1F75E7953B11
+magnet:?xt=urn:btih:17B33B2A0F71FFE3DC8B91460AD2EE5B2B3EA542
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,34 +331,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514376   (657236) от 25.06.2012
+###  Публикация: 514383   (658286) от 24.06.2012
 
-DJ Kocmoc - RED STATION vol.5 (3.06.2012) [MP3|320 кб/с]<Drum & Bass>
+DJ Kocmoc - Euphoria Summer Dance vol.3 (21.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Absurd & C.A.2.K. - Trannsformation (Original Mix)
- 2. Paperclip & MJ Free Feat. Thesys - Digital Machinist (Original Mix)
- 3. Noisia & The Upbeats - Dustup (Original Mix)
- 4. Noisia - Tryhard (Original Mix)
- 5. C-Sonix - From Another Planet (Original Mix)
- 6. Current Value - Harm (Original Mix)
- 7. Forekast - The Arrival (Original Mix)
- 8. N.Phect - Lotus (Original Mix)
- 9. Nais - 1001 Nights (Original Mix)
- 10. Agressor Bunx - Konflict (Original Mix)(   Читать дальше...   )3.06.2012Жанр: Drum & BassПродолжительность: 00:52:20
+1. Dj Sergey Fisun - Aura
+ 2. Chris Montana Ely Yabu - Rehab (Kutalek Biedermann Remix)
+ 3. Alex Tasty - Sweet Truth (Original Mix)
+ 4. Jose Uceda - Lost & Alone Song Of Valikirien Feat Lily Day (Original Remastered Mix)
+ 5. Jefferson Airplane & Dj Martynoff - Somebody ( Dj Armilov & Dj S-Nike Mash Up )
+ 6. Erick Decks - Daft Disco (Brown Sneakers Remix)
+ 7. Alen Sforzina - Ur Funk (Original Mix)
+ 8. Eddy Wata - I Like The Way (Danny Burn & Sasha Gulin Bootleg Rework)
+ 9. Duffy - Well, Well, Well (Artistic Raw Bootleg)
+ 10. Denny Berland & Dawn Tallman - Happiness (Club Mix)(   Читать дальше...   )21.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:04:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37A2E1256F8F4934FEAB5062AE44210811D6E9AD
+magnet:?xt=urn:btih:6140A8F3674F56AA9A7429199AA44FFE2D7B2287
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,25 +366,98 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515321   (657234) от 25.06.2012
+###  Публикация: 514378   (658283) от 24.06.2012
 
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №81 (2012.06.25) (2012) SATRip
+DJ Kocmoc - Euphoria Summer Dance vol.1 (9.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658283.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Linkin Park - What I've Done (Dj Fisun Remix)
+ 2. Rihanna - We Found Love Luis Erre Found The Love Klub Mix (Get-Tune.net)
+ 3. Avicii - Levels (Sprtn Remix)
+ 4. David Guetta - The World Is Mine (Dj Solovey Remix 2012)
+ 5. Ian Carey & Rosette Feat. Timbaland & Brasco - Amnesia (Firebeatz Remix)
+ 6. Erick Decks, Dj Sign & Felice - Running 2012 (Dj Sign Dirty Bass Mix)
+ 7. Daniel Harrison - House Thang (Dave Kurtis Remix)
+ 8. Electric Soulside - Somewhere In Nevada (Mike Balance Remix)
+ 9. Michel Telo - Ai Se Eu Te Pego (Andre Rizo & Sebastian Crayn Remix)
+ 10. Nikola Vujicic - She Was Made For Dancin (Muzikfabrik Remix)(   Читать дальше...   )9.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC6FE3866E5F126640ED9A97FEE1BB04821E1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513540   (658282) от 24.06.2012
+
+VA - Arisa Audio Goes Ibiza Vol.1 (2012) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evan London - Desire (Domenico Cascarino & Luca Lombardi Chillout Mix)
+02. Tucandeo - Blue Shores (Mango pres Shoreliners remix)
+03. Ciro Visone - Midnight (Type Ibiza Remix)
+04. Vitodito - Napoli (Sunn Jellie Remix)
+05. Total Sound - Temptation
+06. Invisible Sounds - In The Summer
+07. Vitodito - Ancient Whisper (Luiz B Remix)
+08. Sunset - Beautiful Life (Dmitry Bessonov Remix)
+09. Plathysma - Para Siempre (Invisible Sounds Remix)
+10. Ciro Visone - Immenso (Luca Lombard mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F2E5A85C89C3606669A0DD2F2C5A7A192F7969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139760   (658281) от 04.06.2017
+
+Баскетбол. НБА 2016-2017. Восток. 1/2 Финала. 6-й матч. Вашингтон Уизардс – Бостон Селтикс (12.05.2017) IPTV [H.264/1080p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:12:25
+13 мая 2017, суббота. 03:00 МСК
+НБА 2016-2017. Восточная конференция. Плей-офф.
+1/2 Финала. 6-й матч
+Вашингтон Уизардс – Бостон Селтикс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:32:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE9C932105DF744293AA3433CFB6DDD2F7FC74D3
+magnet:?xt=urn:btih:75F5E1F4EA22223AE5B2DBE1FDE040F1B6273E1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +465,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515365   (657231) от 25.06.2012
+###  Публикация: 1139718   (658280) от 04.06.2017
 
-Вечерний Ургант. Выпуск №33 (2012.06.25) SATRip
+Волейбол. Чемпионат мира среди клубов 2017. Женщины. Группа A. 2-й тур. Хисамицу Спрингс (Япония) — Динамо (Россия) (10.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:26:48
+10 мая 2017 года
+Чемпионат мира среди клубов 2017. Женщины. Предварительный раунд
+Группа A. 2-й тур.
+Хисамицу Спрингс (Кобе, Япония) — Динамо (Москва, Россия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1223943C01ED98DE8D0CCEBE5F207763AEB36DB
+magnet:?xt=urn:btih:7FACF2BDC2DE15450405B594DC95E51F01A5D976
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,27 +494,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515225   (657230) от 25.06.2012
+###  Публикация: 1139745   (658279) от 04.06.2017
 
-Wise Registry Cleaner 7.32 Build 470 Final + Portable [Multi(Rus)]
+Баскетбол. НБА 2016-2017. Восток. 1/2 Финала. 5-й матч. Бостон Селтикс – Вашингтон Уизардс (10.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Registry Cleaner - бесплатная утилита для чистки реестра Windows. Программа сканирует реестр и ищет в нем некорректную и устаревшую информацию, после удаления которой операционная система работает более быстро. После того, как программа проанализирует проблемы вашей системы, вы можете сами просмотреть каждую найденную неполадку и посмотреть ее детальное описание. Имеется возможность автоматической корректировки таких проблем. Все изменения, внесенные программой в реестр, могут быть отменены за два клика мышью. Также стоит отметить, что интерфейс программы переведен на множество языков, включая русский язык.
-
-При первом запуске утилита предлагает сделать резервную копию всего реестра, чтобы при необходимости его восстановить. В отличие от многих других подобных приложений, данная программа разделяет найденные ошибки реестра на безопасные, которые можно удалять, не опасаясь, что это нанесет вред системе, и такие ошибки, которые могут повлечь за собой нестабильную работу операционной системы. Удаленная информация (   Читать дальше...   )Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
+11 мая 2017, четверг. 03:00 МСК
+НБА 2016-2017. Восточная конференция. Плей-офф.
+1/2 Финала. 5-й матч
+Бостон Селтикс – Вашингтон Уизардс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:28
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EC9103114BEB5969C29C49C71CE15DB439EB6FC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,34 +523,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514384   (657228) от 25.06.2012
+###  Публикация: 1139755   (658274) от 04.06.2017
 
-DJ Kocmoc - Russian Dance vol.8 (22.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+Баскетбол. НБА 2016-2017. Запад. 1/2 Финала. 6-й матч. Хьюстон Рокетс – Сан-Антонио Спёрс (11.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Andrey Keyton feat. J - WELL - Ночь (Extended Cover Mix)
- 2. Demo - Solnyshko (Dj Prokuror-Music & KD Division Remix)
- 3. DJ Shtopor - Vashe Blagorodie (Fresh Extended Mix)
- 4. Dj Gold Sky - Zoloto (Bob Rovsky remix)
- 5. DVJ ELECTRA & Sound Stuff – На Всю Катушку (Greysound Remix)
- 6. Отпетые Мошенники - А у реки (Eugene Star Remix 2012)
- 7. Вирус - Аривидерчи (Jack Williams Remix)
- 8. Loya - Rozi Temno Alie (Klubnaya Volna Project Remix)
- 9. Olesya Ostapova - Ya Lyublyu Tebya (Klubnaya Volna Project Remix)
- 10. DJ Kopernik - Ангел ( extended club mix )22.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:31:40
+12 мая 2017, пятница. 03:00 МСК
+НБА 2016-2017. Западная конференция. Плей-офф.
+1/2 Финала. 6-й матч
+Хьюстон Рокетс – Сан-Антонио Спёрс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:32:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62F142E8127C867826ADA59A2A4810D5F86DCA47
+magnet:?xt=urn:btih:9E99B50FB1F7667BE5A7902C9664FA953B856633
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,27 +552,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515243   (657226) от 25.06.2012
+###  Публикация: 1139886   (658273) от 04.06.2017
 
-Wise Disk Cleaner 7.4.2 Build 495 Final + Portable [Multi(Rus)]
+Meta 1.6.6 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Disk Cleaner - программа для быстрого и легкого освобождения свободного места на жестком диске. Утилита удаляет ненужные мусорные файлы, которые не используются программами, установленными в вашей системе. Программа может определять более 50 типов мусорных файлов, и вы можете сами добавлять любые типы файлов, которые считаете мусором. После того, как программа просканирует систему на наличие мусорных файлов, можно индивидуально посмотреть каждый файл и подробную информацию о нем, после чего решить, стоит ли его удалять.
-
-Это программа предназначенная для поддержания вашего жесткого диска в чистоте и порядке тем, что она удаляет ненужные и устаревшие файлы. Обычно эти файлы возникают в результате неполного удаления во время деинсталляции программ, или как временные файлы интернета и т.п. Лучше всего время от времени их удалять, поскольку они могут со временем занять довольно большое пространство на вашем жестком диске. Wise Disk Cleaner с его интуитивно понятным и удобным интерфейсом поможет вам легко избавиться (   Читать дальше...   )Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
+Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
+С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 июня 2017Разработчик: Benjamin JaegerПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский, Французский и Немецкий
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:752DAA5F42619237761B0ADD90909C9A2666033F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,218 +579,59 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514204   (657221) от 25.06.2012
+###  Публикация: 1139465   (658269) от 04.06.2017
 
-Раскаленная суббота (2002) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сентябрьская суббота 1995 года. Депутат Дмитрий Земцов готовит к голосованию Закон о государственной поддержке малого бизнеса — инвестиции в полтора миллиарда долларов. Дома Земцова встречает празднично одетая жена, Вера — спустя годы объявился их давнишний друг Иван.
-
-Всех троих связывает студенческая дружба. Иван предлагает Земцову провести выходные на природе, и находит для друга по-настоящему «веский аргумент»…: грудь Ивана опоясывает обойма динамитных шашек. Убив на фирме трех милиционеров, Иван забрал двенадцать миллионов долларов. Земцов — его единственный шанс выбраться из города.
-
-Уже за городом выясняется, что Иван и Вера — любовники с прошлым, прерванным пять лет назад. Иван клянется, что вернулся ради Веры…Жанр: Мелодрама, КриминалРежиссер: Александр МиттаАктеры: Виктория Толстоганова, Алексей Гуськов, Владимир Симонов, Анатолий Кузнецов, Александр Балуев, Маша Абрамишвили, Алиса Признякова, Владимир Вдовиченков, Александр Митта, Алексей Ошурков, Татьяна Полежайкина, Алена Стебунова, Павел Меленчук, Андрей Межулис, Владимир БолотновЯзык субтитров: русскийПродолжительность: 01:45:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515258   (657220) от 25.06.2012
-
-Genuine Registry Doctor 2.5.5.6 + Portable by Invictus [English]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Genuine Registry Doctor - многофункциональная программа для очистки, оптимизации и исправления ошибок реестра операционной системы Windows. Программа позволяет удалять устаревшие записи из реестра и временные файлы Windows, очистить историю веб-браузера (только для Internet Explorer), есть возможность поиска дубликатов файлов и функция сканирования жесткого диска на наличие ошибок.Название программы: Genuine Registry DoctorЯзык интерфейса: English
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539622   (657216) от 26.03.2022
-
-AIMP 5.02 Build 2368 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657216.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1737186D0DFC0371E77E8916FA0574233C678620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539621   (657207) от 26.03.2022
-
-Balabolka 2.15.0.814 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Балаболка" предназначена для чтения вслух текстовых файлов.
-Для воспроизведения звуков человеческого голоса могут использоваться
-любые речевые синтезаторы, установленные на компьютере.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CCD280C4E7B84E3E6BA9F3F8669D383B8BB77E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539701   (657201) от 26.03.2022
-
-Glary Utilities Pro 5.184.0.213 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6C5FF699C8F7912D494DC627DD9487DB0845C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515297   (657172) от 25.06.2012
-
-Шеф (2012) SATRip [17 серия из 24]
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для своих подчиненных он просто Шеф, для уголовников – кость в горле. У него простые правила: честно служить, никого не бояться и не предавать своих. Шефа ждет немало проблем на службе. Он жесткий и непреклонный человек. Многим его методы приходятся не по душе, и в его жизненной копилке врагов прибавится. Но среди огромного количества бандитов есть один по-настоящему опасный человек – Максим Тихомиров. Отсидев срок, он вышел из тюрьмы и теперь хочет вернуть себе то, что отняли его бывшие подельники. Постепенно Тихомиров подминает под себя весь город. И единственный, кто может ему противостоять, – Виктор Расторгуев.Жанр: Боевик, Криминал, ДетективРежиссер: Анатолий Артамонов, Олег ЛаринАктеры: Андрей Чубченко, Ян Цапник, Эльдар Лебедев, Кирилл Полухин, Игорь Павлов, Татьяна Черкасова, Аркадий Коваль, Алексей Фокин, Филипп Величко, Евгений Савчук, Валерий Ошомков, Дмитрий Кочкин, Анна Королева (II), Николай Смирнов (V), Татьяна Ермилова (II), Андрей Кузнецов, Александр СаюталинПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515290   (657167) от 25.06.2012
-
-Шеф (2012) SATRip [18 серия из 24]
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для своих подчиненных он просто Шеф, для уголовников – кость в горле. У него простые правила: честно служить, никого не бояться и не предавать своих. Шефа ждет немало проблем на службе. Он жесткий и непреклонный человек. Многим его методы приходятся не по душе, и в его жизненной копилке врагов прибавится. Но среди огромного количества бандитов есть один по-настоящему опасный человек – Максим Тихомиров. Отсидев срок, он вышел из тюрьмы и теперь хочет вернуть себе то, что отняли его бывшие подельники. Постепенно Тихомиров подминает под себя весь город. И единственный, кто может ему противостоять, – Виктор Расторгуев.Жанр: Криминал, Боевик, ДетективРежиссер: Анатолий Артамонов, Олег ЛаринАктеры: : Андрей Чубченко, Ян Цапник, Эльдар Лебедев, Кирилл Полухин, Игорь Павлов, Татьяна Черкасова, Аркадий Коваль, Алексей Фокин, Филипп Величко, Евгений Савчук, Валерий Ошомков, Дмитрий Кочкин, Анна Королева (II), Николай Смирнов (V), Татьяна Ермилова (II), Андрей Кузнецов, Александр Саюталин, Олег Алмазов, Олег Куликович, Марьяна (Марианна) Семенова, Сергей Гамов, Максим Сергеев, Сергей Мардарь, Ярослав ИвановПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514979   (657164) от 25.06.2012
-
-Various Artists - Maori Haka & Chant (2002) [MP3|192 кб/с]<Ethnic,Maori>
+VA - Vocal Trance Vol 2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Te Haka Te Kareti
-2. Te Taniwha Putea
-3. Rua Mano
-4. Te Hoko Kino
-5. Kamate Kamate (All Blacks)
-6. Karangatia Mai
-7. Nukutere
-8. Maranga Ake Mai Ra
-9. E Kui Ma E Koro Ma
-10. Poropheihana(   Читать дальше...   )Жанр: Ethnic,MaoriПродолжительность: 01:02:23
+1. CubeTonic - So Strong (feat Dilara Gadel - Saad Ayub remix) (07:25)
+2. Russian Dolls & Nathia Kate - Always (feat Robin Vane - Ruslan Radriges remix) (03:43)
+3. Roman Messer & Armos - Higher (feat Angel Falls - original mix) (06:30)
+4. Eximinds & Lucid Blue - A Higher Love (original mix) (05:32)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30F705D8000492595038298B92E4C610AAEF192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339695   (658262) от 28.05.2011
+
+Linda Perry - два альбома (1996,1999)[FLAC|Lossless]<Female Vocalists/Indie/Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_658262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Garden	4:40
+    02. Jackie	5:13
+    03. Sunny April Afternoon	4:04
+    04. Lost Command	5:12
+    05. Get It While You Can	4:31
+    06. Bang The Drum	4:02
+    07. Some Days Never End	3:32
+    08. New Dawn	5:17
+    09. Fly Away	5:44
+    10. Let Me Ride	3:50(   Читать дальше...)Жанр: Female Vocalists/Indie/RockПродолжительность: 00:59:10
 
 ## Скачать торент
 ```bash
@@ -599,25 +643,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539595   (657150) от 26.03.2022
+###  Публикация: 514479   (658247) от 24.06.2012
 
-Tablacus Explorer 22.3.24 Portable [Multi/Ru]
+Koma & Bones - Shutterspeed (2003) [MP3|320 кб/с]<Breakbeat, Breaks>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tablacus Explorer - удобный в работе и простой в использовании файловый менеджер, позволяющий работать с двумя, либо четырьмя панелями, с возможностью создавать нужное количество вкладок на каждой. Tablacus Explorer дублирует все стандартные функции Проводника для работы с папками и файлами, дополняя их удобным представлением. Благодаря утилите процессы копирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+1. Take Me Back 6:57
+2. Donkey Spanner 6:54
+3. Questo É Sporc 6:15
+4. Bootabang 6:59
+5. Pusherman 4:02
+6. Twisted Streets 6:14
+7. Slalom 6:55
+8. Flip Flop 1:12
+9. Black Satsuma 6:21
+10. Nu Born 6:06(   Читать дальше...   )Жанр: Breakbeat, BreaksПродолжительность: 01:05:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:730AB631D5932CF40F6EBA12C29839C2208E4E21
+magnet:?xt=urn:btih:D2DFC73B147A01C7E82794054A69A127E684710E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +678,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539616   (657145) от 26.03.2022
+###  Публикация: 513728   (658246) от 24.06.2012
 
-Reg Organizer 8.91 RePack (& Portable) by Dodakaedr [Multi/Ru]
+VA - Солнечный Top 100 (2012) [MP3|256 кб/с]<Pop>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
+1. Пачуля - Жаркое Лето (Fidel Wicked Radio Edit) (3:21)
+2. Арина И Размер Project - My Moscow Love (2:50)
+3. Ани Лорак - Я буду солнцем (3:43)
+4. Real O - Луна (Я в белом платьице) (3:28)
+5. Алена Высотская - Опять неудача (3:52)
+6. Анна Гуричева - Моя Москва (3:39)
+7. Aslan feat. Misty - Знаю, Знаю (3:27)
+8. Макс Барских - Dance (3:20)
+9. Виталий Козловский - Целую (3:15)
+10. МакSим - Одиночка (2:26)2012Жанр: PopПродолжительность: 06:01:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63E9D801280EC9B283833986A73BD35C36666E6A
+magnet:?xt=urn:btih:1BCAED02B92396FB32E6ACF9706BFFA9F3BE4651
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,25 +713,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539688   (657143) от 26.03.2022
+###  Публикация: 514887   (658243) от 24.06.2012
 
-ORPALIS PaperScan Professional 4.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+Г.Н.Докучаева | Здоровье эндокринной системы [2007] [FB2]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ORPALIS PaperScan Professional является универсальной, мощной и простой в использовании программой для сканирования. Большинство приложений подобного рода предназначены для одного сканера, PaperScan позволяет управлять любым сканером, в том числе сетевыми сканерами (TWAIN или WIA протоколы поддерживаются). Вы можете импортировать любые изображения / PDF-файлы в PaperScan (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Описаны болезни эндокринной системы и наиболее распространенные добавки, которые могут быть рекомендованы при этих заболеваниях.
+Подробно рассказано о всех компонентах описанных биологически активных добавок: природных или идентичных природным биологически активных веществах, об их пользе для организма человека.Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EE9310D2221DC3B5805B0B228EF118819948ED2
+magnet:?xt=urn:btih:957FB26810A58F1DA20D1A62D2515FC8F53C0B2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,25 +740,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539715   (657140) от 26.03.2022
+###  Публикация: 514504   (658241) от 24.06.2012
 
-PDFCreator 4.4.2 [Multi/Ru]
+VA - The Spanish Guitar (2002) 2CD [FLAC|Lossless]<Classical Guitar>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDFCreator –  бесплатная программа для конвертирования документов в формат PDF. Принцип работы программы простой – берете документ, который хотите конвертировать, посылаете его на печать в виртуальный принтер, созданный PDFCreator, а потом сохраняете его в выбранном Вами формате. Данный инструмент позволит сохранять документы в таких форматах - PDFs: JPG, BMP, TIFF, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Tarrega - Recuerdos de la Alhambra [04:19]
+02. Sor - Theme & Variations, Op.11 [06:11]
+03. Granados - Danze Espanola No.1 [03:08]
+04. Ruiz-Pipo - 3 Estancias I [01:59]
+05. Ruiz-Pipo - 3 Estancias II [01:59]
+06. Ruiz-Pipo - 3 Estancias III [02:11]
+07. Jose - Sonata: Allegro Moderato [05:59]
+08. Rodrigo - Concierto de Aranjuez - Adagio [10:34]
+09. Castelnuovo-Tedesco - Escarraman: I - Gallarda [03:49]
+10. Castelnuovo-Tedesco - Escarraman: II - El Canario [03:30](   Читать дальше...   )2002Жанр: Classical GuitarФормат: 2 CDПродолжительность: 01:09:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20DCD3F7B27B7D139EC438875C2DFA4A5DDFA82E
+magnet:?xt=urn:btih:A6A0BB1850833FA4C4318FB4D124F0FA6B28F209
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,27 +775,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515360   (657130) от 25.06.2012
+###  Публикация: 514822   (658239) от 24.06.2012
 
-Сваты у плиты. Серия №12 (2012) SATRip
+Чистосердечное признание . Дай дорогу дураку (2012.06.24) SATRip
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Любимые герои народного сериала научат вкусно готовить простые блюда. И, конечно же, все это будет подано под соусом из шуток и хорошего юмора!
-На воскресной кухне вы встретитесь практически со всеми героями самого любимого народного сериала "Сваты": бабушкой Валей, прабабушкой Людмилой Степановной, внучкой Женечкой, соседкой Ларисой и, конечно же, Митяем. Ведь приготовление еды – это настоящее творчество, где каждый может поделиться своим секретом и дополнить блюдо лично приготовленным соусом. Тогда и самая обычная утка с яблоками превращается в шедевр кулинарии.
-А чтобы Ваш дом стал еще более хлебосольным, эксцентричный и неугомонный Митяй поделится рецептами напитков, которые лучше подавать к тому или иному блюдо. Ведь в приготовлении всевозможных коктейлей Митяю нет равных. Не говоря уже о том, что в умении правильно выбрать алкоголь для праздничного стола, веселый сосед семьи Будько даст фору даже самым образованным сомелье.Жанр: Кулинарный сериал, юморТелекомпания: В ролях: Татьяна Кравченко, Ольга Аросева, Олеся Железняк, София Стеценко, Николай ДобрынинПродолжительность: ~ 00:26:20
+Программа существует уже более 10 лет. Все это время в ней показывали только эксклюзивы — материалы, которые невозможно увидеть где-либо еще. Разнообразные темы и, конечно же, чистосердечные признания. Герои передачи доверяют зрителям самые сокровенные тайны. Корреспонденты и продюсеры программы — профессионалы, способные, оставаясь за кадром, заставить нас взглянуть на многие вещи и события под новым углом. Это документальная программа только о том, что действительно интересно. Здесь все реально, все эмоционально и обязательно актуально.В выпуске: Две беды — дураки и дороги.
+Что творят за рулем наши звезды и почему на дорогах все друг другу хамят?
+Блондинки против брюнеток, женщины против мужчин и пешеходы против водителей.Жанр: ДокументальныйПродолжительность: ~ 00:34:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEAE43972FC45C3FF0AEF29BDABEF25C471B2603
+magnet:?xt=urn:btih:7ABF820750178B037F833E175F3E652D67F54DE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

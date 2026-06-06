@@ -1,3 +1,90 @@
+###  Публикация: 1108944   (860999) от 26.02.2017
+
+VA - Music For Everyone - Deep House & Nu Disco Vol.5 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Overlay - Sunshine (Original Mix)
+2. Lenno - Good Thing (Re-Edit)
+3. Marco Cavax & Cue feat. Snoop Dogg & Leiner - All The Love You Got (Original Mix)
+4. Me & My Toothbrush - Air Miles (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8747B65432161A09D626713C568E7A23985CE1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000014   (860873) от 24.03.2016
+
+VA - Diamond Rain: Original Uplifting Trance Mix (2016) [MP3|320 кб/с] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860873.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mike Septima & Sander Playmo - Comeback! (Original Mix)
+002. Paul Van Dyk & Roger Shah Ft. Daphne Khoo - Louder (Club Mix)
+003. Linnea Schossow & Rafael Osmo - Airstrike (Original Mix)
+004. Johan Vilborg & Cristina Soto - Wasting Candles (Alex Klingle Remix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 12:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA1D10CB979B861D7B79A655B168036D887F213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376445   (860626) от 17.04.2020
+
+VA - Ordinary Life: Spring Chillout Party (2020) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860626.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dub Mars - You Can't Be Everybody's Darling
+002. Martin Vogel - South I
+003. Bennie Smith - Big Plan
+004. Bianchetti - Mi Promised(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 08:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAD37459F4FA18DBE0A5EE8292BA0BBB24B9C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 768743   (860550) от 20.03.2014
 
 VA - Lounge At The Seashore 7 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
@@ -658,93 +745,6 @@ VA - Finding Around Blessing (Energy Tech Trance) 002 (2017) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:146CA2B7A9B7043A1E224804EE3525765AEA4B2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110138   (855668) от 01.03.2017
-
-VA - Trance Traveling 86 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Attila Syah & LTN - Bromo (Original Mix)  4:28
-02.  PureNRG - Prophecy (Istoria 2017 Anthem)  5:16
-03.  Cold Blue - Gold Rush (Niko Zografos Remix)  5:20
-04.  TrancEye - Cosmodrome (Extended Mix)  6:14(   Читать дальше...   )Жанр: Trance, Uplifting Trance, VocalПродолжительность: 04:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6C0CBA00C17B3FE5F485852E23FCC4A5463EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769854   (855253) от 23.03.2014
-
-VA - Deep Mood: Smooth Deep House (selected by Alex3107) (2014) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855253.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sandrino, Frankey - Save (Original Mix)
-002. Sandrino, Frankey - The Edge (Original Mix)
-003. David August - Epikur (Original Mix)
-004. Lello B - L.O.V.E (Robbie F Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3257BAEB8EB6DF0211034CF33C029F836A3049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376998   (855204) от 20.04.2020
-
-VA - Beatport Psychedelic Trance: Sound Pack #62 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855204.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmos Vibration - Dreamscape
-002. Fractal Vivisection - Interstellar Gliding
-003. Luminaria - Gamma Wave
-004. Starlab - Symphonic Universe(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDAAAC1545AC9DCCA770CF4BE8C4F1242F781E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

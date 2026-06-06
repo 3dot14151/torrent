@@ -1,3 +1,235 @@
+###  Публикация: 1199552   (801133) от 16.01.2018
+
+Žofka - Melancholia (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Acid Folk, Chanson, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melancholia (4:24)
+02. Divan (4:30)
+03. Si Jamais (4:25)
+04. Signore Banfi (3:56)(   Читать дальше...   )Жанр: Electronic, Acid Folk, Chanson, LoungeПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CDD89AEC831A7F0C19F18F86788605D8506BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199742   (800409) от 17.01.2018
+
+Nulabee - Queen for a Day (2018) [FLAC|Lossless|tracks] <Balearic,Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between Sky & Sea 03:04
+02. Kingdoms Fall 04:17
+03. The Promise Of Horizon 04:00
+04. Shivers (feat Casey Cook) 03:02(   Читать дальше...   )Жанр: Balearic,DowntempoПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E368CE17FA5FB76F5DC78804BBD04029D99B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199642   (800297) от 17.01.2018
+
+VA - Bossa n'Adele (2017) [FLAC|Lossless|image + .cue] <Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonics - Hello (4:31)
+02. Michelle Simonal - When we were young (5:23)
+03. Morgan, G & Machines - Don't You Remember? (4:13)
+04. Sao Vicente feat. Shelly Sony - Someone like you (5:37)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083B75FD754D5D04EC2FD34624012A86824C687E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506967   (799101) от 02.11.2021
+
+VA - A Day to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Apres Sun (Original Mix) (4:06)
+02. Chris le Blanc - Melville Sings the Blues (Album Mix) (3:34)
+03. Living Room - A Cup of Jazz (Original Mix) (3:42)
+04. Pier-O - Cocktail Tune (4:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7655D6EBA24E057F8F188AA17E29E9C13FA942DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273970   (798776) от 04.01.2019
+
+310 - SMoKE DoGS (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Ambient, Future Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SMoKE DoGS Theme (04:33)
+02. Put Down That Phone (03:27)
+03. Amaroq (05:00)
+04. Chin Music (04:27)(   Читать дальше...   )Жанр: Downtempo, Experimental, Ambient, Future JazzПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159738922D44D124668A8BC4D13FE402B156FC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508182   (797970) от 07.11.2021
+
+Olive - CD Коллекция (4 CD, 2 Albums) (1997-2000) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, Synth-pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский электронный проект "Olive" известен большинству меломанов благодаря синглу "You're Not Alone", возглавлявшему верхние строчки мировых хит-парадов.
+Группа была основана в 1994 году бывшим клавишником "Simply Red" Тимом Келлетом и бывшим участником "Nightmare On Wax" Робином Тайлором-Фиртом, к которым вскоре присоединилась (   Читать дальше...   )1997 - Extra Virgin (Japan)
+1997 - Singles (exclusive limited edition)
+2000 - Trickle (Japan)Жанр: Electronic, Downtempo, Synth-popПродолжительность: 04:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5908EF77DF2D6BB336DD5701C274CF547A8F6707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385411   (797807) от 24.05.2020
+
+V.A. - Coffee Bar Lounge, Vol. 19 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allume - So Dance (Original Mix)
+02. Mazelo Nostra - Smooth Background (Original Mix)
+03. Dreamhunter - La Nostalgie (Original Mix)
+04. Kingstone - Dead Vally (Original Mix)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBCFDFC8D3125362F642A91FDAE97435E489B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385718   (797160) от 25.05.2020
+
+VA - Pop Hits in Bossa (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Pop, Bossa Nova>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christie Valent - Blinding Lights (Bossa Version) (3:39)
+02. Eleni Soaring - Dance Monkey (Bossa Version) (4:18)
+03. Eleni Soaring - What a Man Gotta Do (Bossa Version) (3:37)
+04. Christie Valent - I Love You (Bossa Version) (4:04)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Pop, Bossa NovaПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6549FB067C59225ECA2DC2724A49050CF7C9F115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508994   (796189) от 10.11.2021
 
 V.A. - Cafe Del Mar XXVII (Volumen Veintisiete) (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
@@ -507,238 +739,6 @@ Blank & Jones - Morning Of The Earth | My Island (2018) EP [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:549240C514917D22149C80B49FDF1B74A3FEEAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390183   (783361) от 14.06.2020
-
-VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Blue Rose (Eivizzards Mix)
-02. Marga Sol - Around Me (Deep Chill RMX)
-03. Dominik Pointvogl - Berlin Rooftop (Original Mix)
-04. Patiotic - Late Night Neon (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5047BD5D9AA24DFFB70D742D3F68CC8CD8F4B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390296   (783358) от 14.06.2020
-
-VA - On the Beach Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Gary B - Get This Right (Original Mix)
-02 Michael E - Infinite Beauty (Original Mix)
-03 Clive Button - A Wish Come True (Original Mix)
-04 Weber & Weber - Close to Nature(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B1F9B044F4B735E2E1DDC6DA4D982CB5E5031B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390488   (783065) от 15.06.2020
-
-VA - Sea Cruising Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gary B - It Feels Like Summer (3:54)
-02. Eivissarts - Stoned Love (Original Mix) (5:29)
-03. Clelia Felix - Under the Moonlight (4:36)
-04. Schwarz & Funk - Dambes (Original MIx) (5:26)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C004BA1B93F6803D09E845884A2B3AD204027F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209719   (779140) от 28.02.2018
-
-Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.Dreams (07:26)
-02. Cmyk (04:45)
-03. Cye (03:26)
-04. 50 Trees (04:10)(   Читать дальше...   )Жанр: Downtempo, Nu-Jazz, ChilloutПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BD9858ED6B31B85875105937A2F3CD84113FE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210274   (778874) от 02.03.2018
-
-Urban Love - Renditions, Pt. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Strong
-02. Come Undone
-03. Forget You
-04. Don't Dream It's Over(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF3460584B289BF82FFE9184D0C9E5619A3F058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210081   (778817) от 02.03.2018
-
-Moby - Everything Was Beautiful And Nothing Hurt (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Electronic, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mere Anarchy 5:15
-02. The Waste Of Suns 4:45
-03. Like A Motherless Child 4:37
-04. The Last Of Goodbyes 4:24(   Читать дальше...   )Жанр: Downtempo, Electronic, Trip HopПродолжительность: 56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C16EC264655C84FF0FFA6BBB806136FD0CD20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210795   (778509) от 04.03.2018
-
-Moby - Everything Was Beautiful And Nothing Hurt (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mere Anarchy (5:15)
- 02. The Waste of Suns (4:45)
- 03. Like a Motherless Child (4:37)
- 04. The Last of Goodbyes (4:24)(   Читать дальше...   )Жанр: Electronic, Downtempo, Trip HopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F76E84486CA897C4002F81090BA63D01AD6DC97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014279   (776484) от 07.05.2016
-
-zerO One - Signals (2015) [FLAC|Lossless|tracks] <Chillout, Electronic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. zulu (4:47)
- 02. mars (4:32)
- 03. data (4:27)
- 04. signals (4:06)(   Читать дальше...   )Жанр: Chillout, Electronic, DowntempoПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B39706A44031680747C7A94C576938C95D59A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

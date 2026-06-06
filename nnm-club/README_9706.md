@@ -1,349 +1,25 @@
-###  Публикация: 1136466   (674354) от 22.05.2017
+###  Публикация: 1029875   (678613) от 28.06.2016
 
-Озеро Элис / Lake Alice (2017) DVDRip [VO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Томас отправляется в свой дом в лесу, чтобы отпраздновать Рождество вместе со своей дочерью, которую давно не видели и познакомится ее новым парнем. Но их первая рождественнская встреча может стать и последней.Производство: СШАЖанр: УжасыРежиссер: Бен МилликенАктеры: Брандо Итон, Майкл Шамус Уайлз, Питер О’Брайэн, Лаура Ниеми, Эйлин Дитц, Крэйг Риз, Брэд ШмидПеревод: Любительский одноголосый (ХихиДок)Субтитры: ОтсутствуютПродолжительность: 01:15:09Реклама: Присутствуют вставки голосовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CDCDA7E523023B992251D102FEB991C90B9FAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136269   (674353) от 22.05.2017
-
-Проекты - VideoHive - Fast Opener v2 - 19490252 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Dynamic Slideshow - это стильный и современный шаблон After Effects. Мы видим быструю анимацию картинок и динамичную текстовую анимацию с красивыми переходами. Шаблон поможет Вам быстро создать потрясающее слайд-шоу ваших событий, отпусков, особых случаев, путешествий и экстремальных видов спорта, он легко изменяется и прост в настройке.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808AF9555E20706FFD19C85F4205EC749840FA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114257   (674352) от 22.05.2017
-
-Киборг-убийца (2017) WEBRip [H.264/720p]
-
->>Остальное
->>Игровое видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в наши дни. Одна корпорация начала создавать военных киборгов, вскоре решено было разработать для них искусственный разум, но один из создателей этих машин явно против этого...Производство: Enagel UnitedЖанр: Боевик, АнимацияРежиссер: Евгений ЖёлтиковПеревод: Многоголосый, любительскийСубтитры: нетПродолжительность: 00:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3488654BFA2992A90E21E6838E65CC07ED3FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136328   (674351) от 22.05.2017
-
-Scorpions - GOLD-The Ultimate Collection (1996) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Loving You (6:10)
-02. Under The Same Sun (4:54)
-03. Always Somewhere (4:56)
-04. No One Like You (3:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F4F64F55043EEFDA94F31C8695FB37B8777DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136472   (674350) от 22.05.2017
-
-Проекты - VideoHive - Color Logo - 19354470 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BAA6420201D29A577F494BB8F9B5F297176DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132972   (674349) от 22.05.2017
-
-Власик. Тень Сталина (2015) SATRip (сезон 1, серии 1-14 из 14)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал охватывает период с конца 20-х до начала 50-х годов XX века. В центре сюжета - судьба начальника охраны Иосифа Сталина, Николая Власика. Простому парню из села Бобыничи Гродненской губернии, Николаю Власику, суждено было стать одним из самых влиятельных, но незаметных людей эпохи. Более двадцати лет он являлся опорой и поддержкой Сталина, возглавляя охрану (   Читать дальше...   )Производство: Россия / "Пиманов-фильм"Жанр: биография, драмаРежиссер: Алексей МурадовАктеры: Константин Милованов, Леван Мсхиладзе, Ольга Погодина, Александр Нехороших, Диана Максимова, Александр Новик, Оксана Земляникова, Сергей Потапов, Дмитрий Янышевский, Егор Клинаев и др.Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA802C0AAD0F23964866E48484E8C7802506847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136132   (674348) от 22.05.2017
-
-Возрасты Лулу / Las edades de Lulu / The Ages of Lulu (1990) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674348.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни молодой девушки по имени Лулу и ее отношений с Пабло, американским профессором, соблазнившим Лулу еще совсем молоденькой девушкой и манипулирующим ею. История о том, что секс и любовь — разные вещи. Так утверждает Пабло, проводя Лулу через ряд сексуальных экспериментов.Производство: Испания | Iberoamericana Films Internacional, ApricotЖанр: ДрамаРежиссер: Бигас ЛунаАктеры: Франческа Нери, Оскар Ладор, Мария Барранко, Фернандо Гильен Куэрво, Росана Пастор, Хавьер Бардем, Хуан Граелл, Родриго Вальверде, Пилар Бардем, Марта МэйПеревод: Профессиональный многоголосый, Авторский одноголосыйСубтитры: OтсутствуютПродолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C4705D6B66FA4E0700EC8776191FE95364869A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136428   (674347) от 22.05.2017
-
-СПАРК. Герой Вселенной / Spark: A Space Tail (2016) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могущественные силы зла захватили прекрасную планету и поработили всю Вселенную. Но ничто не заставит Спарка и его верных друзей сдаться.
-Если у тебя храброе и доброе сердце, несгибаемая воля к победе и преданная команда, любая задача тебе по плечу! Звездная миссия по спасению Вселенной начинается.Производство: Канада, Корея Южная / ToonBox Entertainment, Redrover Co. Ltd., Gulfstream PicturesЖанр: Семейный, Мультфильм, КомедияРежиссер: Аарон ВудлиПерсонажи: Джессика Бил, Сьюзен Сарандон, Хилари Суэнк, Патрик Стюарт, Афина Карканис, Джейс Норман, Иван Шерри, Алан С. Петерсон, Джейсон Делайн, Аарон Вудли ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81473FF1A152D77A289A33F6DE28B3BD10552E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290984   (674346) от 22.03.2019
-
-VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edith Piaf - La Vie en Rose
-02. Margaret Whiting - Moonlight in Vermont
-03. Peggy Lee - I've Got You Under My Skin
-04. Sarah Vaughan - Come Rain or Come Shine(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BA2D8DF8161A2933E47F13B4F46EF061139345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290720   (674345) от 22.03.2019
-
-Пенсии малообеспеченных пенсионеров повысят сверх прожиточного минимума
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_674345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третье, окончательное чтение прошел закон, подготовленный в рамках реализации Послания Президента РФ Владимира Путина. Его цель - поддержать пожилых людей, которые, например, были инвалидами с детства, либо занимались уходом за детьми и не выработали стаж или работали там, где была очень маленькая зарплата21 марта Государственная Дума приняла в третьем чтении поправки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290850   (674344) от 22.03.2019
-
-VA - Markus Schulz - Global DJ Broadcast Top 20 March (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Christina Novelli - Symphony Of Stars (Solis & Sean Truby Extended Remix)
-02. Above & Beyond - Distorted Truth (Extended Mix)
-03. Cosmic Gate & Foret - Need To Feel Loved (Extended Mix)
-04. DT8 Project - The Edge (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2405033D703F692908DB289E3C03B9DC9D24F991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290856   (674343) от 22.03.2019
-
-Nick Waterhouse - Nick Waterhouse (2019) [FLAC|Lossless|tracks + .cue] <Blues, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By Heart (04:03)
-02. Song for Winners (03:00)
-03. I Feel an Urge Coming On (03:20)
-04. Undedicated (04:08)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37867734EA21DBCA7EFEE9EF3EE1E476CCDEE45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290721   (674342) от 22.03.2019
-
-TextMate 2.0 rc-23 [En]
+Волейбол. Мировая лига 2016.Мужчины. Предварительный этап.Группа B1. 2-й тур. США – Иран (17.06.2016) WEB-DLRip [H.264/1080p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678613.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TextMate для Mac OS - Отличный редактор программного кода и простых текстов. С помощью TextMate вы сможете обрабатывать скрипты, создавать макросы, интерактивно заполнять поля, проверять программный код на ошибки, подсвечивать код десятков языков программирования. Удобно реализована работа с множеством файлов, навигация и поиск по ним.
-
-Быстро растущее сообщество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2019Разработчик: MacroMates Ltd.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+17 июня 2016, пятница. 23:15 МСК
+ Первая игровая неделя. 1-й дивизион. Группа B1. 2-й тур
+Стадион:  Арена Кариока 1 (Рио-де-Жанейро, Бразилия) , 3530 зрителей (22 % при вместимости 16000)
+Судья 1:  Ибрахим Аль Наама (Катар)(   Читать дальше...   )Жанр: СпортЯзык озвучки: ИнтершумПродолжительность: 02:28:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADD8DCBCF80306A5E4DDF00865E3FE7DB4BB7740
+magnet:?xt=urn:btih:77E5662DFCC1D6780DD2F1FA29991723D9712276
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,28 +27,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290888   (674341) от 22.03.2019
+###  Публикация: 1029831   (678612) от 28.06.2016
 
-VA - The Sweetest Taboo Vol.1 (Sexy Deep-House Candies) (2019) [MP3|320 Kbps] <House, Deep House>
+VA - Festival Trance Music (2016) [MP3|320 Kbps] <Trance, Progressive Trance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grigory Melikhov -  Tech Of Sentiment (Fanis & Emanuel Phaz remix) 7:25
+02. Digital Department -  Enzox 6:54
+03. Matteo Monero -  You Don't Fool Me (Ronny Ritt vs Shock Osugi remix) 6:11
+04. Hypnotic Duo -  Into the Deep 6:03(   Читать дальше...   )Жанр: Trance, Progressive Trance, HouseПродолжительность: 02:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F868D54C6985A1C667676FFF1D2AD9CC36E9331D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029816   (678611) от 28.06.2016
+
+VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axwell & Ingrosso -  Dream Bigger (Instrumental) 4:02
+02. Firebeatz & Jay Hardway -  Home (Edit) 3:17
+03. Juicy M feat. Endemix -  Skies (I Don't Wanna Come Down) (Radio Edit) 3:21
+04. Dimitri Vegas & Like Mike Feat. Ne-Yo -  Higher Place (Afrojack Extended Remix) 5:54(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 04:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3511755FC7DCEC457FC3205878086798EC8A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029747   (678610) от 28.06.2016
+
+VA - The Best of House on the Beach - 30 Sexy Chillout Tunes (2016) [MP3|320 Kbps] <House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Antton - Soul Soup (Original Mix) 7:49
-02. The Boogeyman - Deep Forest (Original Mix) 5:06
-03. Skylab - For The Ones Gone (Original Mix) 5:44
-04. Jommes Tatze - Zirkus (C-Ro Remix) 7:23(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:54:33
+01. Rockhouse Crew - Love Extensions - Balearic Remix
+02. Patrick Blasa - Loose - Henrik Schwarz Remix
+03. Julia Messenger - Give This Up
+04. Christian Weiland - Tokyo Nights(   Читать дальше...   )Жанр: HouseПродолжительность: 03:16:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A57871B608F1B6C1BD45A39596F15582370684C
+magnet:?xt=urn:btih:334157F12F5EB5F774F495F8643895994B73C920
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,225 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290854   (674340) от 22.03.2019
+###  Публикация: 1029953   (678609) от 28.06.2016
 
-Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Dream-Pop, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels of Sweat
-02. Terrified
-03. Path to Love
-04. Fits of Rage(   Читать дальше...   )Жанр: New-wave, Dream-Pop, Synth-PopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4131D6F7A12259BE3DD0F4D4CD526D9EFB3FAC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290997   (674339) от 22.03.2019
-
-Обои - Wallpapers Кошачьи #45 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844BA49C75E9BC3358D125915563DD405C28ADB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290881   (674338) от 22.03.2019
-
-Qbserve 1.82 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отслеживание рабочего времени с комфортом.
-Qbserve в автоматическом режиме отслеживает время потраченное на работу и помогает повысить производительность. Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
-
-Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2019Разработчик: QotoQotПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327F1E9D1AFA305C6F948053B9EEF58D10A76BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290868   (674337) от 22.03.2019
-
-Mozilla Firefox Quantum 66.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751A3C6F54F126DF7F8A49CCC880E7B7D303B41F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290960   (674336) от 22.03.2019
-
-Black Blood - 2 Albums (1975, 1976) LP [MP3|320 Kbps] <Electronic, Funk, Disco, Afrobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicano (When Philly Goes to Barcelona) (3:59)
-02. Mapendoya Faranga (La Farenga) (3:27)
-03. Twalikutemka (2:34)
-04. Aye Mama (2:22)(   Читать дальше...   )Жанр: Electronic, Funk, Disco, AfrobeatПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70E1A73EB029E5C0406707D197200A1989D8379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290762   (674335) от 22.03.2019
-
-VA - Trance Nation (2019) [MP3|320 Kbps] <Trance, Electronic, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alt & J - Emotion
-02. LekSin - Angels & Demons
-03. Simon Moon pres. JP Project - Madness (Arrakeen Arraknophobic Remix)
-04. Tecnomind - Non Stop Dreaming (Radio Edit)(   Читать дальше...   )Жанр: Trance, Electronic, ProgressiveПродолжительность: 04:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBD82EC6D67E63A1F4EEB7B678C63C25A5EC00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290765   (674334) от 22.03.2019
-
-Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. October in the Railroad Earth (04:58)
-02. Small Engine Repair (03:50)
-03. T-Bone Steak and Spanish Wine (05:16)
-04. Isadore Gonzalez (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241C5EE253344BB563B0B0ADBB5DBA216A79792C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290899   (674333) от 22.03.2019
-
-Сегодняночью - Седьмой (2019) [MP3|320 Kbps] <Rock>
+Widow - Carved In Stone (2016) [MP3|320 Kbps] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ургант
-2. Капли
-3. Красками
-4. На Невском(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:31
+1. Burning Star
+2. Carved In Stone
+3. Another Time And Place
+4. Wisdom(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C27AFA53F971473A96DEBF6F51B2EB91398F47A5
+magnet:?xt=urn:btih:C322BE181ED2853BD334CA8E7F22537598B67225
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +143,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290860   (674332) от 22.03.2019
+###  Публикация: 1029544   (678608) от 28.06.2016
 
-Lullatone - Music For Museum Gift Shops (2019) 2CD [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Piano>
+VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
 
->>Other Styles
->>Instrumental (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. trying something again again (piano version) (02:42)
-02. my second favorite song in the world (piano version) (04:37)
-03. an ode to eaten snowflakes (piano version) (01:10)
-04. a blanket of snow spotted from under the blankets in bed (piano version) (01:43)(   Читать дальше...   )Жанр: Ambient, Instrumental, PianoПродолжительность: 02:17:24
+001. Laidback Luke - Bae (Feat. Gina Turner)Жанр: Club, HouseПродолжительность: 08:58:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15D8207138D0378B804A49CCC2D657E0DAD3AF4B
+magnet:?xt=urn:btih:EE0350C95819B587262A46C0C23D5D08E3E59148
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,54 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290723   (674331) от 22.03.2019
+###  Публикация: 1029973   (678607) от 28.06.2016
 
-Pixave 2.3.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674331.jpg" />
-</div>
-
-
-###  Подробнее
-
-При работе с большим количеством изображений встает вопрос их эффективной организации и просмотра. Это важно для тех, кто связан с дизайном, оформлением, и просто людей, любящих, когда все разложено по полочкам. Именно для этого и создан менеджер изображений Pixave, в котором не только удобно хранить и просматривать картинки, но и сортировать их, редактировать, экспортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018Разработчик: YoungHo KimПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191676CFDB1360E1D4E38A739A6B5318C7A4F776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290849   (674330) от 22.03.2019
-
-VA - Relax Time (2019) [MP3|320 Kbps] <Downtempo, Meditation, Electronica>
+VA - Soft Lounge (2016) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Music Is A Film - Back To The Start (Original Mix)
-02. Yoga & Meditacion - Rising Star (Yoga & Zen Meditation Version)
-03. Ressonnimo - Sol Naciente (Yoga & Meditation Version)
-04. Cinematic Meditation - Enough For Happiness (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Meditation, ElectronicaПродолжительность: 01:29:02
+01. Bessi B. - Do You Remember Me (4:11)
+02. La Brisa Del Mar - Session One (6:03)
+03. Elaphe Guttata - Eulalie (4:30)
+04. Didascalis feat. Wrong Experience - Rainfall (5:23)(   Читать дальше...   )Производство: Sound DesignerЖанр: Lounge, Downtempo, ChilloutПродолжительность: 00:52:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46A590473AE6EAF8C5ADBAEB203ED31F42971324
+magnet:?xt=urn:btih:7C4166AB32DC659121DB467D7A16B183E482C661
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,28 +198,533 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290934   (674329) от 22.03.2019
+###  Публикация: 1029767   (678606) от 28.06.2016
 
-Alessandro Safina - Insieme A Te (1999) 2001 Universal [FLAC|Lossless|image + .cue] <Pop, Classical>
+VA - Suanda Summer Vol.3 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luna
-02. La Sete di Vivere
-03. Aria E Memoria (Radio Edit)
-04. Siena(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:00:45
+01. Feel & Alexandra Badoi -  Did We Feel 5:20
+02. Aurosonic Ft. Nicol Cache -  Tell Me Why (Mhammed El Alami Remix) 6:05
+03. Kayat Ft. Clare Stagg -  The Calling 7:11
+04. Eximinds -  Archaea 5:36(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:06:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B622B1A9463033D652EE50F519F9FF1E482BA9AE
+magnet:?xt=urn:btih:F34F0942A9DC31CFB4EC4EEAAFC4693223CE965B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029504   (678605) от 28.06.2016
+
+VA - DJ World Places Miracle (2016) [MP3|320 кб/с] <Funky, Disco, Electronica, Tropical, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dustin Mccoi - What You Want (Dayne S Remix) 06:21
+02. Dimaro - Summer (Original Mix) 04:22
+03. Djerem - Never Look Back (Dave202 Remix) 04:40
+04. Dim Sum - High Love (Original Mix) 03:56(   Читать дальше...   )Жанр: Electronic, Disco, ClubПродолжительность: 09:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C06CDD47EB35BE2C04452592AF1749F35958B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029750   (678604) от 28.06.2016
+
+VA - Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Rihanna -  This Is What You Came For (Denis First Remix) 4:12
+02. Major Lazer & MOTi ft Ty Dolla Sign, Wizkid & Kranium -  Boom (Gumanev & DJ Cosmos Deeptool) 4:35
+03. R3hab feat. Sia vs. Tom Tyger -  Wolf Nation (Night & Toni Aries Mashup) 4:34
+04. Safri Duo -  Played-A-Live (Yastreb Remix) 4:17(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EBAEEA7544ACB0FC84C53BD635E88B5AB27FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029681   (678603) от 28.06.2016
+
+Dj DAN62 - Унц Унц Микс Июнь Часть 2 (2016) [MP3|320 Kbps] <Dance Pop, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678603.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. David Guetta feat. Zara Larsson - This One's For You (Stefan Dabruck Remix)
+2. Calvin Harris feat. Rihanna - This Is What You Came For (R3hab & Henry Fong Remix)
+3. F&M Project vs. Iuri DJ feat. Cristina - The Moon (Club Version)
+4. Simone Pacella – Mister Deejay (Extended Mix)(   Читать дальше...   )Жанр: Dance Pop, Electro HouseПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B737F086CAA051539CBE02269A8C5511C526F6A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029686   (678602) от 28.06.2016
+
+VA - 150 Underground Hits Check Story (2016) [MP3|237-320 Kbps] <Funky, Club, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Napt - Hold Tight 03:54
+02. Micha Moor - Space (Vinai Remix) 03:48
+03. Doc Brown - Classixx 06:30
+04. Kelsey B - Come With Me (Barona & Hull Club Mix) 07:09(   Читать дальше...   )Жанр: Funky, Club, SoulfulПродолжительность: 14:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848E4CC3B141E6FF8E47B64D52DF8452F9A0E64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029563   (678601) от 28.06.2016
+
+VA - Hot Party Summer (2016) [MP3|320 Kbps] <Latin, Electronic, Dancehall>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678601.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Пpодолжительность: 01:15:53
+
+01. Alvaro Soler - Sofia 03:31(   Читать дальше...   )Жанр: Latin, Electronic, DancehallПродолжительность: 02:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E412B6E938F1087DFDE63848F5C2A792F322D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029941   (678600) от 28.06.2016
+
+Mozilla Firefox 48.0 beta 4 (x86/x64) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3148D5E41006FD4398546EDC2C47138BFFBF32A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029923   (678599) от 28.06.2016
+
+Граф Гагарин - Любовь без правил (2013) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. До конца света (3:43)
+02. Тебя искал я (Город на Неве) (4:19)
+03. Карибы (4:26)
+04. Я убью его! (4:36)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9226BC3B01EB2E5DF933546EB0A6AAF0C5AB1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029667   (678598) от 28.06.2016
+
+Бертольт Брехт | Жизнь Галилея (1960) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое «Жизнь Галилея»? Это, во-первых, буйная режиссерская фантазия. Многое придумал, вернее, увидел, в самой пьесе Брехта Ю. Любимов. По бокам сцены расположены хоры — мальчиков и толстых монахов. Хор мальчиков олицетворяет истину, гармонию, устремленность в будущее. Хор монахов — это трезвая мыслишка обывателей, хитрость мещан, разум трусов. И конфликтуют не (   Читать дальше...   )Жанр: ДрамаПродолжительность: 02:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C1492B3A002D2D5A2C702C35DA8DCB94D1A4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029858   (678597) от 28.06.2016
+
+VA - 150 In Style Trance Melodic Showing (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678597.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren presents Rising Star feat. Betsie Larkin -  Safe Inside You 7:03
+002. Aly & Fila with Ferry Tayle -  Nubia (Extended Mix) 7:41
+003. Bobina -  Invisible Touch (Aly & Fila Remix) 8:23
+004. A.R.D.I. & Dennis Pedersen -  Forgotten (Original Mix) 7:03(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 17:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6521861586BE424BA928498A2508F9C2FAB79DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029149   (678596) от 28.06.2016
+
+Dj DAN62 - Унц Унц Микс Июнь Часть 1 (2016) [MP3|320 кб/с] <Dance Pop, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мот - 92 (Eugene Star Remix)
+2. Pink – Just Like Fire (Denis First Remix)
+3. David Guetta ft. Zara Larsson - This One's For You (Kolya Funk & Eddie G Remix)
+5. Willy William - Ego (Alexx Slam & Kolya Dark Remix)(   Читать дальше...   )Жанр: Dance Pop, Electro HouseПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C071D77A89EDC7249A88C89C37F4D687110CB0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029780   (678595) от 28.06.2016
+
+VA - Turbo Dance. Mix Music (2016) [MP3|233-320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678595.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Degree - Hunny Bunny
+2. Bad Booty Brothers - Worth It (Radio Edit)
+3. Barby G - What’s Up (Radio Edit)
+4. Aura - Love Somebody(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64B280668E9D03BB26E777E7DD2456E32CA94DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135741   (678594) от 20.05.2017
+
+LRTimelapse Pro 4.7.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678594.jpg" />
+</div>
+
+
+###  Подробнее
+
+LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
+
+Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 мая 2017Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E5F42379BA2EB98863FC7E3B40573559A28F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135580   (678593) от 20.05.2017
+
+FTP Server 1.2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678593.jpg" />
+</div>
+
+
+###  Подробнее
+
+FTP Server обеспечивает простой способ обмена файлами между компьютерами и другими устройствами.
+
+FTP Server поставляется с собственной аутентификацией пароля, поэтому вам не нужно передавать свою учетную запись другим людям, и вам не нужно создавать системного пользователя для аутентификации.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: Coral WuПоддерживаемая ОС: OS X 10.7.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F38ABF91FD7545D68CCF5503D7308757F391DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135565   (678592) от 20.05.2017
+
+Ashampoo Slideshow Studio HD 4.0.7.1 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждодневные события, а также самые главные моменты в Вашей жизни — Ваши фотографии имеют историю - расскажите её с помощью Ashampoo Slideshow Studio HD 4. Откройте для себя простейший и быстрейший путь превратить Ваши фотографии в ошеломляющее HD видео.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3476F985CC43F0DB20C83D85F8AC6AD1DE1825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135662   (678591) от 20.05.2017
+
+VA - Зайцев.Нет: Топ Новинки За Май (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Khaled Feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm the One 4:49
+02.  ЛСП - Конец света 5:48
+03.  Katy Perry - Bon Appetit (feat. Migos) 3:47
+04.  Afrojack & David Guetta ft. Ester Dean - Another Life 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 04:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AABBBC9A4804C57D2B11E498874DBE40D73110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135796   (678590) от 20.05.2017
+
+Ashampoo Video Converter 1.0.1.8 RePack by вовава [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео не воспроизводятся одинаково на всех устройствах. Чтобы это больше не было для Вас проблемой, Ashampoo Video Converter автоматически конвертируется Ваши видео в подходящий формат. Быстрые результаты и превосходное качество. Просто выберите Ваши видео и целевое устройство, и Вы готовы! Вам не нужно быть экспертом в спецификации устройств или поддерживаемых форматах.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B92D72C2DB53A095A297D3A4441698D663B7E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135857   (678589) от 20.05.2017
+
+Ева Никольская | Фея для лорда тьмы (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Лорды Триалина».
+
+Я — фея под прикрытием и охотница за артефактами. Он — лорд тьмы, верховный жрец и затворник. А между нами древний лес, наводненный таинственными призраками. Чтобы разгадать их тайну и узнать намерения, нам придется действовать сообща. И тут главное не запутаться в паутине чужих интриг, не стать дичью на охоте, устроенной привидениями, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF82A2E1175CDB8B251C128F02AF2824891A6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133615   (678588) от 20.05.2017
+
+Громила и скороход / Thunderbolt and Lightfoot (1974) Blu-ray [H.264/1080p] [Custom]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преступник, отколовшийся от своей банды после давнего неудачного ограбления, пытается разыскать спрятанные деньги, не подозревая, что его бывшие дружки идут по тому же следу. К тому же в напарники он берет непутевого бродягу.Производство: США, The Malpaso CompanyЖанр: Приключения, комедияРежиссер: Майкл ЧиминоАктеры: Клинт Иствуд, Джефф Бриджес, Джордж Кеннеди, Джеффри Льюис, Кэтрин Бах, Гэри БьюзиПеревод: Многоголосый, АвторскийСубтитры: РусскиеПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384EE48049B7D98C3EBFDC0D0A037A4087556446
 ```
 
 https://mybot314.ru/tekegram_catalog/

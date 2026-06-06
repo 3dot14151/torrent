@@ -1,3 +1,360 @@
+###  Публикация: 1292135   (648625) от 28.03.2019
+
+VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Rich - The Most Beautiful Girl
+02. Forester Sisters - I Fell in Love Again Last Night
+03. Earl Thomas Conley - Angel in Disguise
+04. George Jones - I Always Get Lucky With You(   Читать дальше...   )Жанр: CountryПродолжительность: 01:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A38DD330EB6A5964627440585F6450F8E1579D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227078   (648472) от 25.05.2018
+
+VA - Quiero Fiesta (Club Hits 2018) [MP3|320 Kbps] <Latin Hip-Hop, Reggaeton, Bachata, Salsa>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veronica Vega, Pitbull - Wicked (Dj Papi Electric Club Remix) 5:02
+02. Wilo D' New - Menea Tu Chapa 2:59
+03. Farina, El Micha, El Pocho, Honorebel - Mari (Dj Gangsta & Dj Unic Remix) 3:53
+04. Crossfire, Elephant Man - Hot Hot Hot (Extended Club Remix) 3:48(   Читать дальше...   )Жанр: Latin Hip-Hop, Reggaeton, Bachata, SalsaПродолжительность: 03:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A55FAA42DC1AA00BC7A4DC0EB9720A9B14ADF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541071   (648418) от 01.04.2022
+
+Вилы - Крапива (2022) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дождик
+2. Крапива
+3. Млада
+4. Перепну я речушку(   Читать дальше...   )Жанр: FolkПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9437F5C22089299A1DD3DAC5FBAF6A38B5B770F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032166   (647764) от 06.07.2016
+
+George Skaroulis - Sanctuary 2 (2015) [MP3|320 Kbps] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is The Key
+02. You're Still Here
+03. Misirlou
+04. Sky Blue(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F2763FD0ED2C1272CE35450DB7C4211A1DBE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905722   (647694) от 07.06.2015
+
+Jack Menhorn & Ashton Morris - Lemma Original Soundtrack (2015) [MP3|128 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это оригинальный саундтрек для игры Лемма. Некоторые из треков были написаны Джеком Мэнхорн, прежде чем Эштон Моррис начал работу над проектом. Так что это совместное творчество.01. Rain - By Jack Menhorn 01:30
+02. Dawn - By Ashton Morris 03:56
+03. Forest - By Jack Menhorn 02:48
+04. Run - By Jack Menhorn 03:11(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E586E51E53694443FC8C8634C58B5834A00CC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517511   (647614) от 01.07.2012
+
+VA - Radio Rebel / Бунтарка (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647614.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Whereabouts - Afterthought (2:50)
+ 2. Champion - Backing Off (2:53)
+ 3. Karl Kimmel - Brand New Day (2:37)
+ 4. The Barrymores - Can't Stop The Rock (2:34)
+ 5. Fat Sue - Like You Love Her (3:47)
+ 6. Above Envy - My Revolution (2:37)
+ 7. Two Hours Traffic - No Advances (3:18)
+ 8. The GGGG's - Now I Can Be The Real Me (3:18)
+ 9. Central Park Feat. Maylee Todd - Touch The Ground (1:58)
+ 10. Debby Ryan - True Every Day (3:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAA6F39D68EB128FF049675B9ADA20C6DED647D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906112   (647543) от 07.06.2015
+
+Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duma Sa Duma
+02. Bay City Shimmy (Fusion Mix)
+03. Golden Gate Mist
+04. Raqs Shehani(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75244019D01523D631A87FDA816B10ABAA9501BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905944   (647540) от 07.06.2015
+
+Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium
+02. Fragrant Mountain
+03. Anchoress
+04. Bouddica, Heart On Fire(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DECE6D817D7ADEAE2E08FD930974BA9ABCD9E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905612   (647307) от 07.06.2015
+
+VA - Romantic Collection. Country (2000) [FLAC|Lossless]<County>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean-Luc Ponty - New Country (3:15)
+02. John Fogerty - Big Train (3:04)
+03. Reba McFutire - Cumb That Mountain High (3:01)
+04. S.Buono - Ode To 33 (2:42)(   Читать дальше...   )Жанр: CountyПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8D5E09BE8F6F7915333F80564DB0D958085ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517279   (647264) от 01.07.2012
+
+Новый Человек-паук / The Amazing Spider-Man (2012) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647264.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Main Title (Young Peter)
+2. Becoming Spider-Man
+3. Playing Basketball
+4. Hunting For Information
+5. The Briefcase
+6. The Spider Room (Rumble In The Subway)
+7. Secrets
+8. The Equation
+9. The Ganali Device
+10. Ben`s Death(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E788B6D257EEE668CD77C4ED1D71F8B047BDA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517024   (646868) от 01.07.2012
+
+VA - 599 фраз из нашего кино и мультфильмов (2009) [MP3|32-64 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E720A56E93C50D5DF44F2CFA24AE188A00927B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292148   (646812) от 29.03.2019
+
+Andrew Bird - My Finest Work Yet (2019) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Indie-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisyphus (04:06)
+02. Bloodless (06:29)
+03. Olympians (04:00)
+04. Cracking Codes (03:12)(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2AF44E579ABC6D8A0009E27A2DB009B3B5765A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292486   (646807) от 29.03.2019
 
 Reggie Young - Session Guitar Star (2019) [FLAC|Lossless|tracks + .cue] <Eclectic, Guitar Rock>
@@ -404,383 +761,6 @@ Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12E84847938C33BE8AF513E245D8507CEDE05374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215448   (643987) от 08.07.2010
-
-Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - J.S. Bach - Prelude in C Major from The well tempered clavier
-02 - Beethoven - Adagio from Violin sonata No.5 in F Major, Op.24. Spring
-03 - Haydn - Largo from Symphony No.88 in G major
-04 - Debussy - Preludes, Book 1. No.8. Girl with the flaxen hair
-05 - Chopin - Larghetto from Piano concerto No.2 in F minor, Op.21
-06 - Mozart - Adagio from Violin concerto No.2 in G major
-07 - Schumann - Larghetto from Symphony No.1 in B flat major, Op.38. Spring
-08 - Schubert - Andante from String quartet No.12 in C minor
-09 - Corelli - Adagio from Sonata No.6, Op.1
-10 - Tchaikovsky - Andante cantabile from String quartet No,1 in D major, Op.11Жанр: Релакс, New Age, MeditativeПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032767   (643795) от 08.07.2016
-
-Jacob Pavek - Illume (2015) [FLAC|Lossless|tracks] <Modern Classical, Ambient, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stairs    02:48
-02.  Tonight, Tomorrow    01:45
-03.  Illume    03:35
-04.  Seasons    05:04(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6353A7850A8D0EF79773EA10B0FE3276F12FE3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032754   (643658) от 08.07.2016
-
-VA - The Melodic Relaxing Piano Collection Vol. 1 (2014) [MP3|320 Kbps] <Instrumental, Relax, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gonelb - In My Heart    03:49
-02. Cristiano Viti - No Way Out    05:37
-03. Gianluca Ricciardi - Classico    03:35
-04. Olga Bordas - Nocturne In C Sharp Minor    06:36(   Читать дальше...   )Жанр: Instrumental, Relax, PianoПродолжительность: 01:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA491C06702E6B75E3043F1F9107ED2336FA642F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906723   (643578) от 09.06.2015
-
-VA - E-Scape 2015 (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Ward & John Dyson - Ride the Beach
-02. David Wright - Song for a Friend
-03. Eric van der Heijden - Strange Escapism
-04. Dreamerproject - Hymne(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA03776726512EDF814825D96056B7353019B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516625   (643508) от 03.07.2012
-
-Jorgen Ingmann - Guitar Romantic Collection, vol. 3 (1990) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643508.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:59) 01. Verde
-(2:58) 02. Stardust
-(2:16) 03. Blue Balloon
-(2:27) 04. This Is My Song
-(2:29) 05. La Balanga
-(3:52) 06. If We Only Had Time
-(2:15) 07. Marguerite
-(3:09) 08. Classical Touch
-(2:52) 09. I Am Just A Girl
-(2:49) 10. Nostalgia(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB3FDF880E2580208917F13C039F5CF6E1982C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517021   (643320) от 03.07.2012
-
-VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Well-Tempered Clavier (24), collection of preludes & fugues, Book I, BWV 846-869 (BC L80-103): P  [03:21]
-   Composer   Johann Sebastian Bach (1685 - 1750)
-
- 02. Sonata for oboe & continuo in G minor, H. 549, Wq. 135: Adagio  [02:19]
-   Composer   Carl Philipp Emanuel Bach (1714 - 1788)
-   Performer   Rama Jucker (Cello), Ursula Holliger (Harp) & Heinz Holliger (Oboe)
-
- 03. Prelude for piano No. 15 in D flat major, Op. 28/15, CT. 180  [05:58]
-   Composer   Frйdйric Chopin (1810 - 1849)
-   Performer   Marisa Robles (Harp)(   Читать дальше...   )Жанр: ClassicalФормат: 2CDПродолжительность: 01:08:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518135   (643313) от 03.07.2012
-
-VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Classical Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeux Interdits ("Spanish Romance"), for guitar  [01:50]
-   Common Name   Spanish Romance, Jeux Interdits For Guitar
-   Composer   Anonymous
-   Performer   Pepe Romero (Guitar)
-
- 02. Suite española No. 1, for piano, Op. 47, B. 7: Sevilla (Sevillanas)  [04:37]
-   Common Name   Sevilla Sevillanas, Suite Espanola 1 For Piano
-   Composer   Isaac Albйniz (1860 - 1909)
-   Performer   Eduardo FernandezЖанр: Classical GuitarФормат: 2CDПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292820   (643184) от 31.03.2019
-
-Андрей Дергачев - Возвращение (2004) [FLAC|Lossless|tracks + .cue] <Soundtrack, Ambient, Non-Music>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Под водой (2:04)
-02. Старик (1:43)
-03. Мелкий (0:13)
-04. В спальне (5:04)(   Читать дальше...   )Жанр: Soundtrack, Ambient, Non-MusicПродолжительность: 0:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB21847BF950E16EE6EBE34EDF84286E22FB88D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227868   (642902) от 28.05.2018
-
-Loreena McKennitt - Lost Souls (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642902.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Spanish Guitars and Night Plazas (06:41)
-2. A Hundred Wishes (04:34)
-3. Ages Past, Ages Hence (05:27)
-4. The Ballad of the Fox Hunter (05:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF54873E889E9CC7D6309EE38FA80EB79D37289D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518255   (642881) от 03.07.2012
-
-VA - Золотые Хиты Советского Кино - 2 Альбома (2011) [MP3|256 кб/с]<Soundtrack, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642881.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песенка о шпаге (Достояние республики) (2:49)
- 2. Ночной разговор (3:04)
- 3. Синема (Человек с бульвара Капуцинов) (4:02)
- 4. Разговор со счастьем (Иван Васильевич меняет профессию) (2:41)
- 5. У природы нет плохой погоды - Служебный роман (3:00)
- 6. Я пережил и многое, и многих ("О бедном гусасре замолвите слово") (3:16)
- 7. Жалобы Марселлы ("Собака на сене") (2:07)
- 8. Ветер перемен (3:56)
- 9. Блиндажи той войны... (2:10)
- 10. Берег Моря (Вперед Гардемарины) (2:31)(   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 05:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4988B1C8155DF6751FDF9C72B712AC20DE6968E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142580   (642704) от 14.06.2017
-
-Johnny Cash - The Real... Johnny Cash (2011) 3CD [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-The Fabulous Johnny Cash
-01. Run Softly, Blue River
-02. Frankie's Man, Johnny(   Читать дальше...   )Жанр: CountryПродолжительность: 03:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA35FB8CDE25DDF7CD0951908836C7E94641CE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541659   (642606) от 04.04.2022
-
-Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 RimWorld Trailer Music.mp3 - 1:47
-02 Entry Screen.mp3 - 3:48
-03 Terraformer.mp3 - 3:03
-04 Moving On.mp3 - 4:45(   Читать дальше...   )Жанр: light guitar instrumentalПродолжительность: 02:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3BA866691D3606E91E145AD1AE0E3482EAEC7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

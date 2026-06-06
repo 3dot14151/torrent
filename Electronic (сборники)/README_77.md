@@ -1,3 +1,90 @@
+###  Публикация: 1283942   (731030) от 19.02.2019
+
+VA - Kamlanie: Psychedelic Trance (2019) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731030.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brojanowski - Liebliche Musique
+002. Outer Signal - We Be Come
+003. Ukauka & Teorema - Krishna
+004. Metronome - The Consequence(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C7C2C3C470B839E3D2B74631F7E1F35BD29452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127794   (730996) от 22.04.2017
+
+VA - Deep House Collection Vol.117 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730996.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amtrac - Accessorize (Original Mix) 7:53
+002. Andrew Rai & Anton Liss feat. Veselina Popova - Keep on Loving (Original Club Mix) 6:40
+003. Anzzor, Underfilter - Like That (Original Club Mix) 5:32
+004. Alberto Mantelli - Nomads Nomads (Malandra Jr. Remix) 6:12(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4752A64F7E8E23D97B4789CCD5E26D0FBE6954F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127713   (730603) от 22.04.2017
+
+VA - Автозвук. Лучшее в Дорогу. (Sound Clinic - Bass Overdose Edition) (2017) [MP3|320 Kbps] <House, Techno, Progressive, Electro, Trance, Trap, DubStep, Chill>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Side:
+01. Audiofly, Georgia Lewis - In The (Last) Moment (Original Mix)
+02. Florian Kaltstrom - E1 (Original Mix)
+03. Johannes Brecht, Christian Prommer - Voix Grave (Johannes Brecht Version)(   Читать дальше...   )Жанр: House, Techno, Progressive, Electro, Trance, Trap, DubStep, ChillПродолжительность: 35:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06EC63688D6350F1B1CBA9F466F77FE442BDF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283916   (730445) от 19.02.2019
 
 VA - 100% House Music: Top Dance (2019) [MP3|320 Kbps] <House, Dance, Club>
@@ -664,93 +751,6 @@ VA - Brain Plugged: Big Room House Music (2017) [MP3|320 Kbps] <Electro House, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26C0CD9403C1CB11C2997ACBDC07AF2EDB31F040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128516   (727564) от 25.04.2017
-
-VA - Pacific Trance 100 Art Of Trance (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727564.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Xantra - Amnesia (Aron Scott Remix)
-002. Mike Demirele - The Chosen One (James Kitcher Remix)
-003. Fury System - The Last (Original Mix)
-004. Changer - Golden Gates (Heever Analogue Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 11:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89951C774526294C175C4F53E3D12DDD6C77966F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530703   (727283) от 12.02.2022
-
-VA - Beatport Trance: Sound Pack #401 (2022) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный и насыщенный! Этот последний релиз от Beatport раскрывает серьезную танцевальную силу. Если вы ищете мастерски созданные треки и вдохновляющие мелодии в стиле транса - это то, что вам нужно001. Shane 54 - Panic Attack
-002. Divisional Phrase & Wavetraxx - Redemption
-003. Claire Willis - Demons Harry Square Remix
-004. Aki Harunari - Shigure(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 08:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18D4E5EBA693FE9DC4A450CF9A05BFB8F0427FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022966   (726683) от 04.06.2016
-
-VA - Молодежная клубная тусовка (2016) [MP3|320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isaak Thurber - Overdrive (Original Mix)
-02. House Native - Whe the Wife's Away - Club Mix
-03. Khrebto - Mad Citizens (Extended Mix)
-04. Jane Vogue & Steve Cypress - Paris Latino (Jane Vogue Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CCDCA3C874B16A98C8A010EBEF89F12687B7DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

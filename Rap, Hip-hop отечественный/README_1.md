@@ -1,3 +1,32 @@
+###  Публикация: 1367614   (915783) от 16.03.2020
+
+Slimus x ВесЪ - Улей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:57]
+02. Сектор Приз [03:29]
+03. Улей [02:54]
+04. Обарщение Перзидента [01:30](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59383BEF75BFFD0466547437772422247E6F57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368624   (909245) от 20.03.2020
 
 Sagath - Вынос тела (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7485998C2BD0FC0FE4B74388BEC6B261FE0CFFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370845   (893402) от 29.03.2020
-
-Скриптонит - 2004 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Привычка (feat. Andy Panda, 104) [03:16]
-02. Москва любит... [03:26]
-03. Шуг (Скит) [01:01]
-04. Шуг [02:15](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9842A43477F38AC29264B514B2636964DCED0737
 ```
 
 https://mybot314.ru/tekegram_catalog/

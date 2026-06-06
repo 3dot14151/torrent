@@ -1,3 +1,64 @@
+###  Публикация: 1221171   (696729) от 23.04.2018
+
+VA - Ultimate Disco (4CD) (2018) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Earth, Wind & Fire - September
+02. The Jacksons - Blame It On The Boogie
+03. Heatwave - Boogie Nights(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:17
+
+01. The Jacksons - Shake Your Body (Down to the Ground)
+02. Luther Vandross - Never Too Much(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1F2CAFFC13364462AE2CF3436A8CF781C31213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133524   (695129) от 12.05.2017
+
+Sirena - The Dancer (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dancer (5:48)
+02. Killing Me Softly (6:06)
+03. Comparsita (4:14)
+04. Saturday Night (4:19)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECF70AE339A1F95E7DF6CC25FAA22B5D9D037F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221385   (695110) от 24.04.2018
 
 Overdrive - Electric Overdrive (1979) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -684,64 +745,6 @@ Boogymann - Delight (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDAD5E6A956601595FD4FBDC4A6E04F853497589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135591   (681103) от 19.05.2017
-
-Persia - Persia (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comme Ci Comme Ca (5:06)
-02. Hotcakes (3:34)
-03. Love Hit Us Like A Stonebolt (4:36)
-04. Need Another Night With You (4:12)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5A302F5459A5E400468969652694FB357A5807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222978   (680920) от 01.05.2018
-
-Leroy Gomez & Santa Esmeralda - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родился в городе Cape Cod, штат Массачусетс. В возрасте 14 лет уже сформировал свою собственную группу. После работы с местными группами и освоив вокал и саксофон был привлечен на тур с Tavares по США, Канаде и Европе, где влюбился в Париж и решил сделать его своим домом. Первый солист группы Santa Esmeralda. Альбом "Don`t Let Me Be Misunderstood" получил (   Читать дальше...   )Список альбомов:
-1977 - Santa Esmeralda Starring Leroy Gomez - Don't Let Me Be Misunderstood
-1978 - Leroy Gomes - Gipsy Woman
-1978 - Leroy Gomez - Number One Man(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B90F3C18214810AD9E34CDF5954CC927ACF43E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

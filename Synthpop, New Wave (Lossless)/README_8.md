@@ -1,3 +1,61 @@
+###  Публикация: 1393648   (766835) от 01.07.2020
+
+Depeche Mode - Live Spirits Soundtrack (2020) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Intro (00:02:31)
+02. Going Backwards
+03. It's No Good(   Читать дальше...   )Жанр: Electronic, New Wave, Synthpop |Продолжительность: 01:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4777D99243CA0C14D61973229812F11AF0E33A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521336   (766106) от 01.01.2022
+
+Midnight Danger - Nights at Lake Milsen (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into an Abyss of Fear (feat. Sonia Anubis) (4:55)
+02. Maniac (feat. Martin Sweet) (4:44)
+03. Fatal Attraction (feat. Max Cruise) (4:43)
+04. A Storm Out There (3:25)(   Читать дальше...   )Жанр: Retrowave, Darksynth, SynthwaveПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84FF1C1F88A685604630DBD673EB429B27D690B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279743   (765409) от 30.01.2019
 
 Spacehawk - Laser Squad (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco>
@@ -685,64 +743,6 @@ Nina (Nina Boldt) - 8 Releases (2011-2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F2A3DF9F4B8FF539FA5FADACE5F29E8CC7A2483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130297   (716418) от 01.05.2017
-
-Frecvens - A New Day (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Higher (1:31)
- 02/10. Merci (2:58)
- 03/10. What Do You Need (4:00)
- 04/10. Time to Stay (3:47)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F684E1CB0ED5672BD90F64796FFC85377CBDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400827   (715023) от 07.08.2020
-
-Washed Out - Purple Noon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Late (4:12)
- 02. Face Up (4:09)
- 03. Time to Walk Away (4:16)
- 04. Paralyzed (3:21)(   Читать дальше...   )Жанр: Electronic, Indie Pop, ChillwaveПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00FDD4882AA554F26E3EA0DEF8A4C8E745282B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

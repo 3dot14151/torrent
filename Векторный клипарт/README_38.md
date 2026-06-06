@@ -387,6 +387,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959109   (318707) от 23.11.2015
+
+Векторный клипарт - Golden frame and decorative elements vector [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_318707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблоны для дизайна.
+Золотые рамки и декоративные элементы.
+6 AI | 9 EPS | + JPG PreviewФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6ED99F1A07AE24181AAAA84D7A925C3A5382BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959042   (318706) от 23.11.2015
 
 Векторный клипарт - VIP card, vector background with a gold ornament [AI]
@@ -685,34 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA53E8159B00BB04D799DB472A56E69E8D0B21AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183006   (312210) от 12.11.2017
-
-Векторный клипарт - Creative Christmas Trees Set 8 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Творческий набор елок
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9D1C345197F3FEEC0028FD5ABBF0CAD0F30BF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

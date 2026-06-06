@@ -1,3 +1,32 @@
+###  Публикация: 1024032   (720546) от 07.06.2016
+
+Isaac Shepard - Mosaic (2015) [FLAC|Lossless|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sad Romantic [00:04:38]
+02. Forest [00:04:26]
+03. Letting Go [00:02:57]
+04. Hope [00:03:57](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFFBDBDF77AA83D94D4F978D0C3E5C87E6845BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129654   (720439) от 29.04.2017
 
 Deuter - Immortelle (2016) [FLAC|Lossless|tracks] <New Age, Ambient>
@@ -715,35 +744,6 @@ Timothy Wenzel - What We Hold Dear (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E075870D3B3AD147FD163D592ED18FF086932BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220572   (700530) от 21.04.2018
-
-Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Part 1 (3:51)
-02. Spirit Part 2 (3:05)
-03. Rising Star Part 1 (3:06)
-04. Rising Star Part 2 (2:05)(   Читать дальше...   )Жанр: New Age, Meditative, AmbientПродолжительность: 02:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
 ```
 
 https://mybot314.ru/tekegram_catalog/

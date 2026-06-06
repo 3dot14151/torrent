@@ -1,3 +1,293 @@
+###  Публикация: 1085857   (152469) от 24.12.2016
+
+VA - Last Christmas (2012) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Easy Listening, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Baby, It's Cold Outside (1959) - 2:23
+02. Goombay Dance Band - Let's Cross The Bridge (That's Our City) (2009) - 3:58
+03. The Three Degrees - Sleigh Ride (1998) - 3:28
+04. Nat King Cole - The Christmas Song (Merry Christmas To You) (1961) - 3:10(   Читать дальше...   )Жанр: Pop, Soul, Pop Rock, Easy Listening, Holiday, Christmas, OldiesПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7650A6603778C364EC81A659AA207BEC986165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086314   (151735) от 24.12.2016
+
+John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby It's Cold Outside (3:19)
+02. Rockin' Around The Christmas Tree (feat. Kenny G) (2:13)
+03. I'll Be Home For Christmas (feat. Barbra Streisand) (3:32)
+04. This Christmas (feat. Chick Corea) (4:25)(   Читать дальше...   )Жанр: Pop, Holiday, Christmas, Adult Contemporary, Country Pop, VocalПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D553908AEAE99758DF3DB94741DE084DECD3EA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086306   (151472) от 24.12.2016
+
+Kylie Minogue - Kylie Christmas (2016) Snow Queen Edition [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Jazz, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's The Most Wonderful Time Of The Year (2:45)
+02. Santa Claus Is Coming To Town (feat. Frank Sinatra) (2:15)
+03. Winter Wonderland (1:53)
+04. Only You (with James Corden) (3:05)(   Читать дальше...   )Жанр: Pop, Jazz, Swing, Easy Listening, Holidays, ChristmasПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C068BA25433CD3D949C4F5D55AFB076757A011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518868   (150971) от 22.12.2021
+
+Lara Fabian - Lockdown Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen to the Silence
+02. I Remember
+03. Song for a Child
+04. Le Passage(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464ECE385D5C3693AEA93F2E5AB8AFAAD30483B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825903   (150794) от 18.10.2025
+
+Sam Ryder - Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Olympic '89 (03:12)
+ 02 - The Feeling Never Went Away (02:56)
+ 03 - OH OK (02:50)
+ 04 - Heartland (04:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C71997F5FD5264A53ED09D233F30A38A9B56D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825944   (150717) от 18.10.2025
+
+Thomas Anders - …Sings Modern Talking: Romantic Warriors - Thomas' Version (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150717.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jet Airliner (Thomas' Version)
+02. Like a Hero (Thomas' Version)
+03. Don't Worry (Thomas' Version)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24CBF1D428864E8C028C74D7FD82D5CC13A6EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826120   (150670) от 18.10.2025
+
+Thomas Anders - …Sings Modern Talking: Romantic Warriors (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jet Airliner (Thomas') (4:21)
+02. Like a Hero (Thomas') (3:45)
+03. Don't Worry (Thomas') (3:37)
+04. Blinded by Your Love (Thomas') (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67B04E09C9168FB9B0FBE456EFEC50B186E4C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677324   (150649) от 17.11.2023
+
+Vaya Con Dios - Shades of Joy (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kissing Slow
+02. Shades of Joy
+03. Leaving Home
+04. La Vie(   Читать дальше...   )Жанр: Pop-JazzПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493C1FD545622B4DAE488D240D815E826BB450E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434632   (149916) от 25.12.2020
+
+Jerry Vale - Have Yourself a Merry Little Christmas (2003) [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have Yourself a Merry Little Christmas (2:34)
+02. I'll Be Home for Christmas (2:19)
+03. Blue Christmas (2:32)
+04. Silver Bells (3:23)(   Читать дальше...   )Жанр: Pop, Vocal, ChristmasПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D69167FB98CA4D722F2BA7B425B20049042547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677873   (149357) от 19.11.2023
+
+Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Water [00:04:15]
+02. What's Simple Is True [00:03:35]
+03. Hands [00:03:55]
+04. Kiss The Flame [00:03:16](   Читать дальше...   )Жанр: PopПродолжительность: 02:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5373A752147A1A88293C1AA3E308547211350936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677831   (149228) от 19.11.2023
 
 Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Blues>
@@ -454,293 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414A6BBBE9D60D80AF3AD8DA467DD97BE36F668B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275832   (146497) от 25.12.2021
-
-Ани Лорак (Анi Лорак ) - 11 Альбомов (1998 - 2013) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зажигай сердце
-02. Обними меня
-03. Оранжевые сны
-04. Не дели любовь(   Читать дальше...   )Жанр: PopПродолжительность: 08:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630F2DCAAA6789F1720FEBA88B337559DEF6FD11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348220   (146340) от 26.12.2019
-
-Drezden - Эдельвейс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146340.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ЭДЕЛЬВЕЙС
-2. ДАВИДА ОЛЕНЬ
-3. О'ХЕНРИ
-4. АЛАДДИН(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89F5721B6E3B1046F8AD6486128EBC9B42128E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677824   (145763) от 21.11.2023
-
-Sarah Connor - Not So Silent Night (2022) The Cozy Edition, 2023, Polydor [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical, Vocal, Holiday>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jolly Time Of Year [00:02:02]
-02. Ring Out The Bells [00:03:59]
-03. Christmas Train (Destination Hope) [00:03:39]
-04. Not So Silent Night [00:02:45]Жанр: Pop, Classical, Vocal, HolidayПродолжительность: 2 CD, 02:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE11028372B27D176FED6D7BDB80643E71A3C9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520015   (145332) от 26.12.2021
-
-Natasha St-Pier - Je n'ai que mon ame (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je n'ai que mon âme
-02. Vivre d’amour (feat. Anne Sila)
-03. Tu trouveras
-04. Jeter des fleurs(   Читать дальше...   )Жанр: Pop, French PopПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DC71BC9F207F433F1875319B1E9B4C7C8DFC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348178   (145276) от 27.12.2019
-
-Vision Mastermixers - Seventies Mixes (1995) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145276.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Seventies Mix Part One(28:37)
-1.1.	Countdown To The Hits
-1.2.	Boogie Nights/Funkytown
-1.3.	Video Killed The Radio Star(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46EACA5618E362DF5308BB1B038B24A03E6B9E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348162   (145087) от 27.12.2019
-
-Vision Mastermixers - The Very Best 60s Megamix (1999) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Dance - Lee Chappell (1:23)/ I Get Around - Wilson (0:58)/ I Saw Her Standing There - Davies (1:36)/ You Really Got Me - Barry, Greenwich, Spector (1:02)/ Da Doo Ron Ron - E.Holland, L Dozier, B.Holland (1:08)/ Baby Love - Marriot, Lane (1:03)/ Lazy Sunday - Weiss, English (0:43)/ Hi Ho Silver Lining - Stewart (0:47)/ Daydream Believer - Various (0:56)/ (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBFBF8FC6D90A592A994C9D2C85CEBFB09D5386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348424   (144898) от 27.12.2019
-
-VA - 100 Greatest Winter Songs (2019) [FLAC|Lossless|tracks] <Pop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтоб не замерзнуть в Новогоднюю ночь (хотя в некоторых местах нашей страны с морозами в этом году проблема, хотя другие области могут поделиться ими с теми, кому не хватает) в последние дни уходящего года Rhino выпустила такой вот сборничек больше чем на 6 часов звучания. Так что хватит до самого утра (если, конечно, сильно на шампанское не налегать). С наступающим (   Читать дальше...   )01. Fleet Foxes - White Winter Hymnal  (2:27)
-02. Damien Rice - The Blower's Daughter  (4:46)
-03. Luke Sital-Singh - New Slang  (3:19)
-04. Fay Wildhagen - promise, (From the Original Netflix Series "Home For Christmas")  (3:07)(   Читать дальше...   )Релиз состоялся: 20 декабря 2019 годаЖанр: Pop, Dance, ElectronicПродолжительность: 06:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68447EA1C614EBDEDF66BAAE94679C8CC7AB18C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435485   (144529) от 28.12.2020
-
-Alessi Brothers - Long Time Friends (1982) 2010, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144529.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Jagged Edge 3:30
-2 You Got The Way 3:05
-3 As Far As I'm Concerned 4:09
-4 Rise Up 3:33(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA877876C5598AAA17EE0560AE8BC9B8126AF09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348444   (144432) от 27.12.2019
-
-VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот релиз прямо по старой журналистской поговорке - "Утром случилось - вечером в новостях". Сегодня этот релиз появился на Qobuz - и вот он уже на трекере, причем и в lossless и в lossy (стараниями комрада maykov). Новых треков не так уж много, но для тех кто готовится к предстоящему Новому году всерьез, ведь обязательно нужен сборничек в котором узнаваемые (   Читать дальше...   )01. Prince - Purple Rain  (8:41)
-02. Coldplay, Seeb - Everglow  (3:48)
-03. Foreigner - I Want to Know What Love Is (2013 Remaster)  (5:06)
-04. Spandau Ballet - TRUE (Single Edit)  (5:28)(   Читать дальше...   )Релиз состоялся: 27 декабря 2019 годаЖанр: Pop, Rock, DanceПродолжительность: 06:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547B467D6B8FE17790F8BBE5436E5B4256006F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088113   (142873) от 29.12.2016
-
-Elissa - A'ayashalak (2002) [FLAC|Lossless|tracks + .cue] <Lebanese Pop, Levantine Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A'ayashalak (04:38)
-02 - Ah Min Hawak (04:42)
-03 - Ajmal Ihssas (05:54)
-04 - Shaghilni (04:11)(   Читать дальше...   )Жанр: Lebanese Pop, Levantine PopПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31CC3BA19E46E043A69CB199A0BAB769B363E52
 ```
 
 https://mybot314.ru/tekegram_catalog/

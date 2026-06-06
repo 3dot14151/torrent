@@ -1,3 +1,32 @@
+###  Публикация: 1030793   (670331) от 02.07.2016
+
+Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weisheit und Ruhe [00:02:41]
+02. Das Geheimnis Wasserfall [00:06:38]
+03. Beobachten meine Hande [00:02:58]
+04. Unseren geheimen Ort [00:04:56](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F75CE4318E47131379924528E2B5F3C3149B7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031229   (668647) от 03.07.2016
 
 Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -722,35 +751,6 @@ Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033878   (634299) от 13.07.2016
-
-Bluchel & Von Deylen - Bi Polar (2004) [FLAC|Lossless|image + .cue]<Electronic, Ambient, Trance>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634299.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gymnopedie No.1 6:11
-2. Etoile Polaire 7:08
-3. Budapest - Bukarest 6:18
-4. Summertime 7:20(   Читать дальше...   )Жанр: Electronic, Ambient, TranceПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AF21B29C1AABADA4D1B6E009193ADBFD67BEF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

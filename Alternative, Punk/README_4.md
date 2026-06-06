@@ -1,3 +1,32 @@
+###  Публикация: 1095171   (926003) от 20.01.2017
+
+Starset - Vessels (2017) [MP3|320 Kbps] <Alt. Rock, Electronic, Symphonic>>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Order
+02. Satellite
+03. Frequency
+04. Die For You(   Читать дальше...   )Жанр: Alt. Rock, Electronic, Symphonic>Продолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE470F81FC1A5A224DF714F30DDAA907B823756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288186   (923789) от 28.01.2011
 
 I Am Empire - Kings (2011) [MP3|320 kbps]<Alternative Rock>
@@ -722,35 +751,6 @@ Shallow Truths - Alive Again (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E6F5E65A81D9266BFF4AC2FCAF71737D593ED68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995259   (885827) от 10.03.2016
-
-3 Doors Down - Us and the Night (2016) [MP3|320 кб/с] <Alternative Rock, Post - Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Broken
- 02. In The Dark
- 03. Still Alive
- 04. Believe It(   Читать дальше...   )Жанр: Alternative Rock, Post - GrungeПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4DA0A8C4771A9182B9320DBB7502EE5AF0CEA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,146 @@
+###  Публикация: 1594741   (176696) от 03.12.2022
+
+C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreak Hotel (Room 69-Mix)  4:55
+02. I Can Loose My Heart Tonight (Extended Club Remix)  5:53
+03. 'Cause You Are Young (Maxi-Version)  4:55
+04. Are You Man Enough (Long Version - Muscle Mix)  6:03(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 02:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9E4113E46A537B01FCA7D7971F853DEDAE559F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595859   (174551) от 07.12.2022
+
+Cesare Cremonini - 1 Album, 1 Single (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poetica (Live) [00:04:53]
+02. Io e Anna / Anche Fragile (Live) [00:06:04]Жанр: Italio PopПродолжительность: 2 CD, 02:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36795E0BA3230E5C6418DD99FA8DF4B7D89F05E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595960   (173859) от 08.12.2022
+
+C.C.Catch - The Best Of C.C. Catch (2000) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Disco, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_173859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backseat Of Your Cadillac
+02. Dancing In Shadows
+03. Good Guys Only Win In Movies
+04. Don't Be A Hero(   Читать дальше...   )Жанр: Electronic, Disco, EurodanceПродолжительность: 02:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC62FFB988762AE7139D23B5E70C97FD0A54EB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669679   (172593) от 17.10.2023
+
+Italove - Chasing Ghosts I-II Albums(2023) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viva la Victoria [00:03:08]
+02. Chasing Ghosts [00:04:12]
+03. At the Disco [00:03:13]
+04. Space Crusaders [00:04:10](   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186C39BDCD020524CC8D49B8C3536B7327CE6A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669831   (172270) от 19.10.2023
+
+VA - Italo 2000 - Italo Rarities (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Colby - Madrill
+02. Patty Ryan - (You're) My Love, (You're) My Life
+03. Alexander Robotnic - Las Vacances
+04. Valerie Dore - Lancelot(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81618E47DAA0193948AE076059DD53A374442639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670179   (172092) от 20.10.2023
 
 VA - Italo 2000 - Italo Rarities Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
@@ -597,149 +740,6 @@ Continent Number 6 - Afromerica (1978) LP [MP3|320 Kbps] <Electronic, Disco, Fun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D12DAA98AF3999FA0B7A19F11695C4DA2F1E9D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516203   (166881) от 10.12.2021
-
-Disco Getters - Disco Disco Disco (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Girls (6:16)
-02. Boogie Wonderland (6:25)
-03. Ring My Bell (6:40)
-04. H.A.P.P.Y. Radio (6:21)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE713301E71A194BBEDA11695403F50F186221C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516682   (165345) от 12.12.2021
-
-Kelly Marie - 2 Albums (1976-1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Келли Мари (урожденная Жаклин Маккиннон, 16 октября 1957 года) - шотландская певица, наиболее известная песней "Feels Like I'm in Love", хитом № 1 в Великобритании в 1980 году.Список альбомов:
-1976 - Who's That Lady With My Man?
-1978 - Make Love To Me
-1979 - Do You Like It Like That(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 02:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18CF698751A3856B6BB48956A6887E335B9E7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432530   (164216) от 17.12.2020
-
-The Philarmonics - Philadelphia Disco (1977) LP [MP3|320 Kbps] <Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Elise (Beethoven) (4:39)
-02. Lullaby (Brahms) (4:10)
-03. Prince Igor 1st Theme From Polovetsian Dance (Borodin) (4:21)
-04. Symphony No. 5 From The New World (Dvorak) (4:30)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B45CF91F1A74F6358D9FCCA8110992048F0106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597772   (163258) от 18.12.2022
-
-Chester - Hold The Line (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold The Line (Extended Version)
-02. Hold The Line (Dub Version)Жанр: Electronic, Italo-DiscoПродолжительность: 00:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD8FD7FCD414E8C2D5A310763B51B8DE7A1D4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517335   (162889) от 15.12.2021
-
-Barbara Law - Take All Of Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take All Of Me (7:23)
-02. Can You Read My Mind (3:04)
-03. On My Own Again (3:51)
-04. I Just Live (3:53)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4032236D1A8D8E67F33F559EA41A88A2A0C61B8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

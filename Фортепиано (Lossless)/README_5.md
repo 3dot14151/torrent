@@ -1,3 +1,61 @@
+###  Публикация: 1707359   (62753) от 16.03.2024
+
+VA - Dark Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Let Go of the Past and Sleep Calm (1:45)
+02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)
+03. Katya Kramer-Lapin - Gnossienne No. 1 (2:46)
+04. Vladislav Mikhalchuk - 12 Etudes, Op. 25 - No. 12 in C Minor Ocean (2:32)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C7F8D66A03DE063E92D082A7B8145F593399F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707942   (62567) от 18.03.2024
+
+VA - Легкая музыка (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Christina Grigoryants - Folkloric (4:09)
+03. Sergey Bryukhno - When the Stars Are Shining (1:25)
+04. Matvey Lapin - Melody in A Minor (From The High Pass) (3:23)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6558099A91551E38503366B41C14F1EC9330F202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720009   (57951) от 01.05.2024
 
 VA - Deep Sleep Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>

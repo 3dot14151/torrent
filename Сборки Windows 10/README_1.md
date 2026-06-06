@@ -1,3 +1,29 @@
+###  Публикация: 1559130   (526926) от 24.06.2022
+
+Zver Windows 10 21H2 Enterprise LTSC v.2022.6 x64 [Ru]
+
+>>След.
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zver Windows 10 21H2 Enterprise LTSC v.2022.6 x64 собрана на основе дистрибутива Microsoft Windows 10 Enterprise 2021 LTSC Version 21H2, с обновлениями по июнь 2022 года включительно. В сборке присутствует ZverWPI v.6.8 с минимальным набором наиболее необходимых программ.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA2983486F276456C385AA446C04B8D62FCAF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241871   (516872) от 20.08.2018
 
 Windows 10 Enterprise VL (x86/x64) Elgujakviso Edition (v.19.08.18) [Ru]
@@ -313,6 +339,32 @@ Windows 10 v20H2 plus v2004 by StartSoft Modernization 08-2020 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69544147684F771D43C3F792597F60A5F29E16C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423656   (297055) от 14.11.2020
+
+Windows 10 Pro x64 20H2.19042.630 2in1 Nov 2020 by Generation2 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа сборки - оригинальный образ Microsoft Windows 10 20H2 19042.572 x64. В одном образе две редакции: с автоактивацией и без. Интегрированы обновления по ноябрь 2020 года, билд повышен до 19042.630. Системы абсолютно чистые. На начальном этапе есть возможность выбора редакции устанавливаемой системы. Подробности ниже.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71880A2C7994BEAB32CF94D05913B2AEED3EE2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,61 +693,6 @@ Windows 10 Enterprise 2019 LTSC with Update [17763.1637] AIO 4in2 (x86-x64) by a
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9868A69275B83131F70B4F67EB865C4C3AD213D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430828   (169159) от 11.12.2020
-
-Windows 10, Version 20H2 with Update [19042.685] AIO 64in2 (x86-x64) by adguard (v20.12.09) [En/Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов MSDN. Были интегрированы обновления по 8 декабря 2020 года, а также интегрирован SmartFix 2.3.7 и Microsoft DaRT.. В ней нет никаких косметических изменений и ничего не вырезано!Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A739EA8D6D307B1951B831935DFBF48672FA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824693   (136907) от 16.10.2025
-
-Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6456 [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_sep_2025_x64_dvd_8ff5dabe
-ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
-Установлены обновления по 15.10.2025 года включительно(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73F214991544FA99DCDE55A6FB87878D044239A
 ```
 
 https://mybot314.ru/tekegram_catalog/

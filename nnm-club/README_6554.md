@@ -1,368 +1,22 @@
-###  Публикация: 1122332   (798889) от 05.04.2017
+###  Публикация: 1506363   (801057) от 30.10.2021
 
-Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). 2 Сессия. Швеция — США (18.03.2017) WEB-DLRip [H.264/1080p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798889.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 марта 2017 года, суббота. 14:00 МСК
-Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай)
-Предварительный этап. 2 Сессия
-Швеция — США(   Читать дальше...   )Телекомпания: WCF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 03:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49FD74C30C12E2E4BD9CDB6B801DCB42C19067F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122291   (798888) от 05.04.2017
-
-Бобслей. Кубок мира 2016-2017. 8-й Этап. Пхёнчхан (Корея). Мужчины. Четверки (19.03.2017) IPTV [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798888.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 марта 2017, воскресенье
-Бобслей. Кубок мира 2016-2017. 8-й Этап. Пхёнчхан (Южная Корея)
-Мужчины. Четверки. 1-я и 2-я попытка
-Стадион: Alpensia Sliding Centre (Пхёнчхан, Южная Корея)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB71306B1AB9A43B2A2459A91167D48897DF3A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121976   (798887) от 05.04.2017
-
-Бобслей. Кубок мира 2016-2017. 8-й Этап. Пхёнчхан (Корея). Женщины, Мужчины. Двойки (18.03.2017) IPTV [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798887.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 марта 2017, суббота
-Бобслей. Кубок мира 2016-2017. 8-й Этап. Пхёнчхан (Южная Корея)
-Женщины, Мужчины. Двойки. 1-я и 2-я попытка
-Стадион: Alpensia Sliding Centre (Пхёнчхан, Южная Корея)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: Женщины: 01:37:11, Мужчины: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A297A1621A76B2F2C6EBF518839099F177204B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122269   (798886) от 05.04.2017
-
-VA - Spring Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sombra Modos - Botavara (Original Mix)  5:34
-02.  Arrojas - Venas Silenciosas (Original Mix)  5:55
-03.  Sweetadelic - Aguas Claras (Original Mix)  5:36
-04.  Lamar Ensemble - Inspirational Shortcut (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F5F829E0879663228BA54339A84FE612C75356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122285   (798885) от 05.04.2017
-
-VA - Quiet Zone Just Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sombra Modos - Botavara  5:34
-02.  Arrojas - Lazy Sunday  5:48
-03.  Lamar Ensemble - Stay Sharp  5:36
-04.  Chillelektro - Vitt  6:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BB40D0B092766D8EE0AA9FBC2C8819C576332D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122051   (798884) от 05.04.2017
-
-Европейское космическое агентство сузило до двух количество вариантов предполагаемого места посадки марсохода ExoMars 2020
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_798884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выбор места посадки является одним из ключевых моментов, определяющих успех выполнения миссии по исследованиям любого космического тела или планеты. В настоящее время специалисты американского космического агентства НАСА занимаются выбором места посадки марсохода следующего поколения Mars 2020. Точно такой же задачей занимаются и специалисты Европейского космического (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122543   (798883) от 05.04.2017
-
-Mokhtar Samba & WDR Big Band Cologne - Musique d'Afrique (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valse des Pharaons (8:05)
-02. Senegal (9:05)
-03. Emattéo (9:12)
-04. Suite for Africa (10:33)(   Читать дальше...   )Жанр: World Fusion, Modern Big BandПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548C583697B59382DF18A33A03ACDD64AF80A66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122412   (798882) от 05.04.2017
-
-VA - Beatport Trance Pack (05.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ThoBa & Bethany Marie - Cold (Original Mix)  5:36
-02.  Miroslav Vrlik - I Believe (O.B.M Notion Remix)  7:14
-03.  DIM3NSION - Voorpret (Ucast Extended Remix)  6:44
-04.  Rene Ablaze - Rock U (Original Mix)  6:41(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 03:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F77E0E110814053030C8F81B234B2D5906C2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122555   (798881) от 05.04.2017
-
-VA - Spring Times Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Following Light – Azure (Aluria remix) (09:20)
-02. Aluria – Basilica Philosophica (original mix) (07:41)
-03. Christian Monique – Planetarium (original mix) (06:01)
-04. Findike – The Peaceful (original mix) (08:54)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3422618202BD75A55D0F786FDF57D5E89295C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122404   (798880) от 05.04.2017
-
-Miles Davis - In Person, Saturday Night at The Blackhawk, San Francisco, Vol.II (1961) 1999, CBS [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Well You Needn't [08:18]
- 02.Fran-Dance [07:41]
- 03.So What [12:43]
- 04.Oleo [05:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6C91738F734A117AD69F97CB2E6D93094BE86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122330   (798879) от 05.04.2017
-
-Nana Grizol - Ursa Minor (2017) [FLAC|Lossless|tracks + .cue] <Indie, Indie.Rock, Indie.Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798879.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nightlights I
-2. Bright Cloud
-3. Mississippi Swells
-4. Almost Know Your Name(   Читать дальше...   )Жанр: Indie, Indie.Rock, Indie.FolkПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5267661BB75D739FAF9231357E4640D1A48D44CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122381   (798878) от 05.04.2017
-
-VA - Trance Elegance On This Year 012 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Elite Electronic - Afterlight (OBI Remix)  7:53
-02.  Feel & Johnny Norberg - One Dream (Attila Syah Remix)  5:10
-03.  SoundLift - River Side (Nick V Remix)  7:43
-04.  Radion6 - Livin The Dream (Extended Mix)  5:27(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0392FA1B721EEB4B87D31814BAA45074C32D6CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122353   (798877) от 05.04.2017
-
-Permute 2.4.3 [Multi/Ru]
+Viwizard Audio Converter for Mac 3.5.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+Viwizard Audio Converter - это полнофункциональный инструмент для преобразования аудио, который позволяет конвертировать все виды аудиофайлов, включая музыку с защитой FairPlay DRM и незащищенную музыку, аудиокниги в MP3, M4A, AAC, FLAC, WAV, M4B для прослушивания где угодно.Тип издания: macOS SoftwareРелиз состоялся: 23.09.2021Разработчик: © 2021 ViWizardПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5700F8CED41536D7F3AD3757E3E5BDB2086B542E
+magnet:?xt=urn:btih:A542792175266709D5E2C685E33ECF8C373AC515
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122068   (798876) от 05.04.2017
+###  Публикация: 1506137   (801056) от 30.10.2021
 
-Locomotora - This Very Holding Back (2013) [MP3|320 Kbps] <post-rock, instrumental>
+Cradle Of Filth - Existence Is Futile (2021) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The True Way is Along a Rope
-02. That is not Spanned High in the Air
-03. But Only Just Above the Ground
-04. It Seems Intended More to Cause Stumbling(   Читать дальше...   )Жанр: post-rock, instrumentalПродолжительность: 00:49:51
+Британские экстрим-металлисты CRADLE OF FILTH выпустили 13-й студийный альбом "Existence Is Futile" 22 октября на лейбле Nuclear Blast. Диск записывался в период изоляции в студии Grindstone в графстве Саффолк, а в качестве продюсера выступил Скотт Аткинс (Scott Atkins), ранее работавший с DEVILMENT, BENEDICTION и VADER. По словам представителей лейбла, (   Читать дальше...   )01. The Fate Of The World On Our Shoulders
+02. Existential Terror
+03. Necromantic Fantasies
+04. Crawling King Chaos(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 01:10:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E307B4492E22F16817A04AC852A08E36FCF60B01
+magnet:?xt=urn:btih:D8A14506A750CB584565F4B97DA42B24CC543979
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,28 +53,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122523   (798875) от 05.04.2017
+###  Публикация: 1506283   (801055) от 30.10.2021
 
-Third Party - Hope (2017) [MP3|320 Kbps] <Big Room, Electro House>
+Bartender 4 v4.1.14 [En]
 
->>Electronic
->>House
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Without You
-2. Live Forever
-3. Veins
-4. Guiding Light ft. Fran Garcia(   Читать дальше...   )Жанр: Big Room, Electro HouseПродолжительность: 00:46:23
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2021Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB6464FF597223832B60A8A9345044F813E7363D
+magnet:?xt=urn:btih:6BAF0497152873AC02204941500D97C7CF45115D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,25 +80,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122579   (798874) от 05.04.2017
+###  Публикация: 1506242   (801054) от 30.10.2021
 
-PicturesToExe Deluxe 9.0.7 RePack by вовава [Ru/En]
+Acoustica Premium Edition 7.3.19 (x64) RePack (& Portable) by TryRooM [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Используя PicturesToExe вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого .exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск. К каждому слайду можно добавить текстовый и звуковой комментарий (wav, mp3, wma), а также фоновую музыку (mp3, wma, wav, midi) для всей презентации. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Acoustica Premium Edition - профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг. Хочется отметить интуитивно понятный интерфейс в котором приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. Все аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F569ABF39FD61181E488ABC1F8E1296D01897CAF
+magnet:?xt=urn:btih:33BD0CD305F0089CDBAEA1718156E39BFECF7501
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,28 +106,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122354   (798873) от 05.04.2017
+###  Публикация: 1506351   (801053) от 30.10.2021
 
-VA - Summer Chillout, The Best of Buddha Ambient Experience and Chill Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+В.Г. Дмитриева (сост.) | Сказочная школа. Гуси-лебеди. Сестрица Алёнушка и братец Иванушка (2013) [PDF]
 
->>Electronic
->>Easy listening
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Total Chillout Music Club — Summer Chillout
-02. Summer Time Chillout Music Ensemble — Buddha Ambient Lounge
-03. Chillout Music Zone — Party Time
-04. Hawaii Chillout Music — Electronic Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:38
+Приглашаем маленьких читателей в волшебный мир сказок.
+Слушая и читая любимые сказки, дети сопереживают героям, учатся понимать, что такое добро и зло, знакомятся с окружающим миром.
+А интересные задания, собранные в книге, развивают мышление, внимание и речь, помогают научиться рисовать и подготовить руку к письму.
+С героями любимых сказок ребенок будет учиться (   Читать дальше...   )Жанр: Детская литература/Сказка/ГоловоломкиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2390C5950C3819606A949A1680B0FCCEF671602
+magnet:?xt=urn:btih:FFE6D7F69866BC5D25571A9BE24B8ECD28F25FAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,28 +135,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122207   (798872) от 05.04.2017
+###  Публикация: 1506244   (801052) от 30.10.2021
 
-Peter Karp - Alabama Town (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+Tori Amos - Ocean To Ocean (2021) [FLAC|Lossless|tracks + .cue] <Alternative, Pop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alabama Town (04:37)
-02. 'Til You Get Home (03:10)
-03. That's How I Like It (04:01)
-04. Blues In Mind (03:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:45
+01. Addition Of Light Divided
+02. Speaking With Trees
+03. Devil's Bane
+04. Swim To New York State(   Читать дальше...   )Жанр: Alternative, PopПродолжительность: 00:47:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1811148F8D8886C155E39FECC63DF41D55ACC72F
+magnet:?xt=urn:btih:2C7FF7629ECF3DB11E6A135C96F6A5B5E79B9C74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,28 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122302   (798871) от 05.04.2017
+###  Публикация: 1506235   (801051) от 30.10.2021
 
-Michael E - Autumn (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+Митрополит Вениамин Федченков | Отец Иоанн Кронштадский (2000) [FB2, EPUB, DOC]
 
->>Electronic
->>Easy listening
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Are We There Yet
- 02. Bossa Nova Baby
- 03. Bitter Sweet
- 04. That Feeling(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:49
+Книга митрополита Вениамина (Федченкова, 1880-1961) — плод его многолетних трудов — представляет собой наиболее полное на сегодняшний день исследование, посвященное жизни, деятельности и учению святого праведного Иоанна Кронштадтского († 1908). Книга включает в себя биографические материалы, воспоминания, систематически изложенное учение Кронштадтского праведника (   Читать дальше...   )Жанр: Православие. МемуарыФормат: FB2, EPUB, DOC
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9EA84D255ABCAB84C85CE9758094E32874EEA65
+magnet:?xt=urn:btih:8D46F2BE268131E978A6CB5607877C325533F251
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,28 +190,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122471   (798870) от 05.04.2017
+###  Публикация: 1506412   (801050) от 30.10.2021
 
-VA - Trance April 2017: Melodic Progressive And Vocal, Best Of Collection (2017) [MP3|320 Kbps] <Trance>
+Default Folder X 5.6 fix [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rais - Quasar  7:14
-02.  TwoB Project - Do Good  6:45
-03.  CJ RcM - Im Alive (Denis Neve Remix)  7:19
-04.  Alexander Dyomin - Rfe  7:09(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:39
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: St. Clair SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B79EBDE5496609C5C8B0ECD3BAC862E5983B67B
+magnet:?xt=urn:btih:642879BC458979BB8641AE66884923E9A19F02B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,28 +216,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122357   (798869) от 05.04.2017
+###  Публикация: 1506408   (801049) от 30.10.2021
 
-Disembowelment - Transcendence Into the Peripheral (1993) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+Acon Digital Acoustica Premium Edition 7.3.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acoustica Premium — многофункциональный аудиоредактор с поддержкой многоканальных форматов объемного звука 5.1 и 7.1. Средства программы обеспечат точное управление деталями производства аудио CD (длина пауз, индексные маркеры, поля CD-TEXT). В Acoustica Premium встроен широкий диапазон инструментов профессионального качества для мастеринга и звукового дизайна, а (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2021Разработчик: © Acon AS.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055E957906B261838562247B5A88621954758D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506353   (801048) от 30.10.2021
+
+Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3] [2021, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всю свою не долгую жизнь парень Кайто Дзин прожил в большом мегаполисе Токио. Он привык к бешеному ритму города и не представлял, что могло бы быть, живи он в другом месте. Скоро ему представляется шанс это выяснить. Кайто вместе с семьёй переезжает в маленький городок под названием Нагоя. Этот момент совпал с переходом парня в старшую школу. Уже с первого момента (   Читать дальше...   )Производство: Студия Saetta / サエッタЖанр: комедия, повседневностьРежиссер: Хирасава ХисаёсиПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2A4C2571BC6DCF8440B853B7555D7045243803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506227   (801047) от 30.10.2021
+
+iZotope - RX 9 Audio Editor Advanced v9.1.0 STANDALONE, VST, VST3, AAX [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801047.jpg" />
+</div>
+
+
+###  Подробнее
+
+RX уже давно является популярным пакетом для ремонта и полировки звука для фильмов, телевидения, музыки, подкастов, видеоигр, библиотек сэмплов и многого другого. В RX мы создали новые инструменты и улучшили любимые модули, чтобы помочь вам достичь большего за меньшее время, чем когда-либо.
+В версии 8 мы добавили новые функции в линейку продуктов, чтобы ускорить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2021Разработчик: iZotope, Inc.Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08401695423A2D17C9F0EB9CF4389AAF85B34574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506403   (801046) от 30.10.2021
+
+Netherbird - Arete (2021) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Tree of Life and Death (10:25)
-02. Your Prophetic Throne of Ivory (07:39)
-03. Excoriate (04:43)
-04. Nightside of Eden (02:38)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:59:33
+01. Ame Damnee (Instrumental)
+02. Towers Of The Night
+03. Void Dancer
+04. Infernal Vistas(   Читать дальше...   )Жанр: Melodic Black Metal, Symphonic MetalПродолжительность: 00:44:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:301A28AF5EBB60C9E161115BCDFF8E5ABE1DDB99
+magnet:?xt=urn:btih:B660438AE2679AD85285DFE976756B4E4CEA6226
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,25 +324,214 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122550   (798868) от 05.04.2017
+###  Публикация: 1506281   (801045) от 30.10.2021
 
-Журнал | AD / Architectural Digest [USА] №3 (март 2017) [PDF] [En]
+VA - Music News vol.145 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801045.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Geo Da Silva feat. Alpha Squad - Love & Desire (02:54)
+ 002. A7S - Nirvana (Lum!x & Gabry Ponte Remix) (02:24)
+ 003. Abi Shine - Говорил, Что Некрасивая (03:19)
+ 004. AIDA - Je T'aime, J'adore (03:14)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955ADB007F30D6E0F3753ABEB1D33930B8ABD754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506266   (801044) от 30.10.2021
+
+reaConverter Pro 7.680 (Repack & Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801044.jpg" />
+</div>
+
+
+###  Подробнее
+
+reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
+Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF6F2156ED229D40533B7DD6C24E640121F280B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506213   (801043) от 30.10.2021
+
+Утенок, который не умел играть в футбол (1972) WEB-DLRip [H.264/1080p-LQ] [Remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утенок не умел играть в футбол, зато хорошо играл на трубе. И в футбольном матче между утятами и гусятами это сыграло не последнюю роль.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Витольд БордзиловскийПеревод: Не требуетсяСубтитры: отсутсвуютПродолжительность: 00:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE32B4FA2998D59D35F8758AA529FFFF67D0D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506302   (801042) от 30.10.2021
+
+Satyricon - Fuel For Hatred (2002) DVDRip [H.264/1080p-LQ] [Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Satyricon — норвежская блэк-метал-группа. В Satyricon два постоянных участника: Сатир (вокал, гитара, бас, клавишные) и Фрост (ударные), к которым время от времени присоединяются сессионные и концертные музыканты. Satyricon возникли в начале 90-х и с первыми альбомами вошли в когорту групп, которые создали норвежскую блэк-металическую сцену и которые часто характеризуют (   Читать дальше...   )Satyricon - Fuel For Hatred (2002)Жанр: Black metalПродолжительность: 00:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F142F43887F3BC93863C120F913C4300C79D8BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506178   (801041) от 30.10.2021
+
+Sax Project - Saxo and Movies (2011) 3CD [MP3|320 Kbps] <Easy Listening, Sax>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Will Go On (From "Titanic")
+02. Everything I Do, I Do It for You (From "Robin Hood: Prince of Thieves")
+03. Beauty and the Beast (From "Beauty and the Beast")
+04. I Will Always Love You (From "The Bodyguard")(   Читать дальше...   )Жанр: Easy Listening, SaxПродолжительность: 07:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D970678FC89FCD425B99DABC5D89154D22D22B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506371   (801040) от 30.10.2021
+
+Мэри Пикфорд. Сладостные воспоминания / Sweet Memories (1911) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сентиментальный фильм. Очень пожилая дама дремлет на скамье в саду. И к ней приходят сны-воспоминания. О детстве, о юности, о первой любви... Очень лиричная история. Жаль, что качество копии оставляет желать лучшего. Но может еще найдется более качественная копия.Производство: США, Independent Moving Pictures Co. of America (IMP)Жанр: Драма, короткометражный, немое киноРежиссер: Томас Х. ИнсАктеры: Мэри Пикфорд, Кинг Баггот, Оуэн Мур, Уильям Е. Шэй, Джек Пикфорд, Лотти Пикфорд, Чарльз Арлинг, Дж. Фаррелл МакДональд, Шарлотта СмитПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E21089774CCF5D0E3818C2344194CD1EFD7BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506411   (801039) от 30.10.2021
+
+ViWizard Audible AA / AAX Converter for Mac 2.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801039.jpg" />
+</div>
+
+
+###  Подробнее
+
+ViWizard Audible AA / AAX Converter - один из самых умных конвертеров аудиокниг, с которым может легко справиться любой пользователь Audible. Благодаря передовому и уникальному процессору дешифрования, ViWizard Audible Audiobook Converter для Mac разработан для полной и независимой загрузки любых аудиокниг Audible AA, AAX без предварительной авторизации вашей учетной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2021Разработчик: © 2021 ViWizardПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BC4C030C9FBF3DFFFDD563C79F31A78419CF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199441   (801038) от 16.01.2018
+
+Журнал | Elle Decoration [Россия] №2 (21) (февраль 2018) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
+"Elle Decoration" является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, он служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAFDA5DCBEDB713BAC50712432758146EF768B90
+magnet:?xt=urn:btih:4B076E2323964700FD14C8043D0DFAED02C06D73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +539,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122463   (798867) от 05.04.2017
+###  Публикация: 1199568   (801037) от 16.01.2018
 
-Вечерний Ургант (2017.04.04) SATRip
+VA - DJ Feel - TOP 40 Russian Tracks 2017 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:01
+01. Michael Mashkov - Melilla (Extended Mix)
+02. ROMM & Alex BELIEVE feat Roxy Charming - Blind Feelings (Sundrowner Remix)
+03. M11 - All The Same Way (Kago Pengchi Remix)
+04. Yan Space feat. Christian BurnsPlanet Earth (Omnia Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 02:55:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A53B2F7E646A524A4072F273CCF5EA1A1D333084
+magnet:?xt=urn:btih:05A6448F9E705FC280A7CB62E5725635473F1CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,28 +568,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122685   (798866) от 05.04.2017
+###  Публикация: 1199494   (801036) от 16.01.2018
 
-VA - Jazz Acoustic Chill Classical Playlist: 14 Smooth and Chilled Tracks (2017) [MP3|320 Kbps] <Jazz>
+Эд Макбейн | 87-й полицейский участок (Книга 9). До самой смерти (2018) [MP3, Валерий Стельмащук]
 
->>Jazz, Blues, Soul
->>Jazz
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Meg Birch - Rolling in the Deep
-02. Chris Snelling - The Earth Prelude
-03. Karizma Duo - Come Away With Me
-04. Ginnie - Next to Me(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:49
+Анджела, сестра детектива 87-го участка Стива Кареллы, выходит замуж. Но в адрес ее жениха приходит записка с угрозами. Стив и его друзья-детективы решили, что ничто не должно помешать свадьбе.Жанр: ДетективИздательство: Aудиокнига своими рукамиПродолжительность: 05:58:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5ED7C7A56BBF55A0C135E766DC4C11AAE05F054
+magnet:?xt=urn:btih:639BF8952EF39562BA56F0A2C989E6325B2D5046
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,57 +594,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122499   (798865) от 05.04.2017
+###  Публикация: 1199590   (801035) от 16.01.2018
 
-VA - Dutch Wonder Trance Anthems (2017) [MP3|320 Kbps] <Trance, Energy, Uplifting, Emotional, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mark W - Azrael (Extended Mix)  5:15
-02.  Ronski Speed - Horoscope (Ronski Speed Remix)  6:37
-03.  Lightform - Orbs (Extended Mix)  6:08
-04.  Sneijder & Katty Heath - The Only Place (UCast Remix)  7:10(   Читать дальше...   )Жанр: Trance, Energy, Uplifting, Emotional, BlissfulПродолжительность: 05:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9AAC608A85844FE4CD3230A5F8F35A34634AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122231   (798864) от 05.04.2017
-
-Warbringer - Woe To The Vanquished (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Midnight Flyer - Midnight Flyer (1981) Reissue, 2013, Air Mail Archive [MP3|320 Kbps] <Rock, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Silhouettes
-02. Woe to the Vanquished
-03. Remain Violent
-04. Shellfire(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00: 40:59
+01. Hey Boy
+02. Love Games
+03. French Kisses
+04. In My Eyes(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2343D7697936C3EFFD69429FFB6C1592EDF25A8
+magnet:?xt=urn:btih:6AD383E497291171F2C7797AB2CB7B103A7AFA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199455   (801034) от 16.01.2018
+
+Растровый клипарт - Fotolia - Apricot jam [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абрикосовый джем с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3201x2500-6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D903CD4D86331B26EBF89D716860155CF98E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199532   (801033) от 16.01.2018
+
+GPU-Z 2.6.0 + ASUS ROG Skin [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801033.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU-Z - бесплатная программа от TechPowerUp для отображения технической информации о видеоадаптере (видеоконтроллере/видеокарте/видеомодуле), работающая под ОС Microsoft Windows. Программа отображает технические характеристики графического процессора и его видеопамяти, то есть определяет производителя и название видеоадаптера, тип видеопроцессора и его характеристики, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BC4B8D59768B4B6FD5B0E771770381B7EF552E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199440   (801032) от 16.01.2018
+
+Журнал | Дом и Интерьер №1-2 (январь-февраль 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный журнал о дизайне "Дом & интерьер" – издание для всех, кому интересны модные тенденции в области создания интерьеров; искусство, антиквариат, шедевры мировой архитектуры.Жанр: Архитектура, строительство, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFE473236BEFABE5D89EEE9D23DF7852A0AC8AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

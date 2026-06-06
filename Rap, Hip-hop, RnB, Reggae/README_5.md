@@ -1,3 +1,90 @@
+###  Публикация: 1365792   (927272) от 09.03.2020
+
+BONES - OFFLINE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offline [00:36]
+02. BewareOfDog [02:44]
+03. Timberlake [02:14]
+04. Molotov [02:47](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9084F303AFA8EEF2CA59235FADD53565B94050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365790   (927269) от 09.03.2020
+
+Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PERFECT. [02:20]
+02. YXU’VE BEEN CANCELLED. [02:24]
+03. GRAVESTXNE. [02:41]
+04. MAKING A KILLING. [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AD8022D3F6DDD1086D848F7521BB948FC67ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987227   (925900) от 17.02.2016
+
+VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Cent - In Da Club (3:15)
+02. Kanye West - Love Lockdown (4:31)
+03. Nelly - Hot In Herre (3:49)
+04. Black Eyed Peas - Pump It (3:34)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469E174661E4A3DF04CC06666D361859696BFB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366058   (925815) от 10.03.2020
 
 Twista - Lifetime (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ Die Antwoord - House Of Zef (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421C78B02C6D3D70D8A0CACFC65E878B8F04C741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368027   (914250) от 17.03.2020
-
-2 Chainz - Rap Or Go To The League (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgiven (feat. Marsha Ambrosius) (5:23)
-02. Threat 2 Society (3:46)
-03. Money In The Way (2:42)
-04. Statute Of Limitations (2:29)(   Читать дальше...   )Производство: Def Jam Recordings – B0030006-02Жанр: Hip-HopПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29907E441613CA0D0235917DC45FB9B76337FF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368030   (914245) от 17.03.2020
-
-Czarface - The Odd Czar Against Us (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizarro (2:49)
-02. Call Me (2:09)
-03. The Gift That Keeps On... (2:36)
-04. Me's Company (2:15)(   Читать дальше...   )Производство: Silver Age – SIL 011-CDЖанр: Hip-HopПродолжительность: 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7235EB08FB8ABC3CBA3EF9AEA7CDCD58C418FFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367586   (913891) от 17.03.2020
-
-Die Antwoord - House Of Zef (2020) [MP3|320 Kbps] <Alternative Hip-Hop, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open the Door (feat. Panther Modern)
-02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!)
-03. Da Godz Mus B Krazy
-04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes)(   Читать дальше...   )Жанр: Alternative Hip-Hop, ElectronicПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEADEACAA59C4BAB7B72D36ABD09F50E73E2E52
 ```
 
 https://mybot314.ru/tekegram_catalog/

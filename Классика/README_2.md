@@ -1,3 +1,76 @@
+###  Публикация: 599846   (996829) от 15.01.2013
+
+Муслим Магомаев - Арии из опер Муслим Магомаев (2002) [MP3|320 кб/с]<Classical>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ариозо Дон Жуана
+02.Ариозо Кончака
+03.Ариозо Онегина
+04. Ария Аслан шаха
+05.Ария Гасанхана
+06.Ария Гремина
+07.Ария Игоря
+08.Ария Каскара
+09.Ария Мардана
+10.Ария Риголетто(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA89DED14128C0FE42B9219071A9AFC1C8D5EF83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603824   (996684) от 16.01.2013
+
+Wolfgang Amadeus Mozart–Complete Church Sonatas Wiener Akademie organ conductor Martin Haselbock (2005)/[WavPack (iso.wv)|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996684.jpg" />
+</div>
+
+
+###  Подробнее
+
+P.S.
+"Я не вполне уверен в том, что ангелы, намереваясь воздать хвалу Господу, играют именно Баха,
+но я уверен вполне, что друг для друга они играют Моцарта, и господь радуется, слушая их..."
+Карл Барт.(   Читать дальше...   )1.	Sonate C- Dur für Orchester und Orgel KV 329 (317a) (März 1779?)	[04:25]
+2.	Sonate A-Dur KV 225 (241b) (1775/76)	[03:57]
+3.	Sonate B-Dur KV 68 (41i) (1772)	[04:04]
+4.	Sonate D-Dur KV 69 (41k) (1772)	[03:52]
+5.	Sonate F-Dur KV 145 (124b) (1772)	[03:04]
+6.	Sonate F-Dur KV 224 (241a) (1775/76)	[04:19]
+7.	Sonate Es-Dur KV 67 (41h) (1772)	[02:23]
+8.	Sonate C-Dur KV 328 (317c) (1779)	[04:29]
+9.	Sonate C-Dur für Orchester und Orgel KV 263 (1777)	[02:45]
+10.	Sonate G-Dur KV 241 (1775/76)	[03:47](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A26384F717A0F476C4FCA9A9AD27B4594DB94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604241   (996423) от 17.01.2013
 
 Wolfgang Amadeus Mozart–The Violin Concertos Philharmonia Orchestra violin Thomas Zehetmair authentic 2CD 1990-1991 (2007)/[WavPack (iso.wv)|Lossless]<Classical>
@@ -797,70 +870,6 @@ Symphony in D major Op. 4/1 (Callen 19)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9EC286BB709412D5261404E1F33550D0494026B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972033   (981719) от 06.01.2016
-
-Mozart - Requiem (Frans Bruggen & Orchestra of the Eighteen Century) (2009) [FLAC|Lossless] <Classical, Classical Period, Choral, Concerto, Requiem>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurerische Trauermusik (Masonic Funeral Music), for orchestra in C minor, K. 477 (K. 479a) (05:25)
-02. Adagio for 2 clarinets & 3 bassett horns in B flat major, K. 411 (K. 484a) (06:31)
-Requiem for soloists, chorus, and orchestra, K. 626
-03. Plainchant (Introitus) (02:04)(   Читать дальше...   )Жанр: Classical, Classical Period, Choral, Concerto, RequiemПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C22A68ADAE2D116A13FF9BDD22E511B2CAECE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614122   (981032) от 05.02.2013
-
-VA - Лунный Свет (2002) [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Клод Дебюсси. Лунный свет на террасе
-Оркестр "Симфония Лондона". Дир. Ч. Герхард 
-
-02. Рихард Вагнер. Романс Вольфрама из оперы "Тангейзер"
-Филармонический оркестр Лондона. Дир. Ч. Герхард
-
-03. Клод Дебюсси. Лунный свет
-С. Канга, арфа, совместно с Национальным филармоническим оркестром. Дир. Ч. Герхард 
-
-04. Иоханн Пахельбель. Канон(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6F3438D416EBF6CC04440C554CC129BCF3D909
 ```
 
 https://mybot314.ru/tekegram_catalog/

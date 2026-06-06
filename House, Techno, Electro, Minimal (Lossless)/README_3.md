@@ -1,3 +1,203 @@
+###  Публикация: 1441681   (1037513) от 22.01.2021
+
+VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anas M - Dubz (Im'pulse Remix) (07:28)
+02. Artyom Kozlov - Clouds (06:24)
+03. CGeorge - Unjustified Sadness (09:53)
+04. COR100 - Contact (Bolgarin Deep Mix) (24Bit) (08:54)(   Читать дальше...   )Жанр: Deep House, Deep Techno, Minimal, AmbientПродолжительность: 04:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E0F2FEEDA7ACE9405C8831C62331849C169D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441945   (1037179) от 23.01.2021
+
+VA - Genix Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jody Wisternoff – The Bridge (Chicane Extended Rework) (05:47)
+02. Supermodels From Paris – Keep On (Komytea Extended Mix) (06:46)
+03. Genix – Mr. H2O (Extended Mix) (05:46)
+04. Stephen J. Kroos – Formalistick (Extended Mix) (06:42)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCEEE29C73355C211DE6BD4B99E6DB5F44378F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442132   (1036947) от 24.01.2021
+
+VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442381   (1036618) от 25.01.2021
+
+ZHU, Tame Impala - My Life (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Life (Kyle Watson remix) (05:44)
+02. My Life (Blond:ish remix) (07:00)
+03. My Life (Brian Cid remix) (07:12)
+04. My Life (Finnebassen remix) (05:13)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EA6A3DD078CC82938417F52CA477BEBFAE060A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442379   (1036609) от 25.01.2021
+
+Bob Moses, ZHU - Desire (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire (Vintage Culture & Kiko Franco Remix) (05:46)
+02. Desire (Vintage Culture & Kiko Franco Remix Edit) (03:46)
+03. Desire (Charlotte de Witte Remix) (07:52)
+04. Desire (Solomun Remix) (06:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F081E866EDD5FCBCD0DE4D6128F6B2FD6DBF4111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442820   (1036348) от 26.01.2021
+
+VA - Kirill Matveev pres. 25 MixCult Dancefloor Booms (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Deep Tech, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etzu Mahkayah - Don't Dribble (06:40)
+02. Artyom Kozlov - Clouds (06:24)
+03. Dima Kovadloff - HD (Deepkomplekt Remix) (06:04)
+04. COR100 - Micro Lab (08:42)(   Читать дальше...   )Жанр: Tech House, Deep House, Deep Tech, MinimalПродолжительность: 02:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDDE05D302A13284DA3BB6F8128EF0E3BEEFFFEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198968   (1036094) от 03.03.2023
+
+Late Night Alumni - The B-Sides (2012) Compilation [FLAC|Lossless|tracks + .cue] <Deep House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden (Acoustic) (2:49)
+ 02. Hope (5:03)
+ 03. A Whole New World (3:01)
+ 04. You Can Be The One (Live) (3:10)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AEDF2C5E080732770ECEA5BA962D8EEA03C6BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443144   (1035722) от 28.01.2021
 
 VA - MixCult Selected: Lola Palmer (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Deep Tech, Minimal>
@@ -537,207 +737,6 @@ VA - Depth Charge - Electro Boogie - Shape Generator (1999) Studio !K7 [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6195D96ADCB218D444706E36FB6587B5485D2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449581   (1029777) от 22.02.2021
-
-Planet of Sound & Cider Sky - Together (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Together (Radio Edit) (03:05)
-02. Together (Vocal Mix) (05:44)Жанр: House, Deep HouseПродолжительность: 00:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F238D94CADE84AE4B4076D832C3EFB8C7C444B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449847   (1029579) от 23.02.2021
-
-VA - Soul Diary Chapter.1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rory Gallagher & Arzuk - Soul De Anima (Thomas Gandey Last Communication edit)
-02. Hypersleep - Reason With The Sky (original mix)
-03. Ben Weber - Jetzt (original mix)
-04. Westseven - The Promise (feat Gabriel Lynch - Hypersleep remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC4F622EA47730A4C4BFC67B1D5DE6E404A9604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261469   (1029323) от 24.02.2021
-
-The Field - Discography 19 Releases (2005-2018) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cupid's Head (Gas Mix) (10:35)
- 02. No. No... (Tim Hecker Mix) (06:32)
- 03. Cupid's Head (Vatican Shadow Mix) (05:41)
- 04. No. No... (John Tejada Mix) (08:03)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Minimal, Tech House, Ambient, Experimental •Продолжительность: 13:44:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7008E3C6D661648EB78EA533FAA1420E3BD410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 245735   (1029247) от 24.02.2021
-
-Orbital - Discography 120 Releases (1989-2019) FFRR, Internal, ACP Recordings [FLAC|Lossless|tracks+.cue, tracks]<Techno, Breakbeat, Leftfield, Electro, House, Ambient>
-
->>След.
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beached (feat. Angelo Badalamenti) (06:45)
- 02. Nothing Left Out (06:05)
- 03. Doctor? (05:33)
- 04. The Saint (04:32)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Breakbeat, Leftfield, Electro, House, Ambient •Продолжительность: 93:19:32 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B1892F2389285C30E58981D37B1237E6D484AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451317   (1028559) от 01.03.2021
-
-VA - Paerels (2017) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient, Leftfield, IDM, Tech House, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. upsammy - Wish I Could Still.. (03:10)
- 02. Oceanic - Drums (Instrumental) (06:22)
- 03. Vtothed - Okay (Livecut) (05:39)
- 04. Melatonin Man - Garrol (07:26)(   Читать дальше...   )Жанр: Electro, Ambient, Leftfield, IDM, Tech House, AcidПродолжительность: 01:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E110516BD33FD93816A524B9A0848F9279E529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451369   (1028545) от 01.03.2021
-
-E-Talking - Techno Man's Land (2021) Going Good [FLAC|Lossless|tracks+.cue] <Electro, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Up Your Psyche (03:24)
- 02. Insider (03:46)
- 03. The Vaults (03:11)
- 04. A Sinuous Dream (03:53)(   Читать дальше...   )Жанр: Electro, Ambient, TechnoПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320095AD71790756998C5A2F242BBCEA0FDB9187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451316   (1028540) от 01.03.2021
-
-VA - Paerels II (2020) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Leftfield, Ambient, Electro, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mattheis - Prism1 (Tidal Fields Version) (03:53)
- 02. Ben Buitendijk - Timetraveler (07:28)
- 03. Koraal - Vuurduin (06:59)
- 04. Amandra - Falbala (06:53)(   Читать дальше...   )Жанр: Tech House, Leftfield, Ambient, Electro, IDM, TechnoПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F5AEFEB04706EA43535F0E1F7BED8B276C26E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

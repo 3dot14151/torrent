@@ -1,3 +1,148 @@
+###  Публикация: 1408312   (458156) от 11.09.2020
+
+VA - Seventh Seal (2020) [MP3|320 Kbps] <Hard Rock, Ballad, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fairyland - The Hidden Kingdom Of Eloran
+02. Dream Evil - The End
+03. Primal Fear - Seven Seals
+04. Wisdom - Unholy Ghost(   Читать дальше...   )Жанр: Hard Rock, Ballad, MetalПродолжительность: 05:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169715AEA04F12ABCE568AF3B271C544A5F961FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942097   (457636) от 29.09.2015
+
+Elvis Presley - Good Songs (2015) [MP3|192 кб/с]<Rock'n'roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457636.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A big hunk o' love
+002. A fool such as I
+003. A Little Less Conversation
+004. Ain't That Loving You Baby(   Читать дальше...   )Жанр: Rock'n'rollПродолжительность: 08:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9525AE9C0CCC5A7A68A9D975A335C98AA047CEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569135   (453510) от 12.08.2022
+
+The Pretty Reckless - Compilation (2022) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zombie
+02. Rock and Roll Heaven
+03. Going to Hell
+04. House on a Hill(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 02:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1780C26F4B57F38161B60A80C31926242165CEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942633   (453250) от 01.10.2015
+
+VA - Rock Хит. Высокое Напряжение (2015) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeff Buckley - Hallelujah
+02. Би-2 - Три сантиметра над землёй
+03. Сплин - Сын
+04. Мара - Где-то моя любовь(   Читать дальше...   )Жанр: RockПродолжительность: 06:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2512D9ECA724EAA59BF6AE57A7C6563AEE36A8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322003   (452490) от 27.08.2019
+
+VA - Back End Roads: Indie Rock Collection (2019) [MP3|320 Kbps] <Indie, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452490.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cash Savage - Human, I Am
+002. Dios - All My Life
+003. Fish - Man With A Stick
+004. Hypophora - Mercurial(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 11:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D87FA2F3A568EDB5D7EED9DABD3FD921F72E2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569247   (451657) от 13.08.2022
 
 VA - Impressive Sound 2022.1: Volume VI (2022) Compilation [MP3|320 Kbps] <Metalcore, hardcore, post-hardcore>
@@ -600,154 +745,6 @@ VA - Alterportal HITS 14 Vol. 73 - September (2014)  [MP3|128-320 кб/с] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A4313155BE2FDF44602249721176DD723B9052D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064683   (425559) от 20.10.2016
-
-VA - Hits of My Soul Vol. 15 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Bon Jovi - You Give Love A Bad Name (03:43)
-02. The Ramones - Poison Heart (04:03)
-03. Dagoba - Livin' Dead (03:40)
-04. Judas Priest - You've Got Another Thing Comin' (05:07)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8340B03483D15F8877D801F5FDF88257013EB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064890   (423470) от 21.10.2016
-
-VA - Rock Collection 1993 (2016) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. Steve Vai - An Earth Dweller's Return
-02. Scorpions - Alien Nation(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 24:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98071331B16F44C7C30A97FE1E4538A2D85BCF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411795   (423159) от 27.09.2020
-
-VA - Silent Mutiny (Vol.03) (2020) [MP3|320 Kbps] <Hard Rock, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423159.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lo Blow - New Heirs
-002. Stillsuit - At The Speed Of Light
-003. Redline - Stand And Fight
-004. Only Attitude Counts - The Mirror(   Читать дальше...   )Жанр: Hard Rock, HardcoreПродолжительность: 08:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200831B476CD2C52EB1166E1BC3EC49F7A5853BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411709   (422610) от 27.09.2020
-
-H.E.A.T - We Will Never Die (2020) Compilation, 2CD [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous Ground
-02. We Will Never Die
-03. Come Clean
-04. Stay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC78789345CBD49B6819CD8B17986E4CC832CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411965   (422423) от 27.09.2020
-
-VA - 101 Rock Blues Foundation (2020) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422423.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shawn James - Haunted
-002. Freddie King - I Don't Know
-003. Harpdog Brown - Stiff
-004. Joanne Shaw Taylor - Jump That Train(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 07:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9750984AC73B06D61D2F99247FF6E4F4BB71B295
 ```
 
 https://mybot314.ru/tekegram_catalog/

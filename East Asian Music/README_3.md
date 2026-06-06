@@ -1,3 +1,32 @@
+###  Публикация: 1008070   (817307) от 17.04.2016
+
+Gus Dharma - Bali Meets China (2016) [MP3|320 кб/с] <World Music, Relax, Ethnic Instrumental>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon a Time in China
+02. China Doll
+03. Long Road to China
+04. Rise and Fall(   Читать дальше...   )Жанр: World Music, Relax, Ethnic InstrumentalПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BD110F648C6894C7F03F8437F1CC2E4BC75AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 315415   (811999) от 01.04.2011
 
 Heartsdales - 2 альбома (2005-2006) [FLAC|Lossless]<J pop, Jurban, hip-hop>
@@ -771,35 +800,6 @@ Studio "Syrup Comfiture" - 16 альбомов (2009-2012) [FLAC|Lossless] <Touh
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BC3BC964E0B92A3781BD0156EF48C5332C12C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281371   (749824) от 09.02.2019
-
-Yuki Murata - Gift (2014) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. in the morning (4:16)
- 02. gift (2:26)
- 03. at 3 o'clock (2:30)
- 04. a white bird (3:55)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF924167FEE7DBFFE54A8B754ED5D8BD22AF84D
 ```
 
 https://mybot314.ru/tekegram_catalog/

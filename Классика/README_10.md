@@ -1,3 +1,61 @@
+###  Публикация: 996307   (878581) от 14.03.2016
+
+Niccolo PAGANINI - Complete Chamber Music (2007) [MP3|320 кб/с] <Classical, Instrumental>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878581.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+Quartet No. 1 in A minor, Op.4/1, MS28 [21:41]
+Quartet No. 9 in D major, MS36 [21:42]
+Quartet No. 10 in A major, MS37 [23:53]Жанр: Classical, InstrumentalПродолжительность: 10:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BD97E07566B3B283BF4E69C3762BA94EBA0E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996405   (878423) от 14.03.2016
+
+Brahms - The Piano Concertos - Daniel Barenboim, Staatskapelle Berlin and Gustavo Dudamel (2015) [FLAC 2.0|96/24|WEB-DL|tracks] <Classics, Piano, Orchestra>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 1 in D minor Op. 15:
+1. Maestoso
+2. Adagio
+3. Rondo. Allegro non troppo(   Читать дальше...   )Жанр: Classics, Piano, OrchestraПродолжительность: 01:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4AF9207049AD0CF200787419BB753D8710DD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996796   (877420) от 15.03.2016
 
 Telemann - A Fagotto Solo (2010) [FLAC|Lossless|tracks] <Classical, Chamber Music>
@@ -693,64 +751,6 @@ Mozart - Symphonien №. 25, 29, 35 «Haffner» (1972) Reissue, 2008, Decca [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF0EDFB5F19452C155644D86876A94F56A0FF680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145698   (870233) от 11.04.2020
-
-Александр Бородин - Опера "Князь Игорь" (1969) [MP3|192 kb/s]<Опера>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Партии исполняют: И.Петров, Т.Тугаринова, В.Атлантов, Артур Эйзен, А.Ведерников, Е.Образцова, А.Лаптев, В.Ярославцев, К.Басков, И.Терпиловская, М.Миглау1. Увертюра.   09:29
-2. Пролог: Интродукция "Солнцу красному слава!"   03:52
-3. "Идем на брань с врагом Руси"   02:25
-4. "Князья, пора нам выступать"   05:47(   Читать дальше...   )Жанр: ОпераПродолжительность: 03:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4E956BB24FAAEF191C27114E55BDF77A9E34F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998197   (870142) от 19.03.2016
-
-J.S.Bach - Famous Organ Works (1979) Reissue, 2009, JVC [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toccata und Fuge D-moll, BWV565 (8:56)
-02. Passacaglia und Fuge C-moll, BWV582 (13:43)
-03. Fuge G-moll, BWV578 (3:52)
-04. Phantasie und Fuge G-moll, BWV542 (12:12)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DE50AA6786D1CB1A9C85D2C1C0FDCD9C204EA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

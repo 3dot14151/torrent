@@ -1,3 +1,61 @@
+###  Публикация: 1157085   (525837) от 10.08.2017
+
+Thy Art Is Murder - Dear Desolation (2017) [MP3|320 Kbps] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slaves Beyond Death
+02. The Son of Misery
+03. Puppet Master
+04. Dear Desolation(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F74B5F48FC509B874E07B4E00DF991A94FDB77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157150   (525503) от 11.08.2017
+
+Hell Rebel's - Reawaken (2017) [MP3|320 Kbps] <Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolution
+02. Dead Man
+03. Master
+04. Fine Piece(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990C6484F024B57711B4DDAD0728872CFB860E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927512   (524917) от 13.08.2015
 
 Soulfly - Archangel (2015) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
@@ -697,64 +755,6 @@ Khamyel - Loser With A Crown (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C40A557E493327767C84BCA147EFA1A863ADF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560585   (517795) от 02.07.2022
-
-Horizon Ignited - Towards The Dying Lands (2022) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Beyond Your Reach [00:03:45]
-02 - Servant [00:03:01]
-03 - Towards The Dying Lands [00:03:27]
-04 - End Of The Line [00:03:22](   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CE5213685AE83AF3001D6716964D9ABFC3FA0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930208   (516133) от 22.08.2015
-
-Metallica - Rock in Vienna at Donauinsel Wien (2015) [MP3|320 кб/с]<Rock, Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuel [03:58]
-02. For Whom The Bell Tolls [04:26]
-03. No Remorse [04:25]
-04. King Nothing [06:15](   Читать дальше...   )Жанр: Rock, Heavy Metal, Thrash MetalПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296848C1B854FA925DD02F493060CE3D0B0B58BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

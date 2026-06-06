@@ -1,3 +1,61 @@
+###  Публикация: 1498901   (830395) от 13.10.2021
+
+Chillout Music Masters - Flow Beats 2021 – Magical Electro Lounge (2021) [AAC|~301 Kbps] <Chill Out, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electro Chillout Lounge (3:54)
+02. Wind and Fire (3:27)
+03. Blue Dreams (6:17)
+04. Flow Beats (3:35)(   Читать дальше...   )Жанр: Chill Out, LoungeПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68977E04D13522260BFF6C11D9824A65C56D02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500982   (830394) от 13.10.2021
+
+VA - The World Series of Lounge, Vol. 1 (2021) [AAC|~325 Kbps] <Balearic, Downtempo, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Day of Light (2:21)
+02. Man In A Room, Natasha Tsirou - Marveland (5:22)
+03. Inventors Of The Sun - Secrets (5:39)
+04. Smooth Deluxe, Nizam Kharda - Bodhu Boron (3:18)(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 01:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86B99F1718A72CE32D8D5EC2B0026490A385CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496769   (830393) от 13.10.2021
 
 Святослав Вакарчук - Оранжерея (2021) [AAC|~293 Kbps] <Rock, Pop>
@@ -687,64 +745,6 @@ VA - Serenity - Sexy Lounge & Chill out Pearls, Vol. 5 (2016) [AAC|~312 Kbps] <L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F5C26977AC5442519347A65C1B9893492DB445D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495458   (830216) от 13.10.2021
-
-VA - Serenity - Sexy Lounge & Chill out Pearls, Vol. 3 (2016) [AAC|~321 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Pearce - Don't Let the Sun Go Down on Me (Original Mix) (5:10)
-02. Mary J - Sailing (Original Mix) (4:46)
-03. Jessica Hathaway - Frozen (Original Mix) (5:39)
-04. Michael Korg - 1973 (Original Mix) (4:51)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0198D170C6246F8F6BB206F27D68C0D1064D892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498655   (830214) от 13.10.2021
-
-VA - Pink Floyd in Jazz (A Jazz Tribute to Pink Floyd) (2021) [AAC|~301 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Turtle - Money (3:40)
-02. Nguyên Lê, NDR Bigband, Micheal Gibbs, Youn Sun Nah - Breathe (2:33)
-03. Gero Koerner Trio - Another Brick in the Wall (4:44)
-04. Ulita Knaus - Have a Cigar (2:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A2E9DBDF16FC322C4C0841F958DAB47893369D
 ```
 
 https://mybot314.ru/tekegram_catalog/

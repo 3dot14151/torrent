@@ -1,3 +1,147 @@
+###  Публикация: 1278078   (774034) от 23.01.2019
+
+Nirvana - This Is Nirvana (2019) [MP3|320 Kbps] <Rock, Grunge>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Smells Like Teen Spirit
+02 – Come as You Are
+03 – Heart-Shaped Box
+04 – Lithium(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 02:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9AE45F40FC06F27118B10684D540046749B0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015566   (773930) от 11.05.2016
+
+Ozzy Osbourne - The Best Hits (2016) [MP3|320 кб/с] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Don't Wanna Stop
+02 - Perry Mason
+03 - Can't Save You
+04 - Dreamer(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC812E0E420486D90BB07CFBE277D852731D3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015598   (773922) от 11.05.2016
+
+VA - Let's Rock !!! (2016) [MP3|160-320 кб/с] <Hard, Heavy, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01:
+001 Queen - We will rock You
+002 AC-DC - What do you do for money honeyЖанр: Hard, Heavy, AlternativeПродолжительность: 26:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A5713BA8D0B3F927527AC52D801A6765A91CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391707   (773114) от 21.06.2020
+
+VA - National Rock Day (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773114.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Grand Slam - Gone Are The Days
+002. The Edge Of Reason - Paradox
+003. Beneath My Sins - I Decide
+004. Doppler Us - Amor Atуmico(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9D9BB1718B11C88DB613938846EB207EA9FFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213099   (773085) от 15.03.2018
+
+VA - Hard Rock Anthems Car Hits (2018) [MP3|320 Kbps] <Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773085.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jasta - This Is Your Life
+002. Great White - I'm Alright
+003. Black Veil Brides - Wake Up
+004. Emerald - Blind(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 08:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD0F44DA9930676A3550E828523B063D8F070CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213254   (771759) от 16.03.2018
 
 VA - Hits of My Soul Vol. 32 (2018) [MP3|320 кб/с]<Post Rock, Post Metal>
@@ -603,151 +747,6 @@ VA - I Love Music! - Nu Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F591BF5094FE34A8353EE83F59EBBAE25C8C5ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126579   (765365) от 18.04.2017
-
-VA - I Love Music! - Indie amp Soft Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Rock, Acoustic, Psychedelic Rock, Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765365.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amber Run - Machine 4:37
-002. Andrew McMahon In The Wilderness - Fire Escape 3:25
-003. Anouk - Long Way 3:11
-004. Beach House - Wishes 4:47(   Читать дальше...   )Жанр: Rock, Acoustic, Psychedelic Rock, IndieПродолжительность: 03:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582784820AAC9F5C855DD9231C5FC95A0CCE2A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521326   (765216) от 02.01.2022
-
-Samantha Fish - Compilation (2019) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nearer to You
-02. Otherside Of The Bottle
-03. Are You Ready
-04. Push Comes To Shove(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73119D95C7C8C7513978F8E97EDC8AEC1EB0AE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126569   (765197) от 18.04.2017
-
-VA - I Love Music! - Hard Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock, Glam Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angels Or Kings - When The Heart Is Wrong 4:25
-002. Black Hole Raven - Do Not Luv Me 3:34
-003. Black Paisley - Coming Home 3:59
-004. Black Star Riders - Fade 4:23(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, Glam MetalПродолжительность: 07:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F9AB25E998A0DDFD9A856B7F05076CD54F4DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521441   (765159) от 02.01.2022
-
-Imelda May - Compilation (2019) [MP3|320 Kbps] <Alternative rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsy In Me
-02. Levitate
-03. It's Your Voodoo Working
-04. Round The Bend(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 02:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47A2A5819DF1A69AC10515FE58B14FE701BDCA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214558   (763942) от 22.03.2018
-
-VA - Roads of old Ballads (2018) [MP3|320 Kbps] <Rock , Pop-Rock , Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Queensryche - Silent Lucidity
-02. Gotthard - Let It Be
-03. Everlast&Santana - Put Your Lights On(   Читать дальше...   )Жанр: Rock , Pop-Rock , MetalПродолжительность: 07:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D45207C046D52463A95B303EEC997EB165D771
 ```
 
 https://mybot314.ru/tekegram_catalog/

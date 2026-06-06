@@ -1,3 +1,84 @@
+###  Публикация: 976939   (967528) от 19.01.2016
+
+Microsoft BackOffice Server 4.5 4.0.1381.1 [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft BackOffice Server - интегрированный набор серверных программ, оптимизированный для операционной системы Windows NT Server. BackOffice Server позволяет создавать мощные и интегрированные серверные решения в рамках как локальных, так и глобальных сетей. Этот пакет совместно с лицензией на доступ (Client Access License) предоставляет наиболее простой и экономичный (   Читать дальше...   )Язык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6988C2769A5A8963A38C4A66012578062BB0AF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978297   (963165) от 23.01.2016
+
+Recovery USB-Flash for Lenovo IdeaPad 100-15IBY / Windows 8.1 (х64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963165.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Lenovo_100_15IBY_W81.tib,
+записанный на ноутбуке Ideapad 100-15IBY (80mj005hrk) с помощью программы Windows Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676241CB7AD6D89C82E91BEF655ABB5B49974EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359860   (961716) от 14.02.2020
+
+Windows PowerShell 5.1 [Ru]
+
+>>ОС Windows
+>>Разное (RC, Beta и Service Packs)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это автономный установщик Windows PowerShell 5.1. Не требующий подключения к сети интернет. Пакет установки только русский.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F26C86FD3249F3F1C917AAB2FF4F46B9EA2E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 857041   (954286) от 07.01.2015
 
 Windows Embedded 8.1 with Update [November 2014] - Оригинальные образы от Microsoft MSDN [Ukr]
@@ -602,85 +683,6 @@ Recovery USB-Flash for Dell Inspiron 3542 / Windows 10 Home (х64) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6376800D605E97ADEE2BF4409EDE2DB3C530350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367150   (918221) от 14.03.2020
-
-Windows 7 SP1 with Update [7601.24550] AIO 11in2 (x86-x64) by adguard (v20.03.11) [Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN. Были интегрированы обновления по 10 марта 2020 года, а также интегрирован SmartFix 2.2.5 и Microsoft DaRT. В ней нет никаких косметических изменений и ничего не вырезано!Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F951A59D865C935A27A1EB395E4E00722CB3E70A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367428   (916706) от 15.03.2020
-
-Windows 10 Enterprise 2016 LTSB, Version 1607 with Update [14393.3564] (x64) by adguard (v20.03.11) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN. Были интегрированы обновления по 10 марта 2020 года, а также интегрирован SmartFix 2.2.5 и Microsoft DaRT. В ней нету никаких косметических изменений и ничего не вырезано!Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD2DA95110D4B3D14989E062E62630BFE267A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490184   (916566) от 21.08.2021
-
-Windows 8.1 6.3 (9600.20094) Enterprise + Pro (2in1) x64 by Brux [Ru/En]
-
->>ОС Windows
->>Сборки Windows 8
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов  ru_windows_8.1_enterprise и ru_windows_8.1_professional от MSDN. два образа  были объединены в один  Install.wim.  Были интегрированы обновления по 19 августа 2021 года. Добавлен английский языковый пакет.
-Все изменения в сборке производились исключительно при помощи DISM.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770205BF500DB359A7E061B649913AF73CC68851
 ```
 
 https://mybot314.ru/tekegram_catalog/

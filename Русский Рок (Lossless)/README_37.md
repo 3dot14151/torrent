@@ -1,3 +1,122 @@
+###  Публикация: 1582022   (325498) от 07.10.2022
+
+АнимациЯ - За кадром (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ужé
+2. Осторожно Россия
+3. Снег
+4. Суки (feat. Евгений Маргулис)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9449451E1871B942CE75114D6890D3401E335C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 260503   (325238) от 26.11.2010
+
+Маврин - Моя свобода (2010) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рождение (1:14)
+02. Моё время (5:29)
+03. Моя свобода (10:17)
+04. Душа (5:55)
+05. Новый день (7:51)
+06. Моё небо (5:38)
+07. Падшая звезда (2:55)
+08. Final (2:08)
+09. Show time (3:46)
+10. Утоли мои печали (5:22)Жанр: Heavy MetalПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261853   (325199) от 26.11.2010
+
+Сурганова и Оркестр / 5 сборников (2005-2010) [FLAC|Lossless]<VIP-Punk-Decadence>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: VIP-Punk-Decadence
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957677   (324834) от 20.11.2015
+
+Сурганова и Оркестр - #МИРУМИР (2015) [FLAC|image+.cue]<Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гонки (3:57)
+02. Сердце Юла (2:58)
+03. #МИРУМИР (4:10)
+04. Сердце (3:30)(   Читать дальше...   )Жанр: РокПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5B06C9132161BEC6D1A064D4BC12CDBF58841B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957932   (324717) от 20.11.2015
 
 Калинов Мост - Легенды русского рока (1997) [FLAC|tracks+.cue]<Рок>
@@ -630,122 +749,6 @@ LaScala - Agonia (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31656F7362A8418FDE03C0A444776586E9D01389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076115   (313855) от 25.11.2016
-
-Бахыт-Компот - Лучшие баллады в алфавитном порядке (2002) Compilation [APE|Lossless|image + .cue] <Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бог есть! 4:04
-02. Бухгалтер Иванов 3:23
-03. Дьявольская месса 4:14
-04. Империя 4:03(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D750C8FE7C666BFD89E3903E6142857208BEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422143   (313274) от 07.11.2020
-
-Бахыт-Компот - Пьяная помятая пионервожатая (1994) [FLAC|Lossless|image + .cue] <Rock, Rock'n Roll>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чесотка (04:55)
-02. Мы не пойдем в кино (04:02)
-03. Курящая мать (04:17)
-04. Анархистка (03:07)(   Читать дальше...   )Жанр: Rock, Rock'n RollПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75C876F37D4B7116B390CB10EB73301FCA325E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182947   (312585) от 12.11.2017
-
-Sergey Golovin - Changes (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Djent, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cynical Tesla Fury
-02. Changes
-03. Headbreaker
-04. Chaos Machine(   Читать дальше...   )Жанр: Progressive Metal, Djent, Instrumental RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF11AF5336999C529EDE9514B0FAC98A9C44A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260263   (312182) от 07.11.2018
-
-Svartby - Elemental Tales (2012) [FLAC|Lossless|image + .cue] <Folk Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Impby (1:28)
-02-Scum From Underwater (2:53)
-03-Boulder Massacration (3:33)
-04-Sleepy Devils (3:59)(   Читать дальше...   )Жанр: Folk Black MetalПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1163D301ABA589BFD522246F597AE0103E64D69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

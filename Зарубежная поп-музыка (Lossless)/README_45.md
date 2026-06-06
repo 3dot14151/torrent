@@ -1,3 +1,177 @@
+###  Публикация: 1546632   (604419) от 25.04.2022
+
+Lucius - Second Nature (2022) [FLAC|Lossless|tracks + .cue] <Disco, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604419.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Second Nature (03:31)
+2. Next to Normal (03:10)
+3. 24 (04:14)
+4. Heartbursts (03:55)(   Читать дальше...   )Жанр: Disco, Indie PopПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFE677CA95F6368323E1B38A40E7A0BF9E3A149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148179   (604314) от 05.07.2017
+
+VA - Romantic Serenade (2001) [FLAC|Lossless|image + .cue] <Traditional Pop, Vocal, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Engelbert Humperdinck - You'll Never Know (2:51)
+02. Vic Damone - Love Letters (3:15)
+03. Kenny Rogers - It Had To Be You (2:42)
+04. Tony Bennett - My Heart Stood Still (3:09)(   Читать дальше...   )Жанр: Traditional Pop, Vocal, Easy ListeningПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2EB98D3D8C7BDCF08334BC56EE64736AF3B3EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064602   (604245) от 25.04.2022
+
+Enrique Iglesias - Latin Collection 2000 (2000) [APE|Lossless|image + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm Divine
+02. Bailamos
+03. Ruleta Rusa
+04. Al Despertar(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B56E4817A5BB4DE14BB170F12AEF33C18C08252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297407   (604057) от 22.04.2019
+
+Bananarama - In Stereo (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love in Stereo
+02. Dance Music
+03. I'm on Fire
+04. Intoxicated(   Читать дальше...   )Жанр: PopПродолжительность: oo:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B755F23979392C13570B9F8D9F5E470D276BD45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148666   (603495) от 07.07.2017
+
+Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 What You Need 04:34
+02 Play Your Game 04:42
+03 Yours Faithfully 04:34
+04 Get Back To You 04:00(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A375595A5B58DED0E064657EEC6023172E27B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547189   (603386) от 27.04.2022
+
+Chris Isaak - Forever Blue (1995) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forever Blue - пятый альбом американского музыканта Chris Isaak'а вышедший 23 мая 1995. 15 марта 1996 года альбом был сертифицирован RIAA как платиновый, в Австралии альбом стал трижды платиновым, а в Канаде получил золото. Forever Blue был номинирован на Grammy в категории Best Rock Album, а сингл Somebody's Crying получил номинацию Grammy в категории Best Male (   Читать дальше...   )01. Baby Did a Bad Bad Thing (2:54)
+02. Somebody's Crying (2:48)
+03. Graduation Day (3:10)
+04. Go Walking Down There (2:50)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773B995ECB4B70A249997263C4EF57E2304705C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088318   (603308) от 27.04.2022
 
 VA - Golden Ballads Summer (2005) Unofficial Release [APE|Lossless|image + .cue] <Pop>
@@ -571,180 +745,6 @@ Vicky Brown - The Collection (1993) [FLAC|Lossless|image + .cue] <Pop, Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED50949303E9470EFC5D442096A1B89396FB8F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300228   (593780) от 05.05.2019
-
-VA - 538 Hitzone 89 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ava Max – Sweet But Psycho (03:05)
-02. Calvin Harris & Rag'n'Bone Man – Giant (03:49)
-03. P!NK – Walk Me Home (02:53)
-04. Duncan Laurence – Arcade (03:03)(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D8595B48B3671695DCD8AA336AA7E95E429EF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549189   (593289) от 07.05.2022
-
-VA - Summer Dance Party 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACRAZE - Do It To It (2:37)
-02. Elton John - Cold Heart (PNAU Remix) (3:22)
-03. Jax Jones - Where Did You Go (2:57)
-04. Becky Hill - Remember (2:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE7DDDB1976F8886C80A24D99A65B2EF92FEC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300769   (592765) от 07.05.2019
-
-Sarah Brightman - Hymn  (World Tour Limited Edition) (2019) [FLAC|Lossless|tracks + .cue] <Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn Overture (00:01:02)
-02. Hymn (00:04:27)
-03. Sogni (00:04:18)
-04. Sky and Sand (00:04:12)(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6471B9E2E6C29B626D02CF8E51FB66DD05106762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915502   (592221) от 05.07.2015
-
-VA - 100 Hits - 80s Love (2007) 5CD Box Set [FLAC|tracks + .cue]<Pop, Dance, Soul, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luther Vandross - Stop To Love [04:21]
-02. Five Star - Rain Or Shine [03:53]
-03. Boy Meets Girl - Waiting For A Star To Fall [04:25]
-04. Jason Donovan - Every Day (I Love You More) [03:23](   Читать дальше...   )Жанр: Pop, Dance, Soul, VocalПродолжительность: 06:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0757523DFD523C645523252A3B225012CE23010A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916002   (591404) от 07.07.2015
-
-Zucchero - BlueSugar (1998) [FLAC|image+.cue]<Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U Make Me Feel Loved (4:01)
-02. Blue (Blu – english version) (5:48)
-03. Thin Air (5:44)
-04. If Not Tonight (3:31)(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00876D890FB48EB05B1D9BCA104D37CFDCF65DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550947   (591195) от 13.05.2022
-
-Charli XCX - Crash (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash (2:11)
-02. New Shapes (3:20)
-03. Good Ones (2:17)
-04. Constant Repeat (3:09)(   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39760FC12E827613FE69CD7C6B99FFBD42806D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

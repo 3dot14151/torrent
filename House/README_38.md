@@ -1,3 +1,123 @@
+###  Публикация: 1036024   (622748) от 19.07.2016
+
+VA - Melodic Progressive House Vol. 06 (2016) [MP3|320 Kbps] <House, Melodic House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregory Esayan -  Make a Wish (Original Mix) 7:33
+02. Blugazer -  Ethereal Concepts (Shingo Nakamura Remix) 5:52
+03. BXT -  White Lynx (Original Mix) 6:10
+04. LavKastor -  E3 (Terry Da Libra Remix) 6:56(   Читать дальше...   )Жанр: House, Melodic House, Progressive HouseПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E72DF714CDA3AB6BFE51C0B6C15B9D36A57541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910373   (621565) от 20.06.2015
+
+VA - Ibiza Night Affairs The Very Best Of Chill House (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CDPM - Kalas (05:53)
+02. The Sura Quintet - Intimacy (05:32)
+03. Soul Emphasis - Going Deeper (06:16)
+04. Chiffre 100 - Need 2 Feel (06:51)(   Читать дальше...   )Производство: StereoheavenЖанр: Deep House, Chill HouseПродолжительность: 02:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24546BBBE5D7D9671A5EDE683DE90988342122E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519896   (621151) от 14.07.2012
+
+VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621151.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Supermodels - Sumasutra (3:52)
+2. Skyline - Sky L (4:25)
+3. New Deep Room (Night mix) - Alexis Montgomery (5:39)
+4. Black Diamond (deep progression mix) - Bass O' Matik (5:39)
+5. Mexico (feat Enjoy - Da vocal mix) - Karl Van Dee (5:42)
+6. Heaven & Paradise - K & C (3:59)
+7. Improbality (feat Voiceen - Phunkadeep mix) - Black Jag (5:39)
+8. We Can Dance (feat Barra Lopez - Modell & Mercier mix) - Caesar Anthony (5:44)Жанр: Deep HouseПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229950   (620892) от 09.06.2018
+
+Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running to the Sea
+02. Gorecki
+03. Serendipity
+04. A Love That’s Hard to Find(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8420A8AE022A2FB2E1E8EDFA2A8AEAFCE43FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520666   (619427) от 15.07.2012
 
 Tish - Shadows EP (08-07-2012) [MP3|320 кб/с]<Tech House>
@@ -650,122 +770,6 @@ VA - It's Simple: This Is 100 Deep House Tracks of 2019! (2019) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0C43F75A105F5C11B23BAFFCD15FAF14B2819A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147117   (609605) от 02.07.2017
-
-VA - Armada Ibiza (2017) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Thomas Gold - Magic (Alex Preston Remix)  3:15
-02.  Tommy Trash - Dreamer  3:07
-03.  ATB - Connected  3:36
-04.  DeaDmau5 - Polaris (Original Mix)  9:45(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE7070C427A455814F86D04FBF792F1F4B22D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231062   (608661) от 16.06.2018
-
-VA - Global Explosion Progressive House 8 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Paul Sparkes - Worgull (original)
-02.  C-Jay - Shogun (Dirty Disorder remix)
-03.  Alexi Bongioanni - Do It Yourself (original mix)
-04.  Downpour - Cloudy (original mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E96626243AFDB2292F344726DE6D3156449E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913281   (607146) от 28.06.2015
-
-VA - Secret Weapons (2015) [MP3|320 кб/с]<Techno, Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrian Hour - Speaking Groove (06:16)
-02. Erik Hagleton - Pressure (Club Mix) (06:46)
-03. Mihalis Safras & Mark Broom - Messing (Dosem Remix) (07:13)
-04. Tapesh - Black Out (Club Mix) (06:59)(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 03:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D903EEC87713772E6F70FE80FB1B03B829751817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913392   (605213) от 29.06.2015
-
-VA - Ibiza Beach Club (2015) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiffre 100 - Skies (06:34)
-02. The Sura Quintet - Intimacy (05:31)
-03. Soul Emphasis - Going Deeper (06:15)
-04. Over Range - Groove the Day (06:22)(   Читать дальше...   )Производство: Nidra MusicЖанр: Deep House, Chill HouseПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9EA5E74ABC529F8B1759CDFA970C6FD8922C0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

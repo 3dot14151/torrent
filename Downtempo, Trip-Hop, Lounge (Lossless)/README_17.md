@@ -1,3 +1,235 @@
+###  Публикация: 1404375   (483537) от 30.08.2020
+
+Podval Capella - Om (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insom
+02. Shafran
+03. Empyreal
+04. Indigo(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85935159B0020BA70F4E5F1AB9198A970B75B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404388   (483406) от 30.08.2020
+
+Podval Capella - Solar Plex (2019) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome
+02. Myterritory
+03. Taleofus
+04. Illuminate(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9D5B52A379B62858F682BD9849847FDBF346C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404373   (483388) от 30.08.2020
+
+Podval Capella - Deep (2015) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlem
+02. Cocaine
+03. Sugar
+04. Phoenix(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991F829FA3CA5447485BAB357DE7CC2BF60772A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405727   (481249) от 31.08.2020
+
+Sevdaliza - Shabrang (2020) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Art Pop, Experimental, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Joanna [00:04:20]
+02 - Shabrang [00:03:04]
+03 - Lamp Lady [00:03:31]
+04 - All Rivers at Once [00:04:45](   Читать дальше...   )Жанр: Trip Hop, Art Pop, Experimental, DowntempoПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9AE95D2FE9F78626DDC2F8C6BC956CD9E32FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406669   (472924) от 04.09.2020
+
+VA - Refreshing Jazz Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eivissarts - De La Tierra (Original Mix)
+02. Marco Moli - A Piano and a Trumpet (Original Mix)
+03. Michael E - For Laurant (Original Mix)
+04. Mission Brown, Arnob - Rosetta's Smile (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286C2ACA1B8CCC7CA99A8AD418D9CB0A0AB69EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407396   (466545) от 07.09.2020
+
+VA - Afternoon Chillout Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Angel of the Sky (03:49)
+02. Michael Е - It's Like Floating (04:44)
+03. Gary B - It Feels Like Summer (03:54)
+04. Patiotic - Timeless (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3501C2ECDB2A661F5BC6A23984912A36E691632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940954   (464901) от 26.09.2015
+
+VA - Fashiontv Chill Session (2015) [FLAC|tracks]<Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Pixel - Billy Jean (04:50)
+02. Purple Avenue - Justify My Love (05:32)
+03. Raff - Pride (In The Name Of Love) (04:28)
+04. Alex Palmer - Woman (04:22)(   Читать дальше...   )Производство: DJ Center FranceЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C01F6BC53281D1F270CD25B6438B9101CD7FD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941829   (460061) от 28.09.2015
+
+VA - The London Late Night: Lounge Sessions (2010) [FLAC|Lossless]<Easy listening, New Age>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вам не доводилось отдыхать в Лондоне, то у Вас есть возможность отдохнуть в сумерках под эти треки  London Late Night Lounge Sessions. Впрочем, это целая серия дисков и вполне возможно, что и под Нью-Йоркские ритмы Вам тож удастся отдохнуть.01. T.H.P. - The Time Is Coming  (4:40)
+02. Diapason - Wasting Time  (3:22)
+03. Polimeno & Vigano - Tramonto di un Giorno D'estate  (3:41)
+04. DJ Commy - Empty Heart  (3:40)(   Читать дальше...   )Жанр: Easy listening, New AgeПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E46CFFFAFB0B909EA128DC96C6ADEE63CCEB336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246908   (459173) от 12.09.2018
 
 Weber & Weber - Introducing • Chill Seekers (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Nu Jazz>
@@ -513,238 +745,6 @@ FaltyDL - Heaven Is For Quitters (2016) Beat Records [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECB62E53B7F5CBC1189DEFA67B885B7AEE20823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411805   (425576) от 26.09.2020
-
-Jens Buchert - Relax (Soothing Ambient & Chillout Music) (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifecode (5:35)
- 02. Kanna (5:07)
- 03. Milano (5:36)
- 04. Glow (Relax Mix) (5:39)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 01:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03D80A9F699B8BB400EAC12F2196EE65205EA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411616   (425474) от 26.09.2020
-
-VA - Es Vedra Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco - Mani Peninsula (Original Mix) (4:31)
-02. Eivissarts - No Motion (Original Mix) (5:56)
-03. The Soul Crusaders - Good for You (Original Mix) (5:04)
-04. Marga Sol - Lazy Days (Original Mix) (5:51)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7A63D192FA507A9F7B8E349A6CA1958EB6884A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324763   (421492) от 11.09.2019
-
-VA - Casa del Sol - Finest Chillout Selection (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Lemmer - I Like It (Stray Theories Remix)
-02. Ingo Herrmann - Birds in the Sun
-03. Lucidity - Dream Away
-04. Dustin Henze - Alright(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995F12BA7BA0067A442741201367534AE3F6A93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412287   (420447) от 28.09.2020
-
-VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection) Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Tomorrow Is a New Day (Original Mix) (05:40)
-02. Erick Morillo - Live Your Life (Eddie Thoneick's Chill out Mix) (03:57)
-03. Krystian Shek - Black Chocolate (Original Mix) (03:54)
-04. David Tort - Chase the Sun (Musica Feliz Ibiza Beat Remix) (05:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DBECB3454DBF37932BF5AF4A80C1C15F8236DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325590   (412715) от 15.09.2019
-
-VA - Formentera Solaire Chill (Wonderful Lounge and Chillout Music) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamhunter - Pasport to Heaven (Original Mix) (feat. Mr. Fox)
-02. Marie Therese - Magic of the Night (Original Mix) (feat. Liz Larch)
-03. Michael e - Oshun (Original Mix)
-04. David Clavijo - Las Dunas (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4E75F10EEE2EC636D8A47F3AB4E47569612805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325538   (412699) от 15.09.2019
-
-VA - Pop Vocal Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - A Tu Lado (Original Mix)
-02. Florzinho, Debbi Blackwell-cook - Take Me Higher (Original Mix)
-03. Man In A Room, Sanura - Thief of Time (Original Mix)
-04. Mission Brown - Same Old Temptations (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0CC0BF3C649238D29BA951B99CE4F92F7F2D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167915   (412569) от 22.09.2017
-
-Tricky - Ununiform (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obia Intro (1:56)
- 02. Same As It Ever Was (3:46)
- 03. New Stole (feat. Francesca Belmonte) (3:06)
- 04. Wait For Signal (feat. Asia Argento) (3:06)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52851B70A46A24D3BEEC9571E183E5B4C24EC420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832384   (412162) от 18.10.2014
-
-Schiller - Symphonia (2014) [FLAC|Lossless]<Ambient , Downtempo , Trance>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sommernacht (4:59)
-02. Berlin Moskau (5:41)
-03. Tired (mit Jael) (5:15)
-04. Leben... I Feel You (Instrumental) (1:53)(   Читать дальше...   )Жанр: Ambient , Downtempo , TranceПродолжительность: 01:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66A75847E37DDE1333E691E6E7BFCAE6FFFC100
 ```
 
 https://mybot314.ru/tekegram_catalog/

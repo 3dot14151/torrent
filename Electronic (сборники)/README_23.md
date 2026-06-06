@@ -1,3 +1,90 @@
+###  Публикация: 981533   (949803) от 02.02.2016
+
+VA - Absolute Dance Hits Vol.2 (2016) [MP3|320 кб/с] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Blue & Judith - Dance (Extended Mix) [04:20]
+02. Overtune - How Does It Feel (Clubbticket Remix) [05:27]
+03. Pulsedriver & Tiscore - My Love (Topmodelz Remix) [04:39]
+04. Carolina Marquez - Summerlove Right Now (Na Na Na) (Bruno Mayron Remix) [05:17](   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 05:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3162403F12682BE90DDA5EADDCC9E8E462E8625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362235   (949546) от 23.02.2020
+
+VA - Record Super Chart 626 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carla Morrison - Disfruto 3:57
+02. SAINt JHN - Roses (Imanbek Remix) 3:58
+03. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
+04. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78A2F160D1DD64CC742E28B0484CB74A8821479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362019   (949460) от 23.02.2020
+
+VA - Sounds Trance Euphoria (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wellkum - It's You
+02. Dj Xboy - Never Ever Give Up
+03. Dark Matter - When Faith Fades
+04. Ehren Stowers - Swarm (Club Mix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 07:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E40CE50194FBC3D636150C6C15FD0BA15BF8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982153   (948280) от 03.02.2016
 
 VA - Top 250 Tracks in the CAR Vol.2 (2015) [MP3|320 кб/с] <Club, Deep House, Electro House>
@@ -658,93 +745,6 @@ VA - Top 100 EDM Songs & DJ Tracks December (2017) [MP3|320 Kbps] <Electronica, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C69485C0823B74EBB00AEE3109FD73A3A354AA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091027   (944974) от 08.01.2017
-
-VA - Top 100 DJs Alive Sound (2017) [MP3|320 Kbps] <Tech Trance, Electro, Dutch, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944974.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmic Gate & JES - Fall Into You (Extended Mix) 6:34
-002. Andy Moor & Somna Feat. Amy Kirkpatrick - One Thing About You (Eximinds Remix) 5:40
-003. Raz Nitzan & Kate Louise Smith - This Time (Original Mix) 6:59
-004. Alex Leavon & Gemma Pavlovic - Counting Stars (Original Mix) 5:30(   Читать дальше...   )Жанр: Tech Trance, Electro, Dutch, ProgressiveПродолжительность: 08:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD87C9A90EAECA0F7291ED91437CF5935738BE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363102   (944932) от 26.02.2020
-
-VA - 135 Classic Soul Ballads (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944932.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Luther Vandross  -  Any Love (Single Mix)
-002.  Peabo Bryson  -  Closer Than Close
-003.  Earth, Wind & Fire  -  That's The Way Of The World
-004.  The Isley Brothers  -  Between The Sheets(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 10:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE01F47CA3F69F90803E425B890846C2AD044F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363095   (944931) от 26.02.2020
-
-VA - Winter Bash: Mega Dance Hands Up Party (2020) [MP3|320 Kbps] <Dance House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944931.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moam - Run With It
-002. Marwell - Jaipur (Radio Edit)
-003. Sunrider - Instant Moments
-004. Big Box - Nichtraucherzone(   Читать дальше...   )Жанр: Dance House, Tech HouseПродолжительность: 07:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284CD0617947AD77AF44750CB09FCD1C9016437F
 ```
 
 https://mybot314.ru/tekegram_catalog/

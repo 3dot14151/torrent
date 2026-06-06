@@ -1,3 +1,32 @@
+###  Публикация: 1568793   (457908) от 10.08.2022
+
+VA - NOW That's What I Call Music! Vol. 83 (2022) [MP3|320 Kbps] <Hip Hop, Rock, Afro Beat, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kendrick Lamar - N95
+02. Dove Cameron - Boyfriend
+03. Em Beihold - Numb Little Bug
+04. Tyga, Doja Cat - Freaky Deaky(   Читать дальше...   )Жанр: Hip Hop, Rock, Afro Beat, SynthpopПродолжительность: 01:06:53 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49858AE5CD3B0BB9342363F71E549E5F20447E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942188   (455970) от 30.09.2015
 
 Gregoire - Poesies De Notre Enfance (2015) [MP3|320 кб/с]<French Pop, Chanson>
@@ -718,35 +747,6 @@ Sandra - The Long Play (1985) [OGG|485 Kbps] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FFB3AD000826BA8145134B30FAF8DE49FF37AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945008   (437897) от 08.10.2015
-
-Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival
-02. Kill Em With Kindness
-03. Hands to Myself
-04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2DACEF2F7D4700FB2B2FC402B8F0B25A3200BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

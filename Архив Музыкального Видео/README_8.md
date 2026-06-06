@@ -1,3 +1,29 @@
+###  Публикация: 502912   (260407) от 02.06.2012
+
+Каста - Это Прет (2011) HDRip  H.264
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый клип к альбому "Хамиль и ЗмейРежиссер: Виктор ВилксАктеры: КастаПродолжительность: 04:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC8423D221C0771DEC6570A1E3FAF37AA625DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501229   (259860) от 31.05.2012
 
 Larry Coryell Live From Bahia (1992) DVD5
@@ -669,35 +695,6 @@ Berna Arici - Kitap Gibi Kadinim (2012) [H.264/1080р] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F90B453EBF28BDA8871F0FAE79F256B241C081EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493074   (248579) от 07.05.2012
-
-Megadeth - Warchest(Live in London 30.09.92) (2007) DVD5
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Thrash MetalПродюсер: Кевин ФлахертиВ ролях: Dave Mustaine -- vocals, lead & rhythm guitars
-Marty Friedman -- lead & rhythm guitars
-David Ellefson -- bass guitar & bkg vocals
-Nick Menza -- drums & bkg vocalsПеревод: ОтсутствуетПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

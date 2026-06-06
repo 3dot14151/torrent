@@ -1,3 +1,32 @@
+###  Публикация: 740114   (1000958) от 14.01.2020
+
+Era & Arielle Dombasle - Arielle Dombasle By Era (2013) /Special Edition/ [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria (Inspired By The Ave Maria / Gonoud) (4:02)
+02. Cold Song (From 'Cold Genius' King Arthur Opera) (3:29)
+03. Adagio For Strings (Era Version / Edit Agnus Dei) (3:57)
+04. Sins (From 'Miserere') (3:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73FAF98A4569F40464EFFD3FFA0FC0D195C90ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352292   (1000894) от 15.01.2020
 
 Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
@@ -713,35 +742,6 @@ Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FF5ABC8852F1027E7DED07E2B39F6BFBA14CA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621565   (962698) от 20.02.2013
-
-Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let There Be Light (York Remix)
-02. Far Above The Clouds (York Remix)
-03. Ommadawn (Mike Oldfield & York Remix)
-04. Guilty (Mike Oldfield & York Remix)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

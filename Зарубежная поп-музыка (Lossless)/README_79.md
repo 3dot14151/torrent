@@ -1,3 +1,293 @@
+###  Публикация: 1618809   (201330) от 13.03.2023
+
+VA - Pop Stars (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ed Sheeran - Bad Habits                                 [03:50]
+2. Bruno Mars - Leave the Door Open                        [04:02]
+3. Dua Lipa - Levitating                                   [03:23]
+4. David Guetta - I'm Good (Blue)                          [02:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC82F867CEEE239BF83DF72BAF764E89A265B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489422   (200754) от 27.03.2023
+
+Kim Wilde - Pop Don't Stop (Greatest Hits) [2CD] (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second Time (7' Version)_ (3:47)
+02. Never Trust A Stranger (7' Version)_ (4:06)
+03. Million Miles Away (7' Version)_ (4:13)
+04. Another Step (Closer To You) (7' Version)_ (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E758976084362D4B595D6F233D086C9211EC06C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625858   (200039) от 12.04.2023
+
+VA - 100 Hits - The 70s (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200039.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Dreams (2018 Remaster)
+002. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
+003. Blue Swede - Hooked on a Feeling
+004. Rod Stewart - Da Ya Think I'm Sexy(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 06:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F9471CBF851DD7B2364FE4E6CE3834F3A09434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630320   (198979) от 02.05.2023
+
+Ace of Base - Beautiful Life - The Singles Box (2023) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wheel of Fortune (7" Mix) (3:43)
+02. My Mind (Mindless Mix) (4:13)
+03. Wheel of Fortune (12" Mix) (5:27)
+04. Wheel of Fortune (Clubmix) (4:39)(   Читать дальше...   )Жанр: Eurodance, Pop, DanceПродолжительность: 25:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEF0AE9A3187557DCD7F64CE35703774F8CC2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635603   (197979) от 26.05.2023
+
+Taylor Swift - Midnights (2023) The Til Dawn Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lavender Haze
+02. Maroon
+03. Anti-Hero
+04. Snow On The Beach(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18022E3DB96FF3674E505A533E8F542DA8E59A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219121   (197935) от 25.05.2023
+
+Tina Turner - The Best (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Rock, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best (Extended Mix) (6:37)
+02. Nutbush City Limits (The 90's Version) (3:44)
+03. Afterglow (12'' Dance Mix) (7:13)
+04. We Don't Need Another Hero (6:10)(   Читать дальше...   )Жанр: Pop, Rock, Soul, BluesПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE915F497CCAE302451A3DB260423A78DC180F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638141   (197435) от 07.06.2023
+
+VA - 70s Pop Mega Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Gees - Stayin Alive                                 [04:45]
+   02. Jerry Williams - Cotton Jenny                           [03:30]
+   03. Rupert Holmes - Escape (The Pina Colada Song)           [04:37]
+   04. Rod Stewart - Maggie May                                [05:44](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E973D11D8E8CE257D6456E6725ED6FCDC731D47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445578   (193898) от 22.08.2023
+
+Toto Cutugno - 3 Albums (1990 - 2005) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Cielo E' Sempre Un Po' Piu' Blu 3:38
+02. Come Noi Nessuno Al Mondo 4:57
+03. Cantando ( En Chantant ) 4:37
+04. L'italiano 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C98830F0DD57C18B9B7E28C45E77BBDA4A0A175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587126   (193221) от 29.10.2022
+
+PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Per Gessle Talks P-UD! - Album title (1:01)
+02. Per Gessle Talks P-UD! - Background #1 (0:50)
+03. Per Gessle Talks P-UD! - Background #2 (0:46)
+04. Per Gessle Talks P-UD! - Background #3 (0:44)(   Читать дальше...   )Жанр: Pop, Pop-Rock |Продолжительность: 00:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E1DCEEFDB8D173D0B15E057FB45C1550707E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657251   (193026) от 02.09.2023
+
+Supermax - Types Of Skin (1980) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood
+02. Hotline
+03. Raindance
+04. In The Middle Of The Night(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D183ED1F81CDC6ADD651BABA86296046C89A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657425   (192741) от 03.09.2023
 
 Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
@@ -450,296 +740,6 @@ Roxette - The Very Best of Roxette (1994) Compilation, Unofficial [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B867DBEBCEF8620989D7988F740E8B398570933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661538   (188552) от 15.09.2023
-
-Carly Simon - These Are The Good Old Days: The Carly Simon & Jac Holzman Story (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anticipation (3:22)
-02. It Was So Easy (3:10)
-03. Alone (Demo) (3:08)
-04. The Best Thing (4:24)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D773C40C9E2ADA422DC40E6C00C4168E02C4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663157   (187182) от 20.09.2023
-
-Laura Marano - i may be an actress, but i can’t fake how i feel (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Keep Waiting [00:03:42]
-02. ACT I: Enough [00:01:05]
-03. Powerless [00:03:40]
-04. BAD TIME GOOD TIME [00:03:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D96F78AF02BB8D1B328F7BD7A012C6B747001B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663352   (186869) от 21.09.2023
-
-Mitski - The Land Is Inhospitable And So Are We (2023) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bug Like an Angel (03:32)
-02. Buffalo Replaced (02:40)
-03. Heaven (03:44)
-04. I Don't Like My Mind (02:25)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C59D209373C74F32087212D597A1CD864DDE48E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591804   (186761) от 19.11.2022
-
-Michael Jackson - Thriller 40 (2022) 40th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin'
-02. Baby Be Mine
-03. The Girl Is Mine
-04. Thriller(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81F0A5DB0FCABABE0D6FAD3F8916917F5847720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591510   (186744) от 19.11.2022
-
-Secret Service - Secret Mission (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Mission (3:34)
- 02. How Can I Get over You (4:05)
- 03. You Stole My Heart (ft. Clara-Corina) (3:44)
- 04. Jane (3:10)(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B047EE9170467299C26548ED89F91FBAEEE5717F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663510   (186548) от 22.09.2023
-
-Kylie Minogue - Tension (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Padam Padam (2:46)
-02. Hold On To Now (3:58)
-03. Things We Do For Love (3:10)
-04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3382E4ADD0F6256B377591A4DF816361710FEEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663801   (186434) от 23.09.2023
-
-Anastacia - Our Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best Days
-02. Now or Never
-03. Beautiful
-04. Still Loving You(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A53B1CA06606FC69F15AFCF28CA4FA83B469F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591814   (185417) от 20.11.2022
-
-Tokio Hotel - 2001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Durch den Monsun 2020 [00:03:54]
-02. HIM [00:03:34]
-03. White Lies [00:03:04]
-04. Ain't Happy [00:03:27](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CF07BABD54AE5093CA5F8555D22F46566FC5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426608   (185354) от 26.11.2020
-
-The Common Linnets - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  In Your Eyes  03:25
-02.  We Don't Make The Wind Blow  03:36
-03.  Hungry Hands  03:52
-04.  Soho Waltz  04:29(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14201D9E5761278F563E0E7C01215214FB685CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426854   (185304) от 26.11.2020
-
-VA - Relax Fall 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calum Scott - Dancing On My Own (4:18)
-02. Rhys Lewis - Better Than Today (3:50)
-03. Kwamie Liv - 17 (3:33)
-04. Conan Gray - Heather (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBFB0EF18ADE487D536D2811411D54E85B03B49
 ```
 
 https://mybot314.ru/tekegram_catalog/

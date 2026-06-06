@@ -1,554 +1,22 @@
-###  Публикация: 1858525   (1060519) от 11.03.2026
+###  Публикация: 1861867   (1062807) от 27.03.2026
 
-Kimi no Iru Machi OVA | Город, в котором ты живёшь ОVA [2014, OVA, 2 эп.] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ограниченное издание 26 тома будет включать в себя дополнительную серию. Это глава воспоминаний и является прологом к сериалу. В ней будет показано как герои впервые встретились в детстве.
-Ограниченное издание 27 тома также будет включать в себя дополнительную серию, созданную в тесном сотрудничестве с автором оригинальной манги.
-
-© ShikimoriПроизводство: Студия Gonzo, ЯпонияЖанр: романтика, драмаРежиссер: Сигэясу ЯмаутиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 28 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3217A35ED9C2907E563268662B8B806F93ADAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858520   (1060518) от 11.03.2026
-
-Kimi no Iru Machi: Tasogare Kousaten | Город, в котором ты живёшь: Сумеречный перекрёсток [2012, OVA, 2 эп.] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060518.jpg" />
-</div>
-
-
-###  Подробнее
-
-По непонятным причинам Эба Юдзуки решает поступить в старшую школу в сельской местности. Несмотря на возражения Кирисимы Харуты, она вселяется в его дом. Теперь ему приходится мириться с нахлебницей и беспокоиться, чтобы Кандзаки Нанами, которую он любит, не узнала о том, что у него уже есть «сожительница».
-
-© ShikimoriПроизводство: Студия Tatsunoko Production, ЯпонияЖанр: романтика, драмаРежиссер: Хироси КобаясиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766305253B0679D4C37BF9C7A21E37A5581FE829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858290   (1060517) от 11.03.2026
-
-Олег Добрый - Русь белоствольная (2026) AI-generated content [MP3|320 Kbps] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Русь белоствольная [00:04:42]
-02 - Есенин [00:03:56]
-03 - Песня ни о чём [00:04:19]
-04 - Край земли [00:03:40](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A2B4B5A6695C903E52FA630749A792D8B75639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858605   (1060516) от 11.03.2026
-
-Miss Parker - Silent Pulse (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Back from Here (3:38)
-02.  Courage (5:48)
-03.  Slow Down (4:38)
-04.  Step by Step (5:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C251EB2E2DC0633C8EEEBC435FFB91126F5A9B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858121   (1060515) от 11.03.2026
-
-Виктор Каменский - 3 Albums, 1 Single (2021-2026) [MP3|320 Kbps] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Виктор Каменский (2021) Доля-долюшка (LP)
-Виктор Каменский (2022) С вещами на выход (LP)
-Виктор Каменский (2023) Свобода (LP)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 4 CD, 02:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5E7A5A4E37DD9FD18C4796EE501002B0F5A8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858113   (1060514) от 11.03.2026
-
-Петлюра (Юрий Барабаш) - Малолетка. Том I (1995) Digital Remaster, 2001, Master Sound Records [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Малолетка [00:03:43]
-02 - Платье белое [00:04:07]
-03 - Гитара семиструнная [00:03:00]
-04 - Тёмная вода [00:03:46](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499005E504DDDEFFD6ED1716BE1197AEB28DE991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858608   (1060513) от 11.03.2026
-
-Pacific Avenue - Lovesick Sentimental (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Things We Wanna Say (3:56)
-02.  Eat Me Alive (4:01)
-03.  Working Class Hero (3:52)
-04.  Here We Go Again (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830C69EFD81DF05316E3E08B5FEF3E3F2B81733D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858086   (1060512) от 11.03.2026
-
-Ирина Ежова - Я давно не играю в куклы (2026) [MP3|320 Kbps] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Белый шарф [00:03:03]
-02 - Белая берёза [00:03:22]
-03 - Я давно не играю в куклы [00:03:08]
-04 - Я тебя люблю [00:03:54](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9672A7E0D46C5DD11EA21608E3C8697A88F43AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857928   (1060511) от 11.03.2026
-
-Анатолий Романов - Признание (2026) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Признание [00:03:21]
-02 - Так много нежности [00:04:46]
-03 - Бархатный сезон [00:03:29]
-04 - Отражение любви [00:03:16](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9962FB62E4BD0E9CD7357AF0EF12F7AC089DD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857914   (1060510) от 11.03.2026
-
-Юрий Коновалов - Оптимист (2026) AI-generated content [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Оптимист [00:03:31]
-02 - Маэстро, я пою для вас [00:04:54]
-03 - Цыганское счастье [00:05:10]
-04 - Беспутная [00:03:04](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324AF51F9CCE4142563CFC1258F7A4D0E9005300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857912   (1060509) от 11.03.2026
-
-Олег Нестеров - Шансон 2026 (2026) AI-generated content [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Давай помолчим [00:03:13]
-02 - А собака ждёт [00:03:27]
-03 - Сердце рвёт на части [00:02:39]
-04 - Поцелуй меня, удача [00:02:49](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7181DCC46FC90DA923C0AB23CBC0045EC3FB0113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858609   (1060508) от 11.03.2026
-
-Rosie Carney - Doomsday...Don't Leave Me Here (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Everything Is Wrong (3:12)
-02.  Here (3:58)
-03.  In My Blue (3:26)
-04.  Fragile Fantasy (3:35)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D59F13C90D66823177A8040E11B51B21407608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858341   (1060507) от 10.03.2026
-
-Throne (ex. NekoRay / NekoBox) 1.1.0 portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Throne – это мощное и удобное ПО для работы с современными VPN-протоколами.
-
-Throne – это программное обеспечение, которое поддерживает работу с несколькими сетевыми протоколами и помогает пользователям обойти блокировки и улучшить безопасность и конфиденциальность при работе в интернете.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F791200495DBE96180DF4B8FE383A512ED0E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858391   (1060506) от 10.03.2026
-
-Гикор (1934) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060506.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному рассказу армянского классика Ованеса Туманяна. О трагической судьбе крестьянского мальчика Гикора, отданного на обучение в город. Судьба Гикора - это судьба сотен и тысяч детей дореволюционной армянский деревни.
-Это последний немой фильм производства АрменкиноПроизводство: СССР / АрменкиноЖанр: социальная драма, экранизация, немое киноРежиссер: Амаси МартиросянАктеры: Грачья Нерсисян, Авет Аветисян, Асмик Агопьян, Мария Джерпетян, Татьяна Махмурян, Х. Погосян, Дора Агбалян, Левон Алавердян, Дарий Амирберкян, Арам АмирбекянСубтитры: русские интертитрыПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F341E1F2AA7D7800424EEEE938231FF1EC328B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858398   (1060503) от 10.03.2026
-
-Анаконда / Anaconda (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures Corporation, Fully Formed EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон БиллингслиПеревод: Дублированный (MovieDalen)Язык озвучки: русский, английскийСубтитры: русские (2x-forced, full), английские (forced, full, SDH)Продолжительность: 01:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029A82432D99A05818BA7E50FC5CCE9DC041066B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858402   (1060500) от 10.03.2026
-
-NetOptimizer Portable 7.0.26.309 [Multi]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подарите своему медленному интернет-соединению скорость и мощность, которых вы заслуживаете! С NetOptimizer вы наконец-то получите то, за что платите, и будете наслаждаться интернетом на максимально доступных скоростях, обещанных вашим интернет-провайдером.Язык интерфейса: Английский, Украинский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304A81A91DB5AD7E9C2946E9BA78D45AB2AB5097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858403   (1060497) от 10.03.2026
-
-Анаконда / Anaconda (2025) BDRip [H.264/1080p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures Corporation, Fully Formed EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон БиллингслиПеревод: Дублированный (MovieDalen)Язык озвучки: русский, английскийСубтитры: русские (2x-forced, full), английские (forced, full, SDH)Продолжительность: 01:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD93365F4121A223CBDB3DD7781C40571B9EAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858404   (1060496) от 10.03.2026
-
-Пресеты - Envato - Vintage Film Look Lightroom Presets - U66U7YD [XMP, DNG]
-
->>Материалы для мультимедиа и дизайна
->>Пресеты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060496.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 винтажных пресетов Lightroom, имитирующих пленочную фотографию, для мобильных и настольных устройств.Формат: XMP, DNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30569B55430BB507C5A2CC069241D71C7BD7F474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858410   (1060495) от 10.03.2026
-
-Анаконда / Anaconda (2025) BDRip [H.264/720p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа друзей отправляется в джунгли, чтобы снять ремейк «Анаконды», их любимого фильма юности. Однако вскоре после начала съёмок змея, главная звезда фильма, погибает, и друзьям приходится продвигаться в глубь джунглей, чтобы найти ей замену.Производство: США / Columbia Pictures Corporation, Fully Formed EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Том ГормикэнАктеры: Джек Блэк, Пол Радд, Стив Зан, Тандиве Ньютон, Даниэла Мелшиор, Селтон Мелу, Айс Кьюб, Айони Скай, Руй Рикардо Диас, Джон БиллингслиПеревод: Дублированный (MovieDalen)Язык озвучки: русский, английскийСубтитры: русские (2x-forced, full), английские (forced, full, SDH)Продолжительность: 01:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0697C77355C73BD4880952542419CFD1EED1245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858414   (1060494) от 10.03.2026
-
-Imagine 2.5.3 + Portable [Multi/Ru]
+FastStone Image Viewer 8.3 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Мультимедиа и Графика
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюерам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, английский и другие
+FastStone Image Viewer - просмотровщик, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. При установке WEBP кодека поддерживает и этот формат. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B77103ABAA41F896EF0E7C194B12F598EBACBAB0
+magnet:?xt=urn:btih:6BFB1DEEA4C9C67F9512866B52B1A06D274EF87C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,25 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858434   (1060492) от 10.03.2026
+###  Публикация: 1861868   (1062806) от 27.03.2026
 
-Adobe Acrobat Reader 2025.001.21288 [Multi/Ru]
+Stewart Weiss | System Programming in Linux. A Hands-On Introduction (2026) [PDF] [EN]
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Acrobat Reader — приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество — теперь работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
+Learn to write real Linux software—not just run it.
+
+Most programmers never learn how Linux really works. Why? Because system programming is rarely taught, and the tools can be intimidating without the right guidance. As a result, many developers stick to high-level languages and frameworks—writing code that runs on Linux without understanding how it interacts with (   Читать дальше...   )Жанр: Linux Programming, Linux Networking & System Administration, Software DevelopmentЯзык: АнглийскийИздательство: No Starch PressФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59F2107A92B5AFDFFFCF1BDE9F3A1FCBEA625122
+magnet:?xt=urn:btih:8CAEB8F7F5E18EE9648E6257D20DE252BAE84A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,25 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858435   (1060491) от 10.03.2026
+###  Публикация: 1861862   (1062805) от 27.03.2026
 
-Текстуры - RuleByArt - Digital Flow: 18 Abstract Textures [PNG]
+ProFinansy, Ольга Гогаладзе | Облигационная зарплата (2024) WEB-DL, PCRec [AD] [RU]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Flow  — это коллекция из 18 ярких текстур фрактального потока высокого разрешения. Эти органические текстуры обладают динамичной, текучей энергией.Формат: PNGРазрешение файлов: 6000x6000
+Курс о том, как обеспечить себя пассивным доходом круглый год в любой валюте.Производство: ProFinansyЖанр: видеокурс, мастер-класс, финансы, инвестиции, облигацииЯзык озвучки: русскийПродолжительность: 05:21:47Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EFEE8DD75AF1D19640F12E39DB96BDE51F6FED9
+magnet:?xt=urn:btih:C75A9E7E9879906CEADDBD383278E21CE352CCB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,25 +78,513 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858335   (1060490) от 10.03.2026
+###  Публикация: 1861873   (1062804) от 27.03.2026
 
-Шут (1988) WEB-DLRip [H.264/720p]
+А.М. Серебренников | Для devops и сисадмина. Работаем с файлами в Linux (2024) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Devops и системные администраторы несут ответственность за проектирование, развертывание и поддержку сложных инфраструктур, обеспечивая их надежную и бесперебойную работу. Одна из важнейших обязанностей этих специалистов — автоматизация повседневных задач, что позволяет повысить эффективность работы и минимизировать ошибки. Данная книга содержит уже готовые рецепты (   Читать дальше...   )Жанр: Компьютерная литература, LinuxИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CD2B3743217EC7EAE50D046D30355912859EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861860   (1062803) от 27.03.2026
+
+М.Д. Матвеев | Ядро Linux. Сборка, настройка, управление (2023) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062803.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собрана самая разнообразная и полезная информация о ядре Linux. Спектр материалов достаточно широк: от самых основ (компиляция ядра, загрузчик GRUB2, управление процессами), до более сложных тем (обработка прерываний, таймеры и отслеживание хода времени, управление памятью ядра и т. д.). Отдельное внимание будет уделено различным аспектам файловой и (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Наука и ТехникаФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD500D60E9BDCB5B8545681B72D70CC97A9F620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861859   (1062802) от 27.03.2026
+
+Stacy Cashmore | Beginning Azure Static Web Apps. Building and Deploying Professional, Dynamic Web Applications. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Create rich and dynamic web applications built on the Azure cloud platform using static web development techniques built around Blazor WebAssembly, APIs, and Markup, whilst leveraging the paradigm commonly known as JAMstack.
+
+This book starts with demonstrating you how to create an environment for deploying your first application. You will create a blogging application (   Читать дальше...   )Жанр: Mobile App Development & Programming, Microsoft Programming,  Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA10C47B466733E0149EE5B33161127E5EBF4DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861848   (1062801) от 27.03.2026
+
+D. Roth, J. Fritz, T. Southwick | Blazor for ASP.NET Web Forms Developers (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062801.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book is for ASP.NET Web Forms developers looking for an introduction to Blazor that relates to their existing knowledge and skills. This book can help with quickly getting started on a new Blazor-based project or to help chart a roadmap for modernizing an existing ASP.NET Web Forms application.Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Microsoft PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3898B0C141DA2D2C781FC4E0EBE835BE2B1243C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861845   (1062800) от 27.03.2026
+
+Ed Freitas | Vue 3 Succinctly (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Get up to speed with the industry-leading Vue javascript framework so you can start building web apps quickly. Whether you’re new to Vue or a Vue veteran, this ebook covers the new Composition API, custom directives, the Vue Router, and more.
+Vue.js or Vue (pronounced view) is a progressive (incrementally adoptable) front-end javascript framework that you can use (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: SyncfusionФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751BAC744A91F42A514DA0B2C7E38A8BF4654E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861844   (1062799) от 27.03.2026
+
+ProFinansy, Наталья Котовская, Никита Прокофьев, Александр Холодов | Дивидендная зарплата (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062799.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хочу получать зарплату, а работать не хочу». Знакомые мысли? А что, если получать вторую зарплату можно, не устраиваясь на вторую работу? Вашей второй «зарплатой» станут дивиденды! Дивиденды - это деньги, которые компании платят тем, кто владеет их акциями. Не все компании платят дивиденды.
+
+Чтобы получать дивиденды, нужно знать:
+какие компании платят дивиденды;(   Читать дальше...   )Производство: ProFinansyЖанр: видеокурс, обучающий курс, финансы, инвестиции, дивидендыЯзык озвучки: русскийПродолжительность: 09:03:07Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706ADAEF3DCC07E9635F4A3B43201FB4A82155C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861842   (1062798) от 27.03.2026
+
+Joe Attardi | Modern CSS. Master the Key Concepts of CSS for Modern Web Development. 2nd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Come on a tour of modern CSS. This example-driven book demonstrates the concepts by showing code examples, screenshots, and diagrams to help clearly communicate the information.
+
+You'll start with the very basics of CSS: box model, colors, selectors and combinators, and specificity. Then gradually move through more intermediate topics - styling text, positioning, (   Читать дальше...   )Жанр: Web Programming, Human-Computer Interaction, Graphics & Multimedia ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0E88F435CCE08FA97599673B883D254F13D0BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861840   (1062797) от 27.03.2026
+
+Alex Libby | Developing Web Components with Svelte. Building a Library of Reusable UI Components. 2nd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leverage the power of Svelte to quickly produce the foundations of a framework-agnostic component library that can extend and develop over time. This is a project-oriented book that simplifies setting up the skeleton of the library and adding components, using little more than a text editor or free software.
+
+You'll gain a starting baseline that can be used to develop (   Читать дальше...   )Жанр: Web Programming, Web Development & Design Programming, Computer ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B79E2CC1AB049B6ED1F6D023ED8170FF3E59A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861833   (1062796) от 27.03.2026
+
+Bhargav Bachina | Ultimate Full-Stack Web Development with MEVN. Learn From Designing to Deploying Production-Grade Web Applications with MongoDB, Express, Vue, and ... GCP (Full Stack Web Develope ...
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Embark on a journey into modern web development with the Ultimate Full Stack Web Development with MEVN to build robust, scalable applications using MongoDB, Express.js, Vue.js, and Node.js.
+
+Starting with fundamental concepts and installation steps, this book progresses to advanced topics and hands-on coding exercises, culminating in the creation of a comprehensive (   Читать дальше...   )Жанр: Cloud Computing, Computer Programming Languages, Computer SoftwareЯзык: АнглийскийИздательство: Orange Education Pvt. LtdФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC515678E3792B0714795F79A9656D35B68DD6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861817   (1062795) от 27.03.2026
+
+Подшивка газеты | Невыдуманные истории №6-13 [8 выпусков] (февраль - март 2026) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062795.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71D2F9278D44856A3539B1CB0E303D597467B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861808   (1062794) от 27.03.2026
+
+ProFinansy, Ольга Гогаладзе | Инвестстарт (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете: с чего начать, что делать и как заработать на инвестициях.Производство: ProFinansyЖанр: видеокурс, обучающий курс, финансы, инвестицииЯзык озвучки: русскийПродолжительность: 09:45:30Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5182633F48FC30CBE9FA76DB0C29D694C9D55CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861801   (1062793) от 27.03.2026
+
+VA - Ori Uplift - Uplifting Only Episode 685 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KBK & Grande Piano ft. Agata Pasternak – Mystery Of Tomorrow (Intro Mix)
+02. DreamLife – Mountain Waterfall (Orchestral Uplifting Classic)
+03. LR Uplift – Euphoria
+04. Shadows&Nightmares – Hallucinogen(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D236D46EB35708D67B6FE647A1932C44A93022B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861798   (1062792) от 27.03.2026
+
+VA - Armin van Buuren - A State Of Trance 1270 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discognition – Gotham Summer Returns
+02. Super8 & Tab ft. Anton Sonin – Black Is The New Yellow (Simon Gregory Remix)
+03. Sander van Doorn – Direct Dizko 2024
+04. METODI – A Gut Feeling(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87B74E0CF8C318AAF4359AAEBC34874AB01E654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861755   (1062791) от 27.03.2026
+
+Светлана Кузина | Все врут! Учимся вычислять людей по их внешнему виду! (2026) [MP3, Инна Сытник]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лгут почти все: 93% людей делают это регулярно и дома, и на работе, а оставшиеся 7% — по ситуации. Эта книга — самый полный практический курс для тех, кто хочет разбираться в обмане и использовать его осознанно. Как заметить, что человек говорит неправду, и предугадывать ход его мыслей? Какие детали поведения и внешности выдают характер? Как по облику оценить, сколько (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 17:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32821FB94A24BCE18608F6F40069C95FB29533AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861753   (1062790) от 27.03.2026
+
+Фез Инкрайт | Яды и проклятия. Теневая жизнь растений (2022) [MP3, Игорь Гмыза]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062790.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой аудиокниге собраны тайные истории о темной стороне растений, об их опасных свойствах и ядах, которые из них делают. Истории переплетаются с древними мифами, легендами, цитатами из мировой литературы и великолепными авторскими иллюстрациями. Азбука растений, предложенная автором, удобна в пользовании. Вы легко найдете растение по его распространенному названию, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: АСТПродолжительность: 7:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1192083DE7A6BC2646CB1F34A14E1CA69F919E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861719   (1062789) от 27.03.2026
+
+Irina Shamaeva | Advanced Styles and Insights with Midjourney. Imagine Beautiful AI Prompts (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Explore advanced techniques in AI image generation with a focus on enhancing creativity and producing unique styles using the Midjourney platform, an AI image-generating (text-to-image) program unparalleled in the aesthetics of images it can produce. This book is for anyone ready to push their AI art further, with guidance straight from a seasoned AI artist and user (   Читать дальше...   )Жанр: Graphics & Multimedia Programming, Computer Graphic Design, Computer Graphics & DesignЯзык: АнглийскийИздательство: Apress MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9F84F76E8ED7F7FB94EBAD2874561E4C235C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861716   (1062788) от 27.03.2026
+
+М.С. Мирзоев, А.Э. Сатторов | Математическая машина Тьюринга и вычислительная сложность. Учебное пособие (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062788.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены подходы к формализации понятий алгоритма. В нем уточняется понятие алгоритма через математическую машину Тьюринга и машину с неограниченным количеством регистров (МНР) и рассматриваются некоторые оценки сложности алгоритмов. Помимо теоретических и практических материалов пособие содержит задания для самостоятельной работы.
+Содержание учебного (   Читать дальше...   )Жанр: Информатика, Математика, ФизикаИздательство: ПрометейФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779041B9EA80B42123AA2E7F58F90F93D3463EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861712   (1062787) от 27.03.2026
+
+М.Н. Лысачев, М.Н. Прохоров | Искусственный интеллект. Анализ, тренды, мировой опыт (2023) [PDF]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предоставляет аналитику по мировому и российскому рынку искусственного интеллекта (ИИ), уделяя особое внимание атомной отрасли, приводит согласованную таксономию, на которой базируется эта аналитика, дает описание базовых технологий, необходимых для понимания структуры рынка. В публикации затронуты вопросы, касающиеся определений искусственного интеллекта, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: КОНСТАНТА-принтФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D466D3F6FAD79DE14910905E1EE45AEAC370B4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861869   (1062786) от 27.03.2026
+
+Большая земля (1944) WEBRip [H.264/1080p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По мотивам одноименной повести Ю.Вяземского. Валентин Успенский считает себя «психологом по призванию». Используя особую систему приёмов, которые он называет шутэнами, юноша постоянно производит психологические эксперименты над окружающими. Порой его развлечения бывают достаточно жестокими, с другой стороны неординарность юноши вызывает интерес со стороны симпатичной (   Читать дальше...   )Производство: СССР / Киностудия им. М. ГорькогоЖанр: драмаРежиссер: Андрей ЭшпайАктеры: Дмитрий Весенский, Марина Маевская, Игорь Костолевский, Генриетта Егорова, Елена Евсеенко, Анатолий Грачев, Александр Заболотский, Василий Мичков, Андрей Семёнов, Гелена Кирик, Вячеслав Баранов, Наталья КазначееваСубтитры: отсутствуютПродолжительность: 01:36:37
+Август 1941 года. Жительницы уральского городка провожают на фронт мужчин. Оставшись одни, женщины берутся за самые трудные дела, проявляя незаурядные организаторские способности и волю. Вместе с эвакуированным заводом в городок прибывают беженцы. Героиня Фильма Анна берет к себе в дом женщину с детьми — ее примеру следуют остальные...Производство: СССР / МосфильмЖанр: драма, военныйРежиссер: Сергей ГерасимовАктеры: Тамара Макарова, Виктор Добровольский, Пётр Алейников, София Халютина, Владимир Соловьёв, Марк Бернес, Николай Коновалов, Сергей Блинников, Георгий Ковров, Вера АлтайскаяПродолжительность: 01:24:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62587E62A64F6A255F601C0CA7BD0EB35AAFE80A
+magnet:?xt=urn:btih:2E249EF6645AC65C1C62694F3188547EAF6CBB82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +592,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858439   (1060489) от 10.03.2026
+###  Публикация: 1861709   (1062785) от 27.03.2026
 
-Terminal Services Manager 26.03 [Multi/Ru]
+В.Ю. Арьков | Виртуализация и контейнеризация. Учебное пособие (2022) [PDF]
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Terminal Services Manager подключается к одному или нескольким серверам RDS и отображает все сессии, пользователей и процессы в одном месте. Вы получаете данные о загрузке ЦП, памяти и 11 дополнительных метриках сервера на интерактивных диаграммах с возможностью масштабирования, панорамирования и измерения. Легенда отображает минимальные, максимальные, средние и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Виртуальные машины и контейнеры — это современные технологии изоляции, которые решают проблемы совместимости, зависимости и развёртывания приложений. В учебном пособии рассматриваются примеры программных гипервизоров VirtualBox и Hyper-V, механизм песочницы Windows, а также Windows Subsystem for Linux и контейнеры Docker. Знакомство с целым спектром инструментов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5E88AFA085584BDF867C2209FE509CD5E701BDC
+magnet:?xt=urn:btih:B34B169B49CA9E2292D7D0863E73EA0A6B808FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +618,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858441   (1060488) от 10.03.2026
+###  Публикация: 1861707   (1062784) от 27.03.2026
 
-Paint.NET 5.1.12 Final + Portable [Multi/Ru]
+Greg Tomsho | Guide to Operating Systems (MindTap Course List). 6th Edition (2021) [PDF] [EN]
 
->>Мультимедиа и Графика
->>Графические редакторы
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Paint.NET - Простой, но мощный и удобный редактор графики. Позиционируется как отличная замена стандартному MS Paint из поставки Windows. Поддерживаемые форматы: BMP, JPEG, PNG, TIF, GIF, TGA и собственный формат PDN. Основные возможности: работы со слоями, применение эффектов, работа со сканером и камерой, коррекция красных глаз, масштабирование от 1% до 3200%. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Master the fundamental concepts of computer operating systems with Tomsho's GUIDE TO OPERATING SYSTEMS, 6th Edition. An excellent resource for training across different operating systems, this practical text equips you with key theory and technical information as you work with today's most popular operating systems, including Windows, macOS and Linux platforms. You (   Читать дальше...   )Жанр: Computer Operating Systems Theory, Computer NetworkingЯзык: АнглийскийИздательство: Cengage Learning, Inc.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B60A49405F140FC414BE4A4E1443310BBF1DB348
+magnet:?xt=urn:btih:2F44EB868FBF26F9C77930E4C6BB894219A608DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,25 +644,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858188   (1060487) от 10.03.2026
+###  Публикация: 1861875   (1062783) от 27.03.2026
 
-НХЛ 2025-2026. Бостон Брюинз - Питтсбург Пингвинз (08.03.2026) WEB-DL [H.264/720p] [60 fps] [EN]
+ESET Endpoint Antivirus / ESET Endpoint Security 12.1.2076.1 RePack by KpoJIuK [Multi/Ru]
 
->>Спорт и активный отдых
->>Хоккей
+>>Безопасность
+>>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-8 марта 2026 воскресенье 23:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), вместимость: 18673. Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада).Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:58
+ESET Endpoint Security — это комплексное решение для обеспечения безопасности, являющееся результатом долгих усилий, направленных на достижение оптимального сочетания максимальной степени защиты с минимальным влиянием на производительность компьютера. Современные технологии, основанные на применении искусственного интеллекта, способны превентивно противодействовать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD8A987776E0F49D2201A9A731CA95AE81A6DE61
+magnet:?xt=urn:btih:B56FDAF0E2B11795D223344AF69F122A1E0F5896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861695   (1062782) от 27.03.2026
+
+Л.В. Городняя | Парадигма программирования. Учебное пособие для вузов. 2-е изд. (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс лекций посвящен проблеме анализа, сравнения и определения парадигм программирования и парадигмальной характеристике языков и систем программирования.
+Содержание представляет интерес для специалистов по программированию и информационным технологиям.Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA2F404A206A2D0747AE3DB3D04EED0180F1243
 ```
 
 https://mybot314.ru/tekegram_catalog/

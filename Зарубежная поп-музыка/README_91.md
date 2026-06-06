@@ -1,3 +1,119 @@
+###  Публикация: 1789741   (68281) от 05.04.2025
+
+VA - 40 Jahre Disco - Dance The Disco (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ottawan - D.I.S.C.O.
+02. La Bionda - One For You, One For Me
+03. Dee D.Jackson - Automatic lover
+04. Chilly - Come To L.A.(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Pop Rock, Synth-popПродолжительность: 02:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D093546E75BB069B2702393C2B30A0B6C2A422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789516   (68269) от 05.04.2025
+
+Etienne Daho - Pop Satori (серия "Другие восьмидесятые") (1986) CD, Album, Reissue, Remastered, Repress, 2006, Parlophone, Warner Music France [MP3|320 Kbps] <French Pop, Synthpop, Cha ...
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satori theme
+02. Epaule tattoo
+03. Paris Le Flore
+04. Pop egerie O. (En duo avec Elie Medeiros)(   Читать дальше...   )Жанр: French Pop, Synthpop, ChansonПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670FDD7F500A2C0FA7607F83D6BB1BCFB39AC094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790002   (68175) от 07.04.2025
+
+VA - Grammy 2017 Nominees (2017) [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Funk / Soul, Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyonce Feat. Jack White - Don't Hurt Yourself
+02. Twenty One Pilots - Stressed Out
+03. Sia Feat. Sean Paul - Cheap Thrills
+04. Drake - Hotline Bling(   Читать дальше...   )Жанр: Hip Hop, Rock, Funk / Soul, Pop, Folk, World, & CountryПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FB1739E7D9D48C78BEB987062A1E4581ADC205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790217   (68108) от 08.04.2025
+
+VA - Platin Vol. 7 (1999) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixpence None The Richer - Kiss Me
+02. Bryan Adams - Cloud #9
+03. Texas - In Our Lifetime
+04. Lou Bega - Mambo No. 5 (A Little Bit Of...)(   Читать дальше...   )Жанр: Hip Hop, Rock, PopПродолжительность: 02:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC6ACF62E93B4C282CF5845A220E088B404BE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790342   (68105) от 08.04.2025
 
 Kidz Bop Kids - kidz bop 50 (2025) [MP3|320 Kbps] <Pop>
@@ -628,122 +744,6 @@ VA - DJ Hits 41 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D23E2B107F7E9B1AAE9E18C1AB22A32342566B33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730806   (53000) от 17.06.2024
-
-VA - DJ Hits Vol. 58 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Decade - Is This A Dream (Radio Edit)
-02. Love Station - Love Come Rescue Me (Love Station 7inch Edit)
-03. Bombayblue - Wonderwall (Bombay Mix)
-04. DC Tools - Take My Heart (Radio Version)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69747A698E9A38B7E569C7468F8D14412FFC0EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731199   (52781) от 19.06.2024
-
-VA - DJ Hits Vol. 70 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Jack - Soldier, Soldier
-02. Whigfield - Sexy Eyes
-03. Sqeezer - Blue Jeans
-04. Blue System - Only With You(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CECAEB2D9AAB608EAC2B4D4DBE708AF30015CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732429   (52022) от 25.06.2024
-
-VA - DJ Hits Vol. 103 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizz Nizz feat. Geoge Arrendell - DABADABIABOO
-02. Beat Society - Feel The Beat
-03. Rama - Light My Fire
-04. Paolo Ferrari & Andrea Giuditta - The Sun In The Night E.P.(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEF2CFA88187CEAC3E572DA70282B24F27ED582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732903   (51793) от 27.06.2024
-
-VA - 80er - 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Nail - Love Don't Live Here Anymore
-02. Peter Schilling - Major Tom (Single Version)
-03. Tina Turner - What's Love Got to Do with It
-04. Heinz Rudolf Kunze - Dein ist mein ganzes Herz (2008 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B99F5B1C6A456F896EAEBA05CA024C113F9A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

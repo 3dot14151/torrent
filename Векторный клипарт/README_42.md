@@ -1,3 +1,114 @@
+###  Публикация: 1188658   (273429) от 03.12.2017
+
+Векторный клипарт - Ornamental Floral Corners 19 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Декоративные цветочные углы
+4 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDF9985F9F71CB1B2A8E5F3B561FABD1CDB6151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083097   (273172) от 16.12.2016
+
+Векторный клипарт - Календари на 2017 год [AI, EPS, CDR, PDF]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календари на 2017 год. В основном на латинице. Все в векторе, для каждого есть превью.
+Также есть русский, украинский и белорусский, с отмеченными праздниками.Формат: AI, EPS, CDR, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DDD198FBFA80EE12751BD93133010CA51FEF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266133   (271822) от 30.11.2018
+
+Векторный клипарт - Beautiful wedding invitation with flowers [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Красивое свадебное приглашение с цветами
+5 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EB632EB582BDE39670775E99230C8A8DB87DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266100   (271774) от 30.11.2018
+
+Векторный клипарт - Shutterstock - Christmas and New Year vector backgrounds with golden decor [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новогодние фоны с звездами
+7 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A1D228EDC8B002D1EDD17862FED69D35AE72F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266114   (271764) от 30.11.2018
 
 Векторный клипарт - Shutterstock - Happy New 2019 Year vector illustration [EPS]
@@ -606,118 +717,6 @@ Adobe Stock - 2020 year of rat to Chinese calendar [AI]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE0452F148C0E9365CBE037A1ACA2DC5480F2D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191059   (265930) от 11.12.2017
-
-Векторный клипарт - Vector Woman Accessories Collection #5 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Женские аксессуары
-50 Ai Jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC29374F83B4BEDBBB36ED9819379C3BF85A0AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339612   (265301) от 20.11.2019
-
-Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vol2 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Векторный набор Нового года 2020
-13 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E27C0F24AE2C9E71797A393D40C715C48452D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339613   (265256) от 20.11.2019
-
-Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vol4 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Векторный набор Нового года 2020
-16 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B554CEC0E236D2AC7FF55E3815E5FF4177ADB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339616   (265249) от 20.11.2019
-
-Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vol3 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Векторный набор Нового года 2020
-15 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9F4AC4E890284E57DF1176AB4EA7697F581685
 ```
 
 https://mybot314.ru/tekegram_catalog/

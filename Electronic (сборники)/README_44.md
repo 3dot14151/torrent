@@ -1,3 +1,90 @@
+###  Публикация: 1501129   (838127) от 08.10.2021
+
+VA - Beatport Drum And Bass: Electro Sound Pack #353 (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838127.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angry Fly - Maze
+002. Nappy Soldier & Screamarts - Seize The Capital
+003. Technimatic - Lightwave
+004. Secret Structures - We Step In Shadows(   Читать дальше...   )Жанр: Drum And Bass, Bassline, Electro BassПродолжительность: 12:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E494DE3E339C7DB0BF0FED2D14609480098B00AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501120   (838126) от 08.10.2021
+
+VA - Beatport Deep House: Electro Sound Pack #352 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838126.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carerra & Tavares - Tydlose
+002. Sanzy - Roadtrips To Bangsar
+003. Inessa - Bedouin Spirit
+004. Toblas - On The Beach(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563620F5EE81F4E1118D32A0334B2E6D6064E95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501143   (838125) от 08.10.2021
+
+VA - EDM Nation: October Dance Mixes (2021) [MP3|320 Kbps] <EDM, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838125.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sam Collins feat. Oniva - Something About You
+002. Br1an - We Just People
+003. Faul & Wad vs. Pnau - Changes
+004. DJ Jamx - Keep It That Way(   Читать дальше...   )Жанр: EDM, Club, DanceПродолжительность: 07:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5594CACB16B1B03C275F2F30791922499AD088EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501135   (838117) от 08.10.2021
 
 VA - Happy Nation: Clubbing Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -661,94 +748,6 @@ VA - Best Chillout Vol.27 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04A947412C1F457621D728A99926A1464CC7A318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114217   (833723) от 14.03.2017
-
-VA - Trance Collection Vol.58 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833723.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A.R.D.I & Linnea Schossow - Your Everything (Radio Edit) 4:03
-002. Above & Beyond, Zoe Johnston - No One on Earth (Gabriel Dresden Remix - Above & Beyond Respray) 6:00
-003. Above And Beyond Feat. Zoe Johnston - No One On Earth  (Gabriel & Dresden Remix) 7:45
-004. Aelyn - Game Over (Ruslan Radriges Remix) 5:13(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 10:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA31E325B59585AC1D07C6D627F383BBB7DD6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879630   (833625) от 20.03.2015
-
-VA - Trance Scenery Vol. 02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassline Delivery - Traffic Pattern (Original Mix) [6:45]
-02. Snow Flakes - Feel (Original Mix) [7:13]
-03. Linemoon - Urban (Original Mix) [6:17]
-04. Daniel Lesden - Life Simulation (Original Mix) [7:21]
-05. Six Senses & Terk Dawn - Aftershock (Airbase Remix) [7:26](   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive Trance, Uplifting TranceПродолжительность: 02:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59530AAD5DB598D98B6E5FC45AC63FE47D7FF8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114245   (833497) от 14.03.2017
-
-VA - Deep House Collection Vol.112 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833497.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abriviatura IV - Never Gonna Say Goodbye (Hugobeat Remix) 5:22
-002. Alex Daniell - Birds (The Black 80s Remix) 10:29
-003. Alex Mica - Dalinda (Suprafive 2k17 Remix) 4:31
-004. Alex Panchenco - Chaos (Original Mix) 4:53(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5019A1B843719466B16406298DDBC0DC2B0F6211
 ```
 
 https://mybot314.ru/tekegram_catalog/

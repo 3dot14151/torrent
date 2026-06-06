@@ -1,3 +1,90 @@
+###  Публикация: 1791358   (67858) от 13.04.2025
+
+VA - 12.04, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space - Magic Fly (2009 Remaster) (4:23)
+02. Angelo Taylor - Planet System 2 (3:21)
+03. Олег Гуртовой и группа Vega - Maximum Boost (4:14)
+04. LX imaginary band - Chase in Space (4:22)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, SynthwaveПродолжительность: 01:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336C80F02F397D15018AEFE8F145386359BE753A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791598   (67799) от 14.04.2025
+
+Erasure - Freedom (2000) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Freedom (2009 Remastered Version)
+02 – Better
+03 – Freedom (Acoustic Single Version)
+04 – Freedom (Motiv 8 Radio Mix)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A57ABE86DFBAC24234C47642E7BD4B75207DEE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791604   (67790) от 15.04.2025
+
+Trevor Something - The Shadow (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – In The Night
+02 – Emptiness
+03 – So Cold
+04 – It Meant Nothing(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468DCAE8E954C9F75527076D662B00A0C8A608B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794983   (67227) от 01.05.2025
 
 Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Darksynth, Doom Jazz>
@@ -658,93 +745,6 @@ Duran Duran - Notorious (1986) Deluxe Edition, Remaster, 2010, Parlophone Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFB50CE204D719D0F0BD490C2D36A60F3452F068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746330   (44701) от 03.09.2024
-
-Rick Astley - Free (1991) Remaster, 2024,  BMG [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Ballad, Vocal>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Name of Love (2024 Remaster) [00:04:30]
-02. Cry for Help (2024 Remaster) [00:04:53]
-03. Move Right Out (2024 Remaster) [00:03:54]
-04. Be with You (2024 Remaster) [00:04:14](   Читать дальше...   )Жанр: Synth-pop, Ballad, VocalПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041C79714A0C09087CA93B19759015626FA5EAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747334   (44609) от 04.09.2024
-
-VA - Spacedance, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight - Space Mode (4:37)
-02. Daylight - Light Years Away (5:15)
-03. Daylight - Escape the World (3:37)
-04. Daylight - So Many Years (4:58)(   Читать дальше...   )Жанр: Spacedance, SpacesynthПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DFB63493001337FAD98F1A4677AEC6A32B5139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748615   (43978) от 10.09.2024
-
-Galaxy Observer - Through the Solar System (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey Begins (1:05)
-02. The Solar System (5:09)
-03. Martian Spaceship (5:35)
-04. Strange Signal (5:06)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A655B8C0690ACF66B9BF25154AC2B940CCF5B10
 ```
 
 https://mybot314.ru/tekegram_catalog/

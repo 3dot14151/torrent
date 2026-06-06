@@ -1,5 +1,237 @@
 https://t.me/izofen
-###  Публикация: 1871630   (1070044) от 
+###  Публикация: 1874351   (1071868) от 02.06.2026
+
+VA - Disco Fresh In Rap 2 (1999) [MP3|320 Kbps] <Dance, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dschinghis Khan - Moscau (Dance Rap Remix Hi ’99) (4:23)
+02. Desirless - Voyage Voyage (Rap Hal 99) (4:53)
+03. Bad Boys Blue - I Totally Miss You '99 (3:52)
+04. Collage - Donna Musica '99 (3:20)(   Читать дальше...   )Жанр: Dance, RapПродолжительность: 02:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A75CB34C053A83CB9731BCACB97E8EF0B646C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874349   (1071866) от 02.06.2026
+
+VA - Disco Fresh in Rap (1999) [MP3|320 Kbps] <Dance, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue - The Turbo (Megamix) (4:18)
+02. Fancy - Flames Of Love (MC's Radio MIx) (3:46)
+03. Rapublic feat. Umberto Tozzi - Ti Amo (Rap Edit) (6:19)
+04. Margarita - Show Me Emotion (3:21)(   Читать дальше...   )Жанр: Dance, RapПродолжительность: 02:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E3627B0A869324E0DCA26FB823CDF969EEF968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874478   (1071858) от 03.06.2026
+
+VA - Лучшие хиты ,,НАЗАД в СССР 5,, В современной обработке (2026) [MP3|128 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Вне Времени - А он мне нравится [03:32]
+02.Master Factory - Позади Крутой Поворот [04:22]
+03.Timurmusic - Ах какая женщина [04:38]
+04.Tabitha Kermorvant - Белая ночь [04:40](   Читать дальше...   )Жанр: PopПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0C081416005E5E0A535F044800DD614C6D6815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874481   (1071856) от 03.06.2026
+
+VA - Лучшие хиты ,,НАЗАД в СССР 6,, В современной обработке (2026) [MP3|128 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.R.S.Productions - Ты Мне Не Снишься [03:41]
+02.VICTORIA - Чистый лист! [04:31]
+03.12Hit - Больно мне, больно [04:23]
+04.AndrewMusic - Догорает свеча [03:15](   Читать дальше...   )Жанр: PopПродолжительность: 01:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D795B7809BFA694082F656D0344CBC6C980EC9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874485   (1071853) от 03.06.2026
+
+VA - Лучшие хиты ,,НАЗАД в СССР 7,, В современной обработке (2026) [MP3|128 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DJ Dimon - Глаза цвета виски [03:20]
+02.НЕСНЕЖОК - ЭТОТ МИР ПРИДУМАН НЕ НАМИ [02:51]
+03.EchoNova Beats - Мальчик Хочет В Тамбов [03:22]
+04.KulMuzika - На Сердце Рана У меня [03:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C31333D103389B3D1B78633F0D2EFB042DD72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874213   (1071805) от 31.05.2026
+
+VA - Euro Hits 2019 [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071805.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:07]. 001-Beachbag & Tonka - Set It Off
+[3:01]. 002-Bakermat - Baiana
+[2:46]. 003-Inna - Tu Manera
+[4:14]. 004-Filatov & Karas - Au Au(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 07:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCF27F8010319F14A12E44A7AC5D309F12B8BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873929   (1071575) от 31.05.2026
+
+VA - Russian Hits 2019  [MP3|320 Kbps] <Pop, hip-hop, electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071575.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:11]. 001-Loboda - Последний герой
+[3:14]. 002-Doni & Batrai & Timran - Манила
+[3:09]. 003-Karenchik - Мадам
+[2:23]. 004-Jony - Аллея(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 06:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2151480CA0604BC1B489DE9B53F13FC14B30389B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873366   (1070973) от 28.05.2026
+
+Dave Sandler - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ballate Ancora
+ 02 - Still Warm
+ 03 - Neon Fade Forever
+ 04 - Página Ciento Doce(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E618F25C5B3A1694BEE5976555F3F2FA5F5E9EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871630   (1070044) от 17.05.2026
 
 Arabesque best (1977-1984) [MP3|320 Kbps] <pop,electronic>
 
@@ -28,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871590   (1069621) от 
+###  Публикация: 1871590   (1069621) от 17.05.2026
 
 Dave Sandler - Favorites Collection (2026) [MP3|320 Kbps] <Pop>
 
@@ -57,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871195   (1069396) от 
+###  Публикация: 1871195   (1069396) от 15.05.2026
 
 Aurum Project - We Still Have Dreams (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 
@@ -86,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871192   (1069395) от 
+###  Публикация: 1871192   (1069395) от 15.05.2026
 
 Aurum Project - Wasted Love (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 
@@ -115,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871187   (1069394) от 
+###  Публикация: 1871187   (1069394) от 15.05.2026
 
 Aurum Project - Out Of The Shadows (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 
@@ -144,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871184   (1069393) от 
+###  Публикация: 1871184   (1069393) от 15.05.2026
 
 Aurum Project - Let The Party Go On (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 
@@ -173,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871181   (1069392) от 
+###  Публикация: 1871181   (1069392) от 15.05.2026
 
 Aurum Project - Hunters Of The Night (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 
@@ -202,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871178   (1069389) от 
+###  Публикация: 1871178   (1069389) от 15.05.2026
 
 Aurum Project - Just Like An Angel (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
 
@@ -231,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870994   (1069297) от 
+###  Публикация: 1870994   (1069297) от 15.05.2026
 
 Josh Groban - Compilation (2001-2026) [MP3|320 Kbps] <Vocal, Crossover, Operatic pop>
 
@@ -260,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870818   (1069294) от 
+###  Публикация: 1870818   (1069294) от 15.05.2026
 
 Sandra best (1984-2012) [MP3|320 Kbps] <pop,electronic>
 
@@ -289,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870019   (1068770) от 
+###  Публикация: 1870019   (1068770) от 09.05.2026
 
 Frontmusic - Eurodance Hits & Tops (2026) [MP3|320 Kbps] <Pop, Instrumental>
 
@@ -434,6 +666,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867595   (1067259) от 26.04.2026
+
+VA - Russian Hits 2021 [MP3|320 Kbps] <Pop, hip-hop, electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067259.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:59]. 001-Султан Лагучев - Горький вкус
+[2:58]. 002-Тото - Пой танцуй
+[2:02]. 003-Elman - Босоногая
+[3:06]. 004-Karenchik - Ты больна(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 06:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F064E7D1AE180852FC47BCC5DBF869D89807B228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867316   (1066709) от 24.04.2026
 
 Rudolf Kinski Project - XV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
@@ -485,267 +746,6 @@ VA - Italo Disco Dance Party Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9332BA83DC590B440438598F80811A1FF4791C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866231   (1065797) от 19.04.2026
-
-VA - Listen on repeat (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Harlow - Lovin On Me (2:18)
-02. The Kid LAROI - STAY (with Justin Bieber) (2:21)
-03. OneRepublic - I Ain't Worried (2:28)
-04. Charli xcx - Apple (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0BAA33D2596EE4060A12995FD8AAC1FA26CAB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866036   (1065775) от 19.04.2026
-
-VA - Russian Hits 2022 [MP3|320 Kbps] <Pop, hip-hop, electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065775.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:53]. 001-Anna Asti - Повело
-[3:01]. 002-DJ Smash & Nivesta - Позвони
-[2:43]. 003-Dzhivan - Автор
-[4:05]. 004-Мари Краймбрери - Relax(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 06:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5DB133A137D080B260E528704E46BD4FC64CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865553   (1065707) от 16.04.2026
-
-VA - Лучшие хиты ,,НАЗАД в СССР 3,, В современной обработке (2026) (2026) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleks Audio- Букет [04:09]
-02. A Krotov- Девчонка девчоночка [04:44]
-03. AUTOTUNES- Старый добрый Rock & Roll [03:11]
-04. R.S.Productions- Дожди [04:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F990B1FCE3B0397D014983029C07F8B2080430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865300   (1065275) от 15.04.2026
-
-Rudolf Kinski Project - XII (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start Over (3:19)
-02. Queen of the Stratosphere (2:49)
-03. Highway to Heaven (3:29)
-04. Blood and Desire (3:24)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2ECB46C9C7741B83EC6E6F2BC48355143C3547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865299   (1065274) от 15.04.2026
-
-Rudolf Kinski Project - XI (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Ride the Sun (3:32)
-02. Lights of Verona (3:26)
-03. Never Stop the Sound (2:37)
-04. We Rule the Game (2:46)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:20:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C4ED7C36F64B66A1C2F2038D1406AFB27FC6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865298   (1065273) от 15.04.2026
-
-Rudolf Kinski Project - X (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future's Won (feat. Oksana Kinski) (3:16)
-02. One Rhythm (3:36)
-03. I'm Rising (3:06)
-04. Midnight Zone (3:27)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F95A1528F5C0455BDFA457B8FC941FC2BDE3504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865297   (1065272) от 15.04.2026
-
-Rudolf Kinski Project - VIII (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn Brightly (3:56)
-02. Power Now (4:02)
-03. Empty House (3:31)
-04. Duet (3:47)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692977F3549190CA0FCFC652A92564CF9FEABDC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865296   (1065271) от 15.04.2026
-
-Rudolf Kinski Project - VII (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repeat Command (Unexpected Ending Version) (3:59)
-02. Midnight Cat Groove (3:26)
-03. Don't Step Out (2:49)
-04. You Talk Too Much (3:34)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4075DFABA798AFCA0B5970DB3E2BCEA61FCB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865295   (1065270) от 15.04.2026
-
-Rudolf Kinski Project - VI (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move When I Decide (2:52)
-02. Hoja En Blanco (3:28)
-03. Beat Inside (2:52)
-04. Rhythm (3:20)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C890B1396747015DF2E3BFB0D345F235D0D0515
 ```
 
 https://mybot314.ru/tekegram_catalog/

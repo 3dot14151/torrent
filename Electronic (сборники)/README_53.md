@@ -1,3 +1,90 @@
+###  Публикация: 1273836   (798572) от 04.01.2019
+
+VA - Deep House Collection vol.194 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798572.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Sides Of Soul - Until You're Drunk (Original Mix)
+002. 84Bit - Vratice Se Rhodes  (Mirko & Meek Remix
+003. A. Rassevich - The Red Space  (Original Mix)
+004. Adam Rusi - EX (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 13:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87972462C7D25FE5C354B1E7A7F71CC37E0B790C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507486   (798481) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 5 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Malyari - Spaceman (5:52)
+02. StrayLight - Chasing The Light (4:28)
+03. IDEON - The World Might End Tomorrow (Gertrudda Edit) (8:10)
+04. TrialCore - Living In Cybercity (3:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8788A90C392D7ABCEAF3CB409D10BC345E4B1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507481   (798480) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 4 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pilotpriest - Archive Seven (5:45)
+02. STARLANDER - Station 5 (5:10)
+03. Alseph - SuperNova (3:24)
+04. GUNSHIP - When You Grow Up, Your Heart Dies (5:50)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67649E4ADC86960B41C10D11DD1918DDDF38FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507507   (798474) от 04.11.2021
 
 VA - A Synthwave Panorama Vol. 6 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -661,93 +748,6 @@ VA - Relax Traveling (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:326219AA98985DE02F3C7AF4D896195F8F003CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199836   (797482) от 18.01.2018
-
-VA - Vocal Trance Collection Vol.7 (2018) [MP3|320 Kbps] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Christina Novelli - Fireflies (Extended Mix)
-02. Andy Moor, Somna & Diana Leah - There Is Light (Extended Mix)
-03. A.M.R Ft. Dianne - Light That Never Died (Original Mix)
-04. Lucid Blue ft. Ruslan Radriges - Breaking Waves (extended mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34959D1E306F7BF309D20F88DFF04AD4D67028E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507152   (797450) от 08.11.2021
-
-VA - Beat, Bass, Melody vol.3 (mixed by Dj V) (2021) [MP3|320 Kbps] <Bass House, Electro House, Big Room, Future Rave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Lazy Bear - Yo DJ Pump This Party!
-02-Relanium & Deen West vs. Lion - Get Buzz (Extended Mix)
-03-Laidback Luke & Gregor Salto  - Step by Step (Dannic Extended Remix)
-04-Swanky Tunes - Big Love To The Bass (Extended Mix)(   Читать дальше...   )Жанр: Bass House, Electro House, Big Room, Future RaveПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53380A7836864A67AE5E3616D35F849E6B2500AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010918   (797225) от 26.04.2016
-
-VA - Club Dance Ambience vol.66 (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797225.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A. Venuti & Mr. Goaty -  Il Bruco (Original Mix)  6:31
-002. Agua Sin Gas by Antoine Clamaran -  Tijuana (Original Mix)  6:36
-003. AK9 -  Bring the House (Original mix)  4:21
-004. al l bo -  Aircraft (Azam Baratov Instrumental Remix)  3:47(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5EDE9206C05778804B30AC593A4796EBE21CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

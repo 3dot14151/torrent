@@ -1,3 +1,90 @@
+###  Публикация: 1614033   (206878) от 20.02.2023
+
+VA - Romantic Collection. Instrumental 2000 (2000) [OGG Vorbis|480 Kbps] <Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fausto Papetti - Emmanuelle
+02. Era - Flowers of the Sea
+03. Giorgio Moroder - Love Theme from 'Flashdance'
+04. Jan Morks - You Don't Know How Much You Can Suffer(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB9C88824BA72517511880989BB785D9948749E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652140   (206645) от 10.08.2023
+
+VA - Now That's What I Call Music 87 (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop, Post-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miley Cyrus - Flowers
+02. Post Malone - Chemical
+03. NF - Happy
+04. Ed Sheeran - Eyes Closed(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, Post-DiscoПродолжительность: 01:15:48 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D788F208E0BEF6C562D4A30340C1C6864E77BA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652141   (206636) от 10.08.2023
+
+VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spice Girls - Wannabe
+02. Backstreet Boys - Everybody (Backstreet's Back) (Radio Edit)
+03. NSync - I Want You Back (Radio Edit)
+04. Salt-N-Pepa - Shoop(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, DowntempoПродолжительность: 01:08:39 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842CD8CAD698D43F254DFB276BAD79A013728C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616063   (206192) от 28.02.2023
 
 VA - Romantic Collection. Volume 5 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
@@ -660,93 +747,6 @@ Digital Emotion - Digital Emotion & Outside In The Dark (2002) [OGG Vorbis|480 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B6D99E71CB03992328132077F220516299F4A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827575   (187865) от 22.10.2025
-
-VA - NRJ Music Awards 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Gaga - Abracadabra 04:29
-02. Gims - Ninao 02:52
-03. David Guetta, Hypaton, Bonnie Tyler - Together 02:36
-04. Charlotte Cardin - Feel Good 02:42(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08C666EACC44F0D4F84437EFE300F6B8E7D7A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590946   (187799) от 16.11.2022
-
-Bee Gees - Number Ones (2004) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massachusetts
-02. World
-03. Words
-04. I've Got A Message To You(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29287C17711B4486467EA2455B5C49B81E57A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591386   (186793) от 19.11.2022
-
-Michael Jackson - Thriller 40 (1982) 2022, Epic/Legacy [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin' (6:03)
-02. Baby Be Mine (4:20)
-03. The Girl Is Mine (3:42)
-04. Thriller (5:58)(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997957B30EEBC900F244824D0D3704C1009B3EE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

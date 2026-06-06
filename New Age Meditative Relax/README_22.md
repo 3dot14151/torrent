@@ -1,3 +1,38 @@
+###  Публикация: 578731   (352360) от 21.11.2012
+
+В. Рейтхофер - Кама-Сутра. Эзотерическая Музыка (2001) [MP3|320 кб/с]<Meditative, Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прикосновения и поцелуи
+02. Сражение языками и укусы
+03. Возрастание влечения и объятия
+04. Ласка и игра рук
+05. Любовный массаж
+06. Открытие пути и сближение
+07. Способы наслаждений
+08. Страстное соединение
+09. Ласки руками
+10. Подражание мужчине (сверху)(   Читать дальше...   )Жанр: Meditative, Relax, New AgeПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E62A6E259F15E71A64C8DFF7792C8AE3688B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179243   (351518) от 30.10.2017
 
 Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
@@ -714,35 +749,6 @@ Medwyn Goodall - Dreamweaver (2014) [MP3|320 кб/с]<New Age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF6257750CCDDB77EB411BB73F291188DEF16322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259967   (316589) от 05.11.2018
-
-Wuauquikuna - XI Magic Of The Andes (2018) [MP3|320 Kbps] <Native american, Ethnic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Sky (03:39)
-02. Lakota Lullaby (05:52)
-03. Before Dawn (05:24)
-04. Sanjuan Wayanay (04:28)(   Читать дальше...   )Жанр: Native american, Ethnic, WorldПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28B3B077F85FE63E4EE42BA55CB1D0E929EAA4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

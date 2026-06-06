@@ -1,3 +1,90 @@
+###  Публикация: 1353572   (991268) от 18.01.2020
+
+VA - Top50: Tracks Deep House Ver.16 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Delay - Giving Up On Love (Extended Mix) 5:20
+02. Parah Dice - Hot (Imanbek Extended Remix) 4:03
+03. Tones and I - Dance Monkey (Gumanev & Tim Cosmos Deep Remix) 4:04
+04. Sean Aaron - Hold Me (VetLove Remix) 5:12(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Club HouseПродолжительность: 04:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7409D10B1A3AF79910C5AB29792D6E408A417854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353580   (991267) от 18.01.2020
+
+VA - Лучшие Trance треки Ver.12 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - Take On Me (Robert Nickson Remix) 5:57
+02. KINETICA & Denise Rivera - Every Time Your Heart Runs Dry (Extended Mix) 6:58
+03. Darren Porter & Jak Aggas - Transonic (Extended Mix) 7:02
+04. Sean Tyas & Shelby Merry - Someday (Extended Mix) 7:25(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 05:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B87F088553B1DDD8438D34494D889DF00FF86E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353790   (990800) от 19.01.2020
+
+VA - Rise Up DnB Mixtape (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreadcore - Tripwire Feat. Theta
+02. Nicky Blackmarket - One Part Jungle
+03. Books - Roark
+04. Chaser - Bring Me Down(   Читать дальше...   )Жанр: Drum & Bass, Bassline, DubstepПродолжительность: 06:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFF950BF45278803383892F121E3CAE17510FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353802   (990738) от 19.01.2020
 
 VA - Record Super Chart 621 (2020) [MP3|320 Kbps] <Pop, House, Dance>
@@ -693,105 +780,6 @@ VA - Dj Compressor Energy Mix 13-01 (2013) [MP3|320 кб/с]<House, Trance, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91D3DB1DD4F72DF8A667F4E25D7BB88927003A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971271   (987078) от 02.01.2016
-
-VA - Авто. Музыка. Дорога - Жаркие ночи (Sound Clinic - Bass Edition) (2015) [MP3|320 кб/с] <Deep, House, Vocal House, G-House, Indie, Trap, Dubstep, Electro, Progressive, Tech, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Chainz - Used 2 Dap (Baauer & RL Grime Trap Intervention)
-02. 2Loop & EvgenFM, Natune - Run Away
-03. 2Night & 2907 - Do It Like This (Diamn Remix)
-04. AbysSoul, Darian Crouse - Falling In Love (Entity's UltraDeep Mix)(   Читать дальше...   )Жанр: Deep, House, Vocal House, G-House, Indie, Trap, Dubstep, Electro, Progressive, Tech, TranceПродолжительность: 24:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA6BC55F4705FACE62B5254B079C81E92124E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611011   (986257) от 02.02.2013
-
-VA - Drum and Bass Pro V.4 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hosta - When You Were Mine (VIP Mix)
-02. John B feat. Kirsty Hawkshaw - Connected (McMash Clan Remix)
-03. Netsky - I Refuse
-04. Tut Tut Child feat. Emily Underhill - Alive (Original Mix)
-05. Vospi ft. Leila - Kind Words (nClear remix)
-06. Menace & Borderline - Murky
-07. State of Mind - Azwell
-08. The Brainkiller - Follow Me (Chaos Teory Remix)
-09. Mr.Tools - What Is Your Profession (Original Mix)
-10. Brookes Brothers - The Blues(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99065549EAE4E007452C899FB3ED8B588A065993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612752   (986253) от 02.02.2013
-
-Twistex - The Best (2013) [MP3|256 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Powerdrive (Original Mix)
- 02. Signs Of Time (Original Mix)
- 03. Teaser Upcoming Songs 2012
- 04. This Is Stupid (Original Mix)
- 05. Time Warp (Original Mix)
- 06. Tricky Finger (Original Mix)
- 07. Twee
- 08.Twistex Feat. Gunslinger Jones - To The Beach (Savant Remix)
- 09.Twistex Feat. Skepsis - Over The River (Original Mix)
- 10.Twistex Feat. Skepsis - Ozeriah Beach (Original Mix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 02:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD67C323AB040B4E195C07A5BA50EA3A7F86815C
 ```
 
 https://mybot314.ru/tekegram_catalog/

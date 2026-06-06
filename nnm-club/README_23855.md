@@ -1,23 +1,25 @@
-###  Публикация: 1699063   (118105) от 11.02.2024
+###  Публикация: 1689980   (124173) от 05.01.2024
 
-Сергей Аксаков | Семейная хроника (2007) [MP3, Алексей Злаказов]
+Wild Bill Davison - The Commodore Master Takes (1943 - 1946) 1997, Commodore [APE|Lossless|image + .cue] <Dixieland, New Orleans Jazz, Swing>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сергей Тимофеевич Аксаков (1791–1859) – русский писатель,  литературный и театральный критик.
-«Тесно стало моему дедушке жить в Симбирской губернии, в родовой отчине своей, жалованной предкам его от царей московских... С некоторого времени стал он часто слышать об Уфимском наместничестве, о неизмеримом пространстве земель...». Так начинает свое повествование о роде (   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 08:46:15
+01. That's A-Plenty [4:19]
+02. Panama [4:26]
+03. Riverboat Shuffle [2:54]
+04. Muskrat Ramble [3:15](   Читать дальше...   )Жанр: Dixieland, New Orleans Jazz, SwingПродолжительность: 01:14:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A694868DB8227EE65F61BD6EFE74303FE9D499F
+magnet:?xt=urn:btih:230F31EEA653B6C7E057635B89412BB6317D51C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699046   (118104) от 11.02.2024
+###  Публикация: 1690044   (124172) от 05.01.2024
 
-Сибирская Благозвонница | Пророческие сотницы (2009) [PDF, FB2, EPUB, MOBI, TXT]
+VA - Levitated Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Пророческие сотницы» – это избранные места из ветхозаветных книг. Несмотря на свою древность, они как никогда актуальны. Пророчества помогают глубже понять веру, утвердиться в существовании Бога и почувствовать всю значимость событий Нового Завета для жизни православного христианина.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. Taurus G - Zen (Extended Mix) [7:11]
+02. Ren Tanahashi - Reflection (Extended Mix) [7:01]
+03. Allen Belg - Forbidden Voices (Extended Mix) [6:35]
+04. Soarsonic - Sunrise (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11F949FCBEC7BE5A67A2126D84E30C7012E266C8
+magnet:?xt=urn:btih:83D3548BCDC7C0DC4B1D869AE106FD29A82189E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,496 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698908   (118103) от 11.02.2024
+###  Публикация: 1690100   (124171) от 05.01.2024
 
-Wisborg - Wisborg (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Darkwave, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Im freien Fall [00:03:47]
-02. Kalt wie Eis [00:03:39]
-03. Korrosion [00:03:35]
-04. Unter Menschen [00:04:06](   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Hard RockПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68650D5A4EB0B136EBD2563722B0C30A576E1EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698982   (118102) от 11.02.2024
-
-Студия'78 - Где ты (2015) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Где тыЖанр: Alternative, IndieПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF1B960E675FE285B6DC70322B2686F9D4A3E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699111   (118101) от 11.02.2024
-
-Студия'78 - Прошу (2015) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118101.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ПрошуЖанр: Alternative, IndieПродолжительность: 00:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED3F14F408F0A51456F53B0CDF167DC83EA09C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699047   (118096) от 11.02.2024
-
-Благовест | Молитвослов православного воина (2015) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержит тексты избранных молитв, которые приводятся на принятом в богослужении Русской Православной Церкви церковнославянском языке в гражданском начертании.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99209B68AE8D4AF16A14823B5C709845F81F266C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698931   (118095) от 11.02.2024
-
-Чингиз Абдуллаев | Дронго (Книга 55). Ангел боли - Путешествие по Апеннинам (2024) [MP3, Святой]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие сыщики Европы, в том числе знаменитый Дронго, ищут «стаффордского мясника» – неуловимого маньяка. Убийца заранее сообщает, где и когда растерзает свою очередную жертву, и всякий раз, исполнив свой ритуал, виртуозно исчезает. Дронго уже вышел на след маньяка, он преследует его по узким улицам Флоренции, и кажется, что вот-вот настигнет преступника. Но «мясник», (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9EAC8CBB86687FE7ED8C42C679C8AB25B5ACEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698893   (118094) от 11.02.2024
-
-Heretic - Angelcunts And Devilcocks (2013) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Black Metal, Black 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hail the Beast [00:03:14]
-02. Black Perversion [00:04:04]
-03. Crowned in Filth [00:05:00]
-04. Angelcunts and Devilcocks [00:04:24](   Читать дальше...   )Жанр: Hard Rock, Black Metal, Black 'n' RollПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9E958FC134A381D762A39E5514F9918465BB86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698778   (118093) от 11.02.2024
-
-My Life Story - Loving You is Killing Me (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Britpop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Running Out Of Heartbeats
-02 – I’m a God
-03 – Tits & Attitude
-04 – Numb Numb Numb (Album Version)(   Читать дальше...   )Жанр: Britpop, Pop RockПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158AA031BCFBE7B05812014B2E4DE6B9D5945964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698909   (118092) от 11.02.2024
-
-Иксион - Последняя симфония (2024) [MP3|320 Kbps] <Heavy Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ночной горизонт [00:05:21]
-02 - Одинокий вой [00:06:30]
-03 - Возвращение джедая [00:06:07]
-04 - Тени замка [00:05:06](   Читать дальше...   )Жанр: Heavy Metal, Symphonic MetalПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF626E93A3D7E71EA67607C12425B3D5986962F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698996   (118091) от 11.02.2024
-
-Кватро - Ты моя Москва (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118091.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ты моя МоскваЖанр: PopПродолжительность: 00:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC60FB4660D3EC245DE314771B6BB3B64B92EA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699026   (118090) от 11.02.2024
-
-Людмила Соколова - Июля день (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118090.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Июля деньЖанр: PopПродолжительность: 00:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B355190C194BCD8579E2E94123E42EA352DECAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699041   (118089) от 11.02.2024
-
-Сибирская Благозвонница | Жития святых славных и всехвальных апостолов (2012) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118089.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны жития учеников Спасителя – двенадцати апостолов, апостолов от семидесяти, описания трудов и подвигов святых равноапостольных мужей и жен первых веков христианства, а также живших в последующие времена (включая просветителей славян святых Кирилла и Мефодия, крестителя Руси святого Владимира и равноапостольную княгиню Ольгу). В тексте воспроизведены (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4FF7461EE5A97E5D919362F0BC54460DB8F6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698993   (118088) от 11.02.2024
-
-Первая передача на НТВ. Автомобильная передача (11.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деликатные вопросы: почему сотрудник ДПС позволил себе бесцеремонные действия в отношении пассажирки такси?
- Как шар в лузу! Угодил в дорожный колодец — получи возмещение!
- Ритмический занос! Как инстинкт самосохранения губит водителей?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54593C26D44089D58983C940B62E5957C263694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698871   (118087) от 11.02.2024
-
-Solstice - Lamentations (1994) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lamentations IV 01:26
-02.Neither Time nor Tide 05:20
-03.Only the Strong 08:17
-04.Absolution in Extremis 06:03(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1490AE148FAC47FFE69D5AF48015E835A809D079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698977   (118086) от 11.02.2024
-
-Crying Steel - The Steel Is Back! (2007) [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill Them All  03:17
-02. Over My Sins  04:06
-03. Raptor  04:18
-04. Hold Her  03:37(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:958E198222456DF55B57CE974871F2B478BCF2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698968   (118085) от 11.02.2024
-
-Synesthesia - Worst Case Scenario (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seventh
-02. Drop Of Mercy
-03. The Collapse
-04. Dedication(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3021BBEB8B71D627F6C2F15CA6DC52AF05586099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698970   (118084) от 11.02.2024
-
-Battle Ram - Long Live the Ram (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stone  04:36
-02. Burning Lives  05:03
-03. Burn with Me  04:51
-04. Road of LightЖанр: Heavy MetalПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74210E09A331FDF77C550C9B5D8B24AEE4FF6A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698858   (118083) от 11.02.2024
-
-Sovereign - Altered Realities (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altered Reality (07:01)
-02. Futile Dreams (04:29)
-03. Nebular Waves (03:46)
-04. Counter Tech (05:39)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941F6C2A4C27AAC23372C1D35EC88712E4B5F006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699098   (118082) от 11.02.2024
-
-Бальные туфли / Pumps (1913) WEBRip
+Наша банда. Субботний урок / Our Gang. Saturday's Lesson (1929) WEBRip [H.264/720p-LQ]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая забавная история о том, как в своих тщеславных стремлениях мы, люди взрослые, ведем себя... не очень разумно. И начинается - чтобы выглядеть постройнее, мы не в спортзал идем, а кряхтя натягиваем слишком узкие джинсы. В холодную погоду одеваем курточку слишком легкую, не по погоде, но зато классную! И я в ней такой красавчик! И тому подобное. Все мы люди...Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, комедия, немое киноРежиссер: Лоуренс ТримблАктеры: Флоренс Тернер, Куртеней Фут, Джордж Стивенс, Эмили ХейуордПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:08:26
+Да, дети бывают непослушны и капризны за столом. А уж заставить их помогать по дому весьма и весьма  непросто. Да, это так. Но это же не повод запугивать их до смерти. Но нет же, нашелся взрослый негодяй, который начал терроризировать бедных деток.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джин Дарлинг, Аллен ’Фарина’ Хоскинс, Бобби «Уизер» 'Хатчинс, Мэри Энн Джексон, Гарри Спир, Орфа Альба, Pete the Pup, Аллан Каван, Хэм КинсиПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:21:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1817B8EE2BF1E7F6B461A789BD453D728DBFD2BC
+magnet:?xt=urn:btih:3D86392B6A87B194473E4D29238B45F521896BA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698938   (118081) от 11.02.2024
+###  Публикация: 1690022   (124170) от 05.01.2024
 
-Al Grey & Bjarne Nerem - Al Meets Bjarne (1989) Gemini [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+VA - Armin van Buuren - A State Of Trance 1154 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Things Ain't What They Used to Be [5:48]
-02. Sad Sam [6:13]
-03. Lester Leaps In [5:29]
-04. Blue and Sentimental [4:06](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:59:42
+01. Armin van Buuren ft. GOODBOYS - Forever (Stay Like This)Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21E3F1CD409494E193F558F6B71B1C836F04190E
+magnet:?xt=urn:btih:A167BB9887651A7F03AF0C5AD4F269EDC0B7D308
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699058   (118080) от 11.02.2024
+###  Публикация: 1689947   (124169) от 05.01.2024
 
-Сергей Аксаков | Аленький цветочек (2009) [MP3, Николай Литвинов]
+Твоё Рождество или моё? / Your Christmas or Mine? (2022) WEB-DLRip [H.264/1080p] [DVO] [AD]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Коллекция радиоспектаклей.
-Сергей Тимофеевич Аксаков (1791–1859) – русский писатель,  литературный и театральный критик.
-«Аленький цветочек» – это сказка о смелости, волшебстве и чистой, искренней любви, которая способна победить даже самые злые чары.
-Купец собрался торговать в дальние страны и перед отъездом спросил своих трёх дочерей, каких гостинцев (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 01:02:72
+Хейли и Джеймс молоды и влюблены. Они оба принимают одно и то же безумное решение поменяться поездами и удивить друг друга. Проходя мимо друг друга на станции, они совершенно не подозревают, что только что поменялись местами Рождества.Производство: Великобритания / Banijay Entertainment, Marzano Films, Shiny Button ProductionsЖанр: мелодрама, комедияРежиссер: Джим О’ХенлонАктеры: Эйса Баттерфилд, Кора Кирк, Дэниэл Мейс, Анджела Гриффин, Натали Гумеде, Рэм Джон Холдер, Джун Уотсон, Aston Wray, Harris Kiiza, Марк Хип и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:19Реклама: Присутствуют видео вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C06AD85DE935B5CB40FCFC43EA9D46BE6B657697
+magnet:?xt=urn:btih:37CD5C215AE442C6D625CFDF33587845B241F57C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698905   (118079) от 11.02.2024
+###  Публикация: 1690045   (124168) от 05.01.2024
 
-Minuit 10 - Sans Bruit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Rock>
+VA - Silent Shore Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Goutte à Doute [00:03:44]
-02. (17h00) [00:00:40]
-03. Sépia [00:04:59]
-04. (18h00) [00:01:29](   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 00:45:06
+01. EDU BRAVO - Run Without Fear (Extended Mix) [6:07]
+02. Alexey Mushkin - Wherever You Are (Extended Mix) [7:43]
+03. Virtuan - Magenta (Extended Mix) [7:05]
+04. ReMech & Ryota Arai - Hong Kong (Extended Mix) [6:05](   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EA4ABC0E76DCCAC78D5D2C640A5C7E06F2C7E3C
+magnet:?xt=urn:btih:D7901A99D5751B5C7D36B7B8DD9ED870F3B4E650
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698939   (118077) от 11.02.2024
+###  Публикация: 1690161   (124167) от 05.01.2024
 
-Pat Martino & Joyous Lake - Stone Blue (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+Маэстро / Maestro (2023) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Uptown Down [4:25]
-02. Stone Blue [6:47]
-03. With All the People [9:15]
-04. 13 to Go [7:27](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 01:00:02
+Биографический фильм о жизни и творчестве знаменитого американского композитора, дирижера и пианиста Леонарда Бернстайна. В 25 лет его приняли в Нью-Йоркский филармонический оркестр, после чего он написал музыку к таким выдающимся произведениям как «Вестсайдская история», «В порту» и многим другим. На протяжении всей жизни Бернстайна поддерживала любовь и забота (   Читать дальше...   )Производство: США / Sikelia Productions, Amblin Entertainment, NetflixЖанр: биография, музыка, драма, мелодрамаРежиссер: Брэдли КуперАктеры: Брэдли Купер, Кэри Маллиган, Мэтт Бомер, Винченцо Амато, Грег Хилдрет, Майкл Юри, Брайан Клагман, Ник Блеймаер, Мэллори Портной, Александра СантиниПеревод: Дублированный (Le Doyen / Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 02:11:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F118D4732536DCA72FDE37BD1D7FE30667440C3
+magnet:?xt=urn:btih:36817D160A4833582E76DFA2840749FF541FDDDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +189,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699114   (118076) от 11.02.2024
+###  Публикация: 1690031   (124166) от 05.01.2024
 
-Митрополит Николай Ярушевич | «Покаяния двери отверзи мне» (2009) [PDF, FB2, MOBI]
+VA - Redux Selection Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книгу митрополита Крутицкого и Коломенского Николая (в миру Бориса Дорофеевича Ярушевича, 31 декабря 1891 – 13 декабря 1961) – епископа Русской Церкви, вошли его проповеди 50—60-х годов о покаянии.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, MOBIКачество: Изначально электронное (ebook)
+01. Thomas Lloyd - Fly Me Back (Extended Mix) [6:10]
+02. Alima x Nold - Down To The Ocean (Extended Mix) [5:13]
+03. Ben Starmore - Nebula (Extended Mix) [7:17]
+04. Victor Special - Wet Asphalt (Extended Mix) [8:00](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:19:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D57CA209A437591C16269E120923A46A6A134D06
+magnet:?xt=urn:btih:59B4F7FC4435DC4C64C9EC78A38D6AC04A3FDEE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,28 +218,502 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698936   (118075) от 11.02.2024
+###  Публикация: 1689948   (124165) от 05.01.2024
 
-John Coltrane Quartet With Red Garland - Complete Recordings (1957, 1958) 3CD, 2008, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Твоё Рождество или моё? / Your Christmas or Mine? (2022) WEB-DLRip [DVO] [AD]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Little Melonae [14:07]
-02. By the Numbers [12:02]
-03. Bahia [6:17]
-04. Goldsboro Express [4:46](   Читать дальше...   )Жанр: Hard BopПродолжительность: 03:12:46
+Хейли и Джеймс молоды и влюблены. Они оба принимают одно и то же безумное решение поменяться поездами и удивить друг друга. Проходя мимо друг друга на станции, они совершенно не подозревают, что только что поменялись местами Рождества.Производство: Великобритания / Banijay Entertainment, Marzano Films, Shiny Button ProductionsЖанр: мелодрама, комедияРежиссер: Джим О’ХенлонАктеры: Эйса Баттерфилд, Кора Кирк, Дэниэл Мейс, Анджела Гриффин, Натали Гумеде, Рэм Джон Холдер, Джун Уотсон, Aston Wray, Harris Kiiza, Марк Хип и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:19Реклама: Присутствуют видео вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6424A4C56828AF99EF63D052DAFE5A35BDD6EDF3
+magnet:?xt=urn:btih:632E49FF4C420004BF47359B80FC420972A49E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690091   (124164) от 05.01.2024
+
+Markus Schulz - Global DJ Broadcast New Year's Rehab (2024-01-04) [MP3|320 Kbps] <Melodic House, Indie Dance, Nu Disco>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BadWolf & Soff - After Todo
+02. Purple Disco Machine - Bad Company (Instrumental Mix)
+03. Röyksopp featuring Susanne Sundfør - Stay Awhile
+04. Kendal - Come to Me(   Читать дальше...   )Жанр: Melodic House, Indie Dance, Nu DiscoПродолжительность: 01:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550E7C0309C4EF9E9C526C3B03F9809FB55F5DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690009   (124163) от 05.01.2024
+
+Кристин Хармель | Забвение пахнет корицей (2021) [MP3, Марианна Васильева]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцатишестилетняя Хоуп, когда-то мечтавшая о профессии юриста, вынуждена спасать от разорения доставшуюся по наследству семейную кондитерскую в небольшом городке недалеко от Бостона. В её жизни наступил трудный период: умерла мама, ушёл муж, после развода осложнились отношения с дочерью-подростком и, в довершение ко всему, любимая бабушка — её последняя опора — (   Читать дальше...   )Жанр: современная зарубежная литератураПеревод: Елена МигуноваИздательство: СиндбадПродолжительность: 12:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1938B0D43E8B609C47363C2141F9C17780FEDC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690062   (124162) от 05.01.2024
+
+Артур Руденко - Только хорошее (2021) [FLAC|Lossless|tracks + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Давай вспомним только хорошее
+02. Ты моя богиня
+03. Эта тайна
+04. Красивая(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA68BE2E681540303560631E00E5038E70B8568B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690131   (124161) от 05.01.2024
+
+Газета | Тайны СССР №1 (152) (январь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6BE33AA8E9045737CAEC6B14D383B715DF1F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689864   (124160) от 05.01.2024
+
+Krabathor - Cool Mortification (1993) [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faces Under the Ice
+02. In the Blazing River
+03. Evil Corners of Mind
+04. The Loop(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC1B9210E8E805DA217070A683E98B82C772AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689861   (124159) от 05.01.2024
+
+Krabathor - Only Our Death Is Welcome (1992) [APE|Lossless|image + .cue] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Crown
+02. Psychodelic
+03. Eternal
+04. Convict to Contempt(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BCD8870D39FF9FA81E08060C1DCF56F8034977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690029   (124158) от 05.01.2024
+
+Necrophthysis - Diminution of Flesh (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Become Pale (03:17)
+02 - Diminution of Flesh (05:16)
+03 - Procurement (05:19)
+04 - Denervation (04:24)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA80C0B10D664DEB855803F913A8045149BE6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689918   (124157) от 05.01.2024
+
+Whorehouse - Execution Of Humanity (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violent Storm 04:43
+02. E.O.H. 04:38
+03. Friendly Fire 04:23
+04. True Living 04:26(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAFA4EDA7854244BF98F164ACD143D841AD2356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689995   (124156) от 05.01.2024
+
+Enforced - War Remains (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Crossover>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_124156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aggressive Menace
+02. The Quickening
+03. Hanged By My Hand
+04. Avarice(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F098C2F1D6891EFADA3648CAFFF9B2B0D7C087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689932   (124155) от 05.01.2024
+
+Sun Of The Endless Night - Symbols Of Hate And Deceitful Faith (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Hell Exhales 04:33
+02. Duality of Man 03:18
+03. Like Wolves in Winter 06:07
+04. Where Is Your God? 03:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3683FBFA7498C373ED5AE547704F8612183EA1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689940   (124154) от 05.01.2024
+
+Morning Dead - Desde el otro Lado (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (02:44)
+02. Inmerso en el Abismo (02:57)
+03. Amanecer de Muerte (03:17)
+04. Desolación (04:12)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15544FEAD6544F15A396265617CB4222F524B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689871   (124153) от 05.01.2024
+
+Krabathor - Lies (1995) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Truth About Lies
+02. Unnecessarity
+03. Short Report on the Ritual Carnage
+04. Tears, Hope and Hate(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0EC8335866011E86A911C5C9A7DCB901720E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689917   (124152) от 05.01.2024
+
+Militia - Fiend of Misery (2010) Compilation [FLAC|Lossless|image + .cue] <Thrash, Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Awakening
+02.Fiend of Misery
+03.Blind Breeding the Blind
+04.Suspended Animation(   Читать дальше...   )Жанр: Thrash, Heavy, Power MetalПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69004F4D11C8DA9C57857D8192947ADC9F1361B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690359   (124151) от 06.01.2024
+
+Ломая бесконечность / Breaking Infinity (2023) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лиам — научный исследователь, который застрял во времени. По мере того, как его прыжки во времени становятся все более экстремальными, его направляет в будущее таинственный старик, где он становится свидетелем конца света, который он, возможно, вызвал.Производство: Великобритания / Elli Films, Mind Engagement Productions, Unfolding EntertainmentЖанр: Фантастика, триллерРежиссер: Марианна ДинАктеры: Джонни Филлипс, Нил Бишоп, Мартин Бишоп, Зед Джозеф, Симона Макинтайр, Зои Каннингэм, Марсия Лекки, Reece Culver, Tope Laguda, Alexis CaneПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:30Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4537DD2DFAF6E76524F91C55F179E96550AF6EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690143   (124150) от 06.01.2024
+
+Побег из курятника 2 / Chicken Run: Dawn of the Nugget (2023) WEB-DL [H.265/2160p] [HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершив фееричный побег с фермы, где свирепствовала жестокая хозяйка, главные герои нашли убежище на отдалённом острове, где нет людей. Здесь они живут счастливой и беззаботной жизнью. Но неожиданно на горизонте появляется новая опасность и птицам снова придется встать на свою защиту…Производство: Великобритания, США, Франция / Aardman Animations, Netflix Animation, PatheЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Сэм ФеллАктеры: Тандиве Ньютон, Закари Ливай, Белла Рэмзи, Имелда Стонтон, Линн Фергюсон, Дэвид Брэдли, Джейн Хоррокс, Рамеш Ранганатхан, Дэниэл Мейс, Джози Седжвик-ДэвисПеревод: Дублированный (Le Doyen / Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEEA2779D895588071237463D6350D58A4EB7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690288   (124149) от 06.01.2024
+
+Крылатая история / Butterfly Tale (2023) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патрик — совершенно необычный мотылек. Он умен и очень изобретателен. А еще он мечтает отправиться в далекое, самое захватывающее приключение в своей жизни. Но летать он так и не научился, так как с самого детства у него всего одно крыло. Что ж, придется прибегнуть к хитростям, смелым изобретениям, а также помощи верных и веселых друзей. Он ни перед чем не остановится (   Читать дальше...   )Производство: Канада, Германия / CarpeDiem Film & TV, UlyssesЖанр: мультфильм, семейныйРежиссер: Софи РойАктеры: Мена Массуд, Татьяна Маслани, Тристан Д. Лалла, Ричард Дюмон, Вэл Мервис, Ник Юлиус Шук, Андрей Батт, Стефани Бретон, Нагмех Алаи, Томас Балу МартинПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCEC3D71B7B634A779580FE4F333F7E53D18DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215100   (124148) от 06.01.2024
+
+Нора Робертс | Собрание сочинений [185 книг] (1995-2023) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нора Робертс (Nora Roberts) США, 10.10.1950
+Родилась в Вашингтоне в семье бизнесмена. Работала секретарем, с 1979 года - профессиональный писатель. Начинала как автор дамских романов, в последнее время тяготеет к "мейнстриму".
+Также издавалась под псевдонимом Джей Ди Робб (J.D. Robb).Жанр: Детектив, Триллер, Остросюжетный любовный романФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0C9B6133908E8AA364F09684A2505A62EC9E61
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 533625   (532520) от 10.08.2012
+
+[Wallpapers] Обои на тему Море
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличные Обои на тему Море! Всегда мечтал жить возле моря....
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFCE0E3A0809560D94EFC89115463D90B0B5D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533227   (532519) от 10.08.2012
+
+Artworks by Laurent Logicfun [Графика]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Laurent Logicfun
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F36C42E59661DC39065AEDD094E4F26EAC6194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533443   (532307) от 10.08.2012
+
+[Art] Rodney Matthews
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика Art.
+Автор обложек для Thin Lizzy, Tygers of Pan Tang (Crazy Nights), Diamond Head (Am I Evil) (Borrowed Time), Praying Mantis (Time Tells No Lies, Predator In Disguise), Nazareth (No Mean City), Scorpions (Lonesome Crow), and Eloy (Metromania and the picture disc for Time to Turn).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622C6C9538CFD7D0025D2539F40CE72B1B525F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926906   (531481) от 11.08.2015
+
+Картинки - Музыка [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки на музыкальную темуФормат: JPGРазрешение файлов: 1920x1080 - 6144x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6620D97EF0BED14852FB047F0B7A58C59AA15D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926908   (531423) от 11.08.2015
 
 Картинки - Настроения [JPG]
@@ -566,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F828CBFE15A088D72D99CCA498566A1F1C84215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240451   (528619) от 11.08.2018
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (165) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695E506DCA4837ED79A473148AEE417CFFC62508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927105   (528568) от 13.08.2015
-
-Обои - Обои HD Premium 2560x1440 (6 часть) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои HD Premium 2560x1440Формат: JPGРазрешение файлов: 2560х1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D7DE2E96720DE33EBFDCDEE0BBD41AD3A674FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927111   (528510) от 13.08.2015
-
-Обои - Коллекция обоев FullHD #32 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев FullHDФормат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834061A1FDE389962C8BA97CAFADC50FB58F29DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927168   (528506) от 13.08.2015
-
-Обои - Абрикосы, персики и нектарины - принимайте, люди, витамины! 50 обоев 4К [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочные солнечные персики, абрикосы и нектарины для здоровья вашего компьютера ). Примерно половину обоев составляют "фрукты на белом фоне", можно использовать для творчества.Формат: JPGРазрешение файлов: 3840х2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF5E0AF6CCA33BA4320A88EF64D1F9060EB155B
 ```
 
 https://mybot314.ru/tekegram_catalog/

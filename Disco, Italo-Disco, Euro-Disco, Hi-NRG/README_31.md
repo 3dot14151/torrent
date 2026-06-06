@@ -1,3 +1,124 @@
+###  Публикация: 562697   (404588) от 21.10.2012
+
+VA - Ti Amo Vol 1 & Vol 2 - The Ultimate Italian Treasures (2012) [MP3|320 кб/с]<Italian pop, Canzone, Oldies>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umberto Tozzi - Non va che volo [04:37]
+02. Fausto Leali - Amore dolce, amore amaro, amore mio [05:01]
+03. Loretta Goggi - Maledetta primavera [04:13]
+04. Gianni Bella - Non si puo morire dentro [04:04]
+05. Renato E I Profeti - Io perche', Io per chi [03:36]
+06. Raf - Inevitabile follia [02:15]
+07. Pino Daniele - Quando [03:38]
+08. Al Bano & Romina Power - Liberta' [04:23]
+09. Pierangelo Bertoli - Eppure Soffia [02:50]
+10. Johnny Dorelli - Mamy Blue [03:50](   Читать дальше...   )Жанр: Italian pop, Canzone, OldiesПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A33D014B61370C9EE66777A30743E64D6140C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169270   (403812) от 26.09.2017
+
+Bagarre - Circus (1982) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemonsweet (6:32)
+02. Little Ladies (4:31)
+03. Circus Is Gone (4:31)
+04. Dirty Love (4:53)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980ABBF2D411F4B7FCA3B08B2B1FA35D5EE20DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146897   (403511) от 22.10.2009
+
+Stars On 45 - Дискография (1981-2005) [MP3|320]<Disco>
+
+>>След.
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_403511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DiscoПродолжительность: 01:12:13
+01. Stars On (Radio Edit)
+02. Stars On Stevie Wonder (12 Inch Version)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169530   (402411) от 28.09.2017
+
+Eyes On Fire - The Best Of Eyes On Fire 1978 - 1980 (2012) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессионально сделанная и ни где не отмеченная CD компиляция всего творчества группы.01. Times Are Changing (3:48)
+02. Black Caravan (3:52)
+03. Mama Don't Know (3:00)
+04. Jumping Jack (4:13)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC42C66E233B06B57245204ACFD08F6C83807DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564458   (401911) от 24.10.2012
 
 VA - '80 Dance Classics (1994) [MP3|320 кб/с]<Pop>
@@ -629,122 +750,6 @@ J.T. Connection Featuring Dennis Tufano - Bernadette (1979) LP [MP3|320 Kbps] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D95C89D6516AA06725DB38B85F9E2DD478E66F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327354   (376730) от 24.09.2019
-
-Chime - Disco (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ulice (Street Level) (4:57)
-02. Zase V Poradku (Right Again) (5:19)
-03. Mam Cas (I Got Time) (3:59)
-04. Lasko, Vrat Se (Love Come Back) (4:18)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F5B60D81361D832D8A52A942F36BB7B962B7F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327335   (376721) от 24.09.2019
-
-Emy Care - Dreams Of Fantasy (2019) [MP3|320 Kbps] <Italo Disco, Euro Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do You Love Me[7:52]
- 02 - Read My Mind (Extended Disco Mix)[6:11]
- 03 - Don't Fly Away[5:58]
- 04 - Once in a lifetime (Vocal Romantic Mix)[6:33](   Читать дальше...   )Жанр: Italo Disco, Euro Disco, SynthpopПродолжительность: Beach Club Records
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58212C735BECCB1D0222E5F1655D389095B2B76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069052   (376247) от 03.11.2016
-
-VA - Disco Bunch Vol 12 (2016) [MP3|320 Kbps] <Funky, Nu Disco, Soulful, Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Easy Is Dead - No Money No Buy 07:05
-2. Miguel Campbell - All Cried Out 05:25
-3. Funky Fat - Ride In The City (Miguel Campbell Remix) 04:59
-4. Costa Martinez - Timejumper (Remastered Remix) 04:50(   Читать дальше...   )Жанр: Funky, Nu Disco, Soulful, Italo DiscoПродолжительность: 02:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2942CF23589917F24E879C6C5F777FA05E81D743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415536   (376165) от 12.10.2020
-
-Tommy The Bitch - Give It To Me (1979) Reissue CD, 2015, Solid Records [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It To Me  (7:32)
-02. Love Spell  (4:28)
-03. Cool Girl  (5:40)
-04. Dancing Man  (4:34)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00C865468F5D3A99E269FAE08D4A12BC6396055
 ```
 
 https://mybot314.ru/tekegram_catalog/

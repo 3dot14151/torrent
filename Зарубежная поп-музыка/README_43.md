@@ -1,3 +1,32 @@
+###  Публикация: 1308630   (553777) от 15.06.2019
+
+VA - Schlager-die Hits des Sommers (2019) [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553777.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Beatrice Egli - Terra Australia
+02. Kerstin Ott - Regenbogenfarben (Bassflow Remix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0D998AF44C492ACBE27D0649738A5D5E3C6913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308628   (553775) от 15.06.2019
 
 VA - No Schlager No Party (Von Discofox bis Mallorca - Die besten Hits 2019 im Mallorcastyle bis zum Karneval, Fasching und Oktoberfest 2020) (2019) [MP3|320 Kbps] <Pop>
@@ -722,35 +751,6 @@ Sophie Ellis Bextor - Familia (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F422019B00F0B2FC00A57B318142E74CB7C923F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238596   (545493) от 31.07.2018
-
-VA - Synth Planet (2010) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.C.D - Cwejmansong (4:34)
-02. Keen K - When The Moon Falls Down (5:15)
-03. Aldo Bergamachine - Ice Sun (4:25)
-04. Anosphere - Epsilon Hunter Part2 Remix (5:28)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-pop, DiscoПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60469AB39681003894234EF04152949C1E48D791
 ```
 
 https://mybot314.ru/tekegram_catalog/

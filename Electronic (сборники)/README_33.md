@@ -1,3 +1,90 @@
+###  Публикация: 1369563   (901641) от 24.03.2020
+
+VA - Beatport Electro House: Sound Pack #36 (2020) [MP3|257-320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901641.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Orsen - Before The Storm
+002. Fabri Lopez - Divine Air
+003. Dorian Craft - Avila (Original Mix)
+004. Yeophis - Another Beach(   Читать дальше...   )Жанр: HouseПродолжительность: 13:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCB13CC9F5788CA79A47CF9E32FE5FC8A1329C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100099   (901306) от 03.02.2017
+
+VA - 100 HITS Around Gravitation (2017) [MP3|252-320 Kbps] <Funky, Progressive, Hands Up, Club, Bigroom, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Robin & Jonas Saalbach - Fridge Slap (Original Mix) 07:34
+002. Jdakk & French - Just A Feeling (Belfast Radio Edit) 03:51
+003. Igness - Avor 2015 (Extended Arena Mix) 05:00
+004. Hi-Lo - Renegade Mastah (Original Mix) 04:04(   Читать дальше...   )Жанр: Funky, Progressive, Hands Up, Club, Bigroom, Future HouseПродолжительность: 09:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40F1ABDABE541CAEAA861E7713A546705F3BF16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100182   (901304) от 03.02.2017
+
+VA - Space And Time (2017) vol.3 [MP3|320 Kbps] <Disco, Electonic, Space-rock>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Nightflight To Venus (4:55)
+02. Andromeda - Star Ship (3:42)
+03. Automat - Advance (4:08)
+04. Azul Y Negro - Mar De La Tranquilidad (4:07)(   Читать дальше...   )Жанр: Disco, Electonic, Space-rockПродолжительность: 05:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80414B507B1174CFDE6D9F72604518BAA39C8895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099900   (901229) от 03.02.2017
 
 VA - Hits of My Soul Vol. 23 (2016) [MP3|320 кб/с]<Dubstep, Progressive House, Trap>
@@ -667,99 +754,6 @@ VA - Aperitif (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE5F0FB5061CC3D5C2A6C92B12C69EDA6B4A83C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890937   (895287) от 05.03.2016
-
-Dj Ikonnikov - Synth Dance Non Stop Mix Vol. 01 - 13 (2009-2015) [MP3|320 кб/с]<Electronic, SpaceSynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernesto - Unforgettable Decade
-02. Antilles - Longing For The Spring
-03. Bogyo - High Volume In Spaсe
-04. Galaxion - Adventure(   Читать дальше...   )Жанр: Electronic, SpaceSynthПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9FA93013EAEDAF04F1910ED68505F6961909D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370592   (895210) от 28.03.2020
-
-VA - Hundred Percent Drum And Bass (2020) [MP3|320 Kbps] <D&B, Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895210.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Inperspective - Faux Context
-002. Mistwist - Yall Been Warned
-003. Madface Feat. Mve - Help Me (Edlan Remix)
-004. Vivid Mc - Beware(   Читать дальше...   )Жанр: D&B, Bass, DubstepПродолжительность: 08:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6BD27FCE5053F2BEF109324A7A372D12AC6161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638364   (895202) от 03.04.2013
-
-VA - Destination Jet Set (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz L'amour - Let Me Be Your Fantasy (La Nuit Voyage Mix) [05:36]
-02. Cooltrane - Capture the Sun [04:55]
-03. Nouvelle Roux - Le grand crome (Monte Carlo Love 2 Air) [05:14]
-04. Merge of Lounge - Universal Island (Relax and Chill Summer Beach Mix) [04:38]
-05. Soleil Fisher - Where the Lights Go Down [05:02]
-06. Monolounge Roudette - La fleur de la musique (Loca People Mix) [05:24]
-07. Musique Electronique - My St. Tropez Summer Love (Forever Young Chillout Mix) [06:00]
-08. Night Loungers - A Little Lazy Morning in Paris (French Kiss Instrumental) [05:26]
-09. Sweet Velvet - Mon reve mystique (French Cafe Chillout Mix) [05:48]
-10. Deja 7 - One More Night (Summer Night Chill Mix) [04:24](   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 03:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0538AB5A32426C02A042D59F3167B14EE62A66
 ```
 
 https://mybot314.ru/tekegram_catalog/

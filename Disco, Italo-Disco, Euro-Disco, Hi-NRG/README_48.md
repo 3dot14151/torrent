@@ -1,3 +1,148 @@
+###  Публикация: 1730816   (52990) от 17.06.2024
+
+Venise - The Body Trip (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelings Of Love (7:57)
+02. Lower And Faster (7:32)
+03. Your Love (6:27)
+04. Back To You (7:20)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C3A6DAE9FE6B2217BB5800257B6636A5082CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730982   (52878) от 18.06.2024
+
+VA - Pool Paradise (2024) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darren Giles - My Imagination (Remastered Version) (05:30)
+ 02. CN Williams - You & I (05:45)
+ 03. Jo Paciello - Outstanding Love (06:30)
+ 04. Timmy Vegas & The Boogie Down Dee Jays - More Time (Original Mix) (05:10)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383C9DCD6449F6114C49C938656D840067964BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736998   (49913) от 15.07.2024
+
+Chip Chip - So Close To Heaven (2010) Remastered [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Close To Heaven
+02. Let Me Give You All My Love
+03. Give Me Back My Heart
+04. Give It To Me (No More Tears)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRGПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7CD3F492630E94B36195A92410B88BFAA0144B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738090   (49283) от 21.07.2024
+
+VA - Super Hits 80's Volume 1 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Happy Song
+02. Modern Talking - Atlantis Is Calling (S.O.S. for Love)
+03. Kelly Family - Who’ll Come With Me (David’s Song)
+04. Spagna - Call Me(   Читать дальше...   )Жанр: Electronic, Pop, ItalodanceПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062A61F7DD9A4AC9A2839775BDE42E94D00E0A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741882   (47337) от 09.08.2024
+
+VA - Italo Disco Hits Vol. 1-2 Collectors Edition (2010) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Africa-Nism - In Zaire Business (House In Zaire) (5:38)
+02. Regina - Do You Wanne (4:47)
+03. Body Power - Dancing In The Tears (5:19)
+04. Nico Band - Let Is Show (6:52)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A35676FD8C1968FF39F9182BA7FA0CE23FAF6FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743065   (46814) от 14.08.2024
 
 Loni Cash - The Album (2013) [MP3|320 Kbps] <Euro-Disco, Synthpop>
@@ -600,151 +745,6 @@ VA - Grand Prix 70's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95413F948A22CA4C4DD5F0227E4FDE337B29E3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772991   (31046) от 13.01.2025
-
-The Flirts - Castle Gold Collection, Vol. 18 (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Hi NRG, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion
-02. Helpless
-03. Calling All Boys
-04. DangerЖанр: Electronic, Pop, Hi NRG, Synth-pop, DiscoПродолжительность: 00:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9389380DAE919B31A2C11F73B343A74DAFA3CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773294   (30830) от 15.01.2025
-
-VA - The Best Of Made Up Records Vol. 1 (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sheila Stewart - It's You
-02. Jackie Touche - Watch Out
-03. Gina - Let Me Free
-04. Rygar - Star Tracks(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4123C2CC3A2E8F1794DCB222182C83441B531B8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773637   (30742) от 16.01.2025
-
-VA - The Best Of Made Up Records Vol. 2 (1999) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Debby Jason - Day By Day
-02. Gina - Baby Baby Baby
-03. Sheila Steward - No 1 Emotion
-04. Rygar - Hexameron(   Читать дальше...   )Жанр: Electronic, Eurodance, Euro-DiscoПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEFCA2ACBDD1795208D539834067F9B0E2B9C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776347   (29131) от 31.01.2025
-
-Daro-X - After The Rain (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Night (Album Version) (4:31)
-02. I Give You My Heart (Radio Version) (3:47)
-03. After The Rain (Album Version) (4:23)
-04. Magic Violins (Album Version) (4:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81587C29CDCB3BA8D5EF9E63DF8C120C6DF85383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781312   (26776) от 22.02.2025
-
-VA - Modern 80's - The Best Of Discopop (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You Can Win If You Want
-02. Fancy - Slice Me Nice
-03. C.C. Catch - I Can Lose My Heart Tonight
-04. Kylie Minogue - The Loco-Motion(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 02:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E29F3BB1E96C3BD8D3268BA11B07D375BFD1C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

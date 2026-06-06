@@ -1,3 +1,90 @@
+###  Публикация: 1498589   (849527) от 01.10.2021
+
+VA - Cores vs. Mandala vs. Code vs. Nuclear Hyde vs. Nostrum (2021) mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance, Acid>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Commander Tom - Round My Brain (100 BPM Symphony) [1997]
+02. Commander Tom - Destination - Chicago (Original Mix) [2002]
+03. Commander Tom - The Cow (Original Mix) [1999]
+04. Mirage - Syrus (Original Mix) [1998](   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 05:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FFD90E77253702DF3EEB038E3E0FDB3E12677F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876575   (849257) от 11.03.2015
+
+VA - 50 Оттенков Шторма (2015) [MP3|128 кб/с]<Chillout, Chillstep, Downtempo, Acoustic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifehouse - Storm
+02. LuQus feat. Magdalena Wolk - Cinders
+03. Movement - Us
+04. Holobody - Fantasy (Mariah Carey Cover)(   Читать дальше...   )Жанр: Chillout, Chillstep, Downtempo, AcousticПродолжительность: 01:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6802934FD796E41B284D44FCE1EDC484D4F90CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002150   (849107) от 31.03.2016
+
+VA - Trance Сollection vol.40 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 ABHISHEK Y2V-The Myst (Extended Mix) 05:21
+002 Abide-Perpetuity (Original Mix) 08:02
+003 Air Project-Memoirs (Original Mix) 06:51
+004 Alex Byrka & Jay Flora feat. Tanya Lindsgrey-Magic (Andrew Lang Remix) 06:23(   Читать дальше...   )Жанр: TranceПродолжительность: 10:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADC623E8AEBA28CF5B610833C87E53FD9203259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002237   (849001) от 31.03.2016
 
 VA - The Sound Of Soul Heaven Miami (2016) [MP3|320 кб/с] <House, Club House, Deep House>
@@ -655,93 +742,6 @@ VA - Ham!d Production February 2017 (2017) [MP3|192-320 Kbps] <Pop, Deep, Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66F75DBD5B906FF7CBD323F1D90E92B2833AECEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003797   (841909) от 04.04.2016
-
-VA - Happy Feeling Vol.1 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dark Devil - Radio Signal (Original Mix) (feat. DJ Solar Riskov) 03:34
-02 Dave Silence - Infinitely Happy (Original Mix) 04:53
-03 Quantum Duxe - Sunwalker (Original Mix) 05:17
-04 Alex Drow - Inception (Original Mix) 04:45(   Читать дальше...   )Жанр: House, Progressive, Trance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2953D7B9EEA4CD1C095801B14EE81237DEE9B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003689   (841908) от 04.04.2016
-
-VA - DJ Pitkin Special Mix 22 (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SNBRN feat. Nate Dogg - Gangsta Walk (Extended Mix) 4:20
-02. De La Soul - All Good (Wolfgang Lohr & Wonkers Remix) 3:49
-03. The Knocks & Matthew Koma - I Wish (East & Young Remix) 2:47
-04. Manufactured Superstars feat. Danni Rouge - Great Escape (Richard Grey Remix) 2:50(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA954B9B35D30AC7FB256A8954DD5F6E6C774FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003927   (841902) от 04.04.2016
-
-VA - Party Anthems №1. The World Biggest Dance & Club Hits (2016) [MP3|320кб/с] <House, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841902.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Acero Mc & Hotfunkboys With Dj Tilo Feat. Sarah Riveira - Ke Lo Ke (Radio Edit) 03:25
-002. Akami And Funkybeat - Skirts (Radio Edit) 02:50
-003. Alessandro Ambrosio - Don't Srach Too Much (Original Mix) 04:04
-004. Alex Kenji - When I Feel (Original Mix) 04:52(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 09:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD8D2CC52FE57F7B1AE02DB15BC86CFB7DA2F8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

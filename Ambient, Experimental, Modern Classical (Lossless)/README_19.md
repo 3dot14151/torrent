@@ -1,3 +1,115 @@
+###  Публикация: 964998   (227768) от 13.12.2015
+
+Arno Hoddinghaus (A/R/N/O/, ARNO, Höddinghaus) - Discography (1994-2014) [FLAC|Lossless|tracks+.cue, tracks, image+.cue]<Ambient, New Age>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abbey 1 (39:05)
+ 02. Abbey 2 (21:23)Тип издания: CD, WebЖанр: Ambient, New Age |Продолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B9DDC4BEA273ACF93357B48B2B6195780A366D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424633   (227669) от 17.11.2020
+
+VA - Healing Sounds: A Compilation for Hurricane Recovery (2019) Past Inside the Present [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227669.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ilm – Gaia (06:34)
+2. Saltbreaker – Leaf, Pt. 2 (04:05)
+3. Olan Mill – Nature Has Her Way (04:28)
+4. Gallery Six – The Summer Banquet (05:52)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 02:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF899A6EE1D6B497EBA7AC1B2A1C20D5255E5F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424641   (227632) от 17.11.2020
+
+VA - Healing Sounds II: A Compilation For Those In Need (2020) Past Inside the Present [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone, Post-Rock, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227632.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Polar Moon – Alone Again (01:48)
+2. From Overseas – The Silent Life (04:30)
+3. Carlos Ferreira – Still Breathing (04:02)
+4. Ausklang – Abschied (05:55)(   Читать дальше...   )Жанр: Ambient, Drone, Post-Rock, ExperimentalПродолжительность: 04:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93212A9AA4D6CA0083CDB9C9115DD375C30BC82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424702   (227615) от 17.11.2020
+
+36 & Isaac Helsen - Anon 1 (2020) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227615.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All Possible States [36] (09:48)
+2. Before The WindЖанр: AmbientПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EB39E9880F1988FBE094C5A2DBDD8625D7E2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424693   (227470) от 17.11.2020
 
 Slow Dancing Society - The Torchlight Parade Vol. I & II (2020) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Drone, Post-Rock>
@@ -622,122 +734,6 @@ Moby - Ambient 23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF1AE33A438148FF5D1D6F5BE18DDB0E77DF2404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650152   (207503) от 31.07.2023
-
-Beheat Gorum de Mentheurd - The Voyage Of Life (2016) [FLAC|Lossless|image + .cue] <Electronic, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter I: Genesis
-02. Chapter II: Youth
-03. Chapter III: The Ages of Life
-04. Chapter IV: Old Age (Part I)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B867270BA0D2F84327EBBD69BF2B4F0DAB93BFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653946   (205918) от 18.08.2023
-
-Sam Goku - The Things We See When We Look Closer (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Broken Beat, Progressive Electronic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yellow River Drone (03:18)
-02. Cycles (03:35)
-03. Lotus Drive (05:27)
-04. Libellenflug (05:35)(   Читать дальше...   )Жанр: Ambient, Broken Beat, Progressive ElectronicПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53830F21F462891DC405151E7BE582B78C518077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585203   (204994) от 21.10.2022
-
-Jean-Michel Jarre - OXYMORE (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AGORA (Binaurel Headphone Mix) [00:01:34]
-02. OXYMORE (Binaurel Headphone Mix) [00:04:46]
-03. NEON LIPS (Binaurel Headphone Mix) [00:04:28]
-04. SONIC LAND (Binaurel Headphone Mix) [00:06:01](   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 2 CD, 01:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CA6B2A38ED86B07ED3C677C828A63CA3C14B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656590   (203128) от 31.08.2023
-
-Devil Doll - Sacrilegium (1992) Reissue, Remastered, 2019, Hurdy Gurdy Records [FLAC|Lossless|image + .cue] <Experimental, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrilegium (43:32)
-01.2 (silence) (03:32)
-01.3 Coda (01:40)
-01.4 (silence) (10:12)Жанр: Experimental, AmbientПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68117C3A13DF9951E86868427178601AC06B9E07
 ```
 
 https://mybot314.ru/tekegram_catalog/

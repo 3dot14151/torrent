@@ -1,3 +1,32 @@
+###  Публикация: 1368030   (914245) от 17.03.2020
+
+Czarface - The Odd Czar Against Us (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bizarro (2:49)
+02. Call Me (2:09)
+03. The Gift That Keeps On... (2:36)
+04. Me's Company (2:15)(   Читать дальше...   )Производство: Silver Age – SIL 011-CDЖанр: Hip-HopПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7235EB08FB8ABC3CBA3EF9AEA7CDCD58C418FFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099098   (907061) от 31.01.2017
 
 Insane Clown Posse - The Marvelous Missing Link (Lost) (2015) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Midwest Rap, Horrorcore>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91E8B2ACDC6345B7DE40933C5BAEFAA62FD684FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294691   (625793) от 09.04.2019
-
-A$AP Rocky (ASAP Rocky) - TESTING (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distorted Records (2:20)
-02. A$AP Forever REMIX (feat. Moby, T.I. & Kid Cudi) (5:16)
-03. Tony Tone (3:28)
-04. Fukk Sleep (feat. FKA twigs) (3:13)(   Читать дальше...   )Производство: A$AP Worldwide/Polo Grounds Music/RCA RecordsЖанр: Hip-HopПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5AC0EDC0055B5EE1C2A98AAA1CDC8756FFA8B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

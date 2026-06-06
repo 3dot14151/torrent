@@ -1,3 +1,148 @@
+###  Публикация: 1292984   (640884) от 01.04.2019
+
+VA - Рок впрок 12 (2019) [MP3|320 Kbps] <Рок, Поп-Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. alexvish - Живой
+02. ТимерТау - Игрушки
+03. Zемля Королевы Моd - Ворон
+04. Shortы - Танцевальная(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FDEF0A418AC8DAD05720D03362AF6BB47F001D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542140   (640873) от 05.04.2022
+
+VA - Fest Rebel Rock Radio , Vol.1 (2022) [MP3|320 Kbps] <Alternative, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непрекращающиеся экспериментыв подходе к написанию песен, яркие эмоции во время их исполнения — это то, чем исполнители рок жанра заслужили внимание музыкальной общественности и преданную любовь своих слушателей.001. Slaves - Wasting My Youth
+002. Stoner Avenue - Last Poor Man's Pray
+003. La Femme - Tu T'en Lasses
+004. Fame On Fire - Headspace(   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 08:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69ACFD86E6580A1E788643ECBC5A2BD962D9A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033210   (639767) от 10.07.2016
+
+Glenn Hughes - The Voice of Rock (2014) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn
+02. A Winter Shade Of Pale
+03. Make My Day
+04. Let It Down Easy(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109E70BDDEE658E0A4F3112C7E19C83A33308D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228237   (638893) от 30.05.2018
+
+VA - Super Хиты Зарубежного Рока (2018) [MP3|256-320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panic! At The Disco - High Hopes
+02. Imagine Dragons - Believer
+03. Imagine Dragons - Thunder (Final)
+04. Imagine Dragons - Radioactive (из фильма «Гостья»)(   Читать дальше...   )Жанр: RockПродолжительность: 06:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFA132541355ECF6716CFA0619C1EE9CB6E41FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906810   (637635) от 12.06.2015
+
+Алексей Фролов - гр. Condor [MP3|320 kbps]<Romantic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Так как прежде
+002 Ночь тишина
+003 Вина
+004 До утра(   Читать дальше...   )Жанр: Romantic RockПродолжительность: 07:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B629C0B8A3E15F44E426E27AABF6747F982F250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032445   (635803) от 12.07.2016
 
 Genesis - The Best Songs (2016) [MP3|320 Kbps] <Pop, Rock>
@@ -600,151 +745,6 @@ VA - Тяжёлые кавер-версии известных песен (2019)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98265D1F0DF1D1D4BACFF0ECA734DE3B06DC55C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230253   (617283) от 11.06.2018
-
-VA - Evangelion: Metall Collection (2018) [MP3|320 Kbps] <Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617283.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fates Warning - Still Remains
-002. Shadowlynx - Attila
-003. Integral - Blank Claustrophobia
-004. Malet Grace - Commotion of Frailty(   Читать дальше...   )Жанр: MetallПродолжительность: 10:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED6667A45C26F00B0D99E59A9C45B72716F6B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910985   (615654) от 23.06.2015
-
-VA - Мир русского рока 100 песен (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кино — Группа крови
-02. ДДТ — Что такое осень
-03. Аквариум — Город золотой
-04. Машина времени — Поворот(   Читать дальше...   )Жанр: RockПродолжительность: 06:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0B7089853C7AEDA06D6C9B9FCA20A4F5445980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230547   (613947) от 13.06.2018
-
-VA - Tragic Heroes: Hard Rock Legendary Sounds (2018) [MP3|320 Kbps] <Rock, Hard Rock, Alternative, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613947.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marilyn Manson - The Beautiful People
-002. Monster Magnet - Space Lord
-003. Bai Bang - Crazy Night
-004. Atomic Rooster - I Can't Take No More(   Читать дальше...   )Жанр: Rock, Hard Rock, Alternative, MetalПродолжительность: 10:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13832FB16407C67DE1C080A651AB9FDD7D54201D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230756   (612178) от 14.06.2018
-
-VA - Sound Of 70's Rock (2018) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZZ Top - Tush 2:14
-02. Warren Zevon - Werewolves Of London 3:28
-03. Alice Cooper - Schools Out 3:30
-04. Faces - Miss Judys Farm 3:40(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747D9AEE875CE50751259C53640B5CA05250B60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912001   (610562) от 26.06.2015
-
-VA - Neue Deutsche Harte (1999-2015) [MP3|128-320 кб/с]<Industrial-Metal, Folk-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyler Milchmann - Grossmutter
-02. Heldmaschine - Radioaktiv
-03. Stahlmann - SŸüchtig
-04. Ruoska - Pure minua(   Читать дальше...   )Жанр: Industrial-Metal, Folk-MetalПродолжительность: 03:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312DA65FC057E04064FEC13F0A896CEC45E4B466
 ```
 
 https://mybot314.ru/tekegram_catalog/

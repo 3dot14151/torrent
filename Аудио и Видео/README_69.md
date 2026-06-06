@@ -1,3 +1,58 @@
+###  Публикация: 1510265   (791638) от 16.11.2021
+
+VA - Sundays from Harlem, Vol. 2 (2021) [AAC|~321 Kbps] <Deep House, Soulful House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan De Laniere - Reset Me (Original mix) (5:46)
+02. AfroniQue Soulz, Sarai Jazz - Nostalgia (Original Mix) (7:56)
+03. From P60, Jaidene Veda - Softly (Original Mix) (7:16)
+04. Giant Step Grooves, Lizzy - Don't Leave (The Disclosure Project Remx) (7:01)(   Читать дальше...   )Жанр: Deep House, Soulful HouseПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE195391183A4B4C832355D6CFE2801816F5AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274238   (791615) от 09.01.2019
+
+Ничего хорошего в отеле «Эль рояль» / Bad Times at the El Royale (2018) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791615.jpg" />
+</div>
+
+
+###  Подробнее
+
+1969 год. Группа разношерстных личностей останавливается на ночь в когда-то популярном отеле «Эль Рояль», расположенном на границе штатов Невада и Калифорния. В здании отеля собрались неприветливый священник, певица Дарлин, энергичный продавец пылесосов и подозрительная девушка с Юга. Вместе с ними ночь в отеле проводит молодой консьерж. Каждому из них есть что скрывать, (   Читать дальше...   )Производство: СШАЖанр: Триллер, драма, криминал, детективРежиссер: Дрю ГоддардАктеры: Джефф Бриджес, Синтиа Эриво, Дакота Джонсон, Джон Хэмм, Крис Хемсворт, Кэйли Спэни, Льюис Пуллман, Ник Офферман, Ксавье Долан, Шей УигэмПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7021E252367647DFD4A654DC5233E1195066729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274540   (791611) от 09.01.2019
 
 Всё или ничего  (2018) WEB-DL [1080p] ATV
@@ -646,64 +701,6 @@ VA - Eclectic Ethno 1 by Nikko Sunset (2020) [AAC|~310 Kbps] <Chill Out, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3998042C2E7BB5F0C0DAB1CD9244670CA29BCDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510708   (790396) от 18.11.2021
-
-VA - Eclectic Ethno 2 by Nikko Sunset (2020) [AAC|~326 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nasser Shibani - Never (4:49)
-02. Clive Vaz - Desert Moon (8:06)
-03. Christos Papadopoulos, Dim Angelo, Alex Mihalakis - Sunset In Aegean (3:51)
-04. Dj Sergee - Garden of Heaven (6:13)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C94668CE03C7B7FE6F4B19EABD279A2FB6B1D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510709   (790393) от 18.11.2021
-
-VA - Legends of Modern Jazz (2021) [AAC|~300 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Coltrane - Syeeda's Song Flute (7:06)
-02. Charles Mingus - My Jelly Roll Soul (6:48)
-03. Art Blakey & Jazz Messengers, Thelonious Monk - Purple Shades (7:40)
-04. The Modern Jazz Quartet - It Don't Mean a Thing (If It Ain't Got That Swing)Жанр: JazzПродолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10249E91AF56ADE02FC294D506D0B4540C833B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 588839   (148897) от 15.12.2012
+
+Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живое выступление Erik Truffaz 4tet
+на джазовом фестивале в  Montreaux 11.07.2011 Miles Davis Hall !1. The Secret Of The Dead Sea
+2. Miss Kaba
+3. In Between
+4. Mechanic Cosmetic
+5. Fujin
+6. BC One feat. Sly Johnson
+7. Dirge Feat. Sophie Hunger
+8. Let Me Go! Feat. Sophie Hunger
+9. Lost In Bogota Feat. Sly JohnsonЖанр: Contemporary JazzРежиссер: Blue NoteАктеры: Erik Truffaz QuartetПеревод: ОтсутствуетПродолжительность: 01:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956A286ECD8C76EA22A0D91ECB816453EF329A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589446   (148001) от 15.12.2012
+
+Porcupine Tree - Octane Twisted (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это специальное издание1. Occam's Razor
+2. The Blind House
+3. Great Expectations
+4. Kneel And Disconnect
+5. Drawing The Line
+6. The Incident
+7. Your Unpleasant Family
+8. The Yellow Windows Of The Evening Train
+9. Time Flies
+10. Degree Zero Of Liberty(   Читать дальше...   )Жанр: Прогрессивный РокРежиссер: KscopeПеревод: ОтсутствуетПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588917   (147663) от 15.12.2012
 
 Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
@@ -692,61 +762,6 @@ https://mybot314.ru/tekegram_catalog/
 7. Господи, Тебе пою
 8. Поиграй в любовь
 9. Небесный ЧеловекЖанр: Православная авторская песняРежиссер: Чирсков АлексейПеревод: ОригинальныйПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470204   (83095) от 19.03.2012
-
-Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria
-02. Silent Night
-03. When A Child Is Born
-04. Sweeter The Bells(   Читать дальше...   )Жанр: New AgeРежиссер: Frank Peterson (for Nemo Studios)Актеры: Richard Naxton, Johnny Clucas, Dan Hoadley, Christopher Tickner, Gerry O'Beirne, Rob Fardell, Jan-Eric Kohrs, Lawrence White, Gunther Laudahn, Richard CollierПеревод: ОтсутствуетПродолжительность: 01:22:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466493   (81697) от 12.03.2012
-
-Grace Jones - Live At Avo Session Basel, Switzerland 13th November (2009) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grace Jones предстала в мире шоу бизнеса в качестве талантливой актрисы, модели и эстрадной поп-дивы, демонстрирующей свою бесконечную чреду фантазий, неуемную жажду деятельности и сюрреалистические идеи. Каждое выступление Грейс Джонс – загадка для зрителей. То она, обнажившись, измазывает всю себя речной тиной и явно обличает полную амуницию набора настоящей американской (   Читать дальше...   )Жанр: TV, Video, Popular musicПеревод: Не требуетсяФормат: DVD5Продолжительность: 1 час 15 мин 43 сек (01:15:43)
 
 ## Скачать торент
 ```bash

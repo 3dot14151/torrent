@@ -169,6 +169,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612813   (1039911) от 17.02.2023
+
+LASCALA - El Dorado (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039911.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. АН-2 (2022)
+2. Sex, Rock'n'Roll & Alcohol (2022)
+3. Жалость неуместна (2022)
+4. Пятница (Edit)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0148F0EC91955CF751B1C2376622CA4E8C0F5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439412   (1039908) от 13.01.2021
 
 Аффинаж - Сделай море (2017) [FLAC|Lossless|image + .cue] <Rock>
@@ -714,35 +743,6 @@ Rabies - Бестиарий (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBC4359797FDC9145866791BCE2D7F9A1DAA3A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616429   (1036451) от 02.03.2023
-
-Staple R - Remember The Young Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronicore, Hardcore punk, Trancecore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corpse Party [00:03:18]
-02. Bumblebee Cemetery [00:04:58]
-03. Pew Pew [00:02:50]
-04. Ryomou Versus Ryofu [00:03:21](   Читать дальше...   )Жанр: Electronicore, Hardcore punk, Trancecore, Metalcore, NintendocoreПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C67717CACA4B7259089B174BC28D4386266A3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

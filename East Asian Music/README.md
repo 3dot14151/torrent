@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874596   (1071934) от 03.06.2026
+
+Sigh - Ghastly Funeral Theatre (1997) 2XCD, Japanese Edition, Reissue, Remastered, 2026, Peaceville Ltd. [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071934.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Intro: Soushiki ..
+02. Shingontachikawa ....
+03. Doman Seman ....·....(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B5517E2CC77986463CF4AF22C2964A9E85AB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869528   (1068418) от 06.05.2026
 
 Dasu - LMAO (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
@@ -719,38 +748,6 @@ VA - Citrine. My Dream Beautiful Yellow Crystal (2005) [MP3|320 кб/с]<New age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F888D12ECCB9ECB07ED007E2DFB3330DB16DD9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597263   (1000490) от 02.01.2013
-
-VA - The Heart of Crystal. Prajna Paramita Sutra (2006) [MP3|320 кб/с]<New age, Relax, Meditative>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000490.jpg" />
-</div>
-
-
-###  Подробнее
-
-(14:22) 1. Prajna Paramita Heart Sutra
-(14:53) 2. Guanyinshan inspired song
-(05:40) 3. Sound of Buddha
-(06:02) 4. Flower Chan
-(07:23) 5. Om Mani Padme Hum
-(10:40) 6. Yoji water purification
-(10:55) 7. Auspicious actionsЖанр: New age, Relax, MeditativeПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE1E561192D04E02F4B3AEA7995012135F0C519
 ```
 
 https://mybot314.ru/tekegram_catalog/

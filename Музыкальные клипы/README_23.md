@@ -1,3 +1,58 @@
+###  Публикация: 549831   (460330) от 21.09.2012
+
+INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED29E6022452B5E9E2A709F02ECA6EBB069C43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404757   (460097) от 10.09.2020
+
+Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/2160p] <Metalcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 CALLEJON - Gottficker
+02 CALLEJON - Metropolis
+
+Клипы к новому альбому Metropolis, выход которого намечен на 28.08.2020.Жанр: MetalcoreПродолжительность: 00:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4065A578C6BCB0AC61E7CD30E30FBB7650D06D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402874   (460086) от 10.09.2020
 
 Кис Кис - Мелочь (OST Водоворот) (2020) WEBRip [H.264/1080p] <Альтернативный Рок>
@@ -643,58 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B490202F7D72A090FD608189B73250C686D5B66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390809   (446661) от 22.09.2011
-
-Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D6EF8360E953AF7C9E6C62AF3BC0820146EB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552688   (446413) от 27.09.2012
-
-Barillo - Dust (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3284B7ACEFBFD2B12301C91AE02C3208F78FE8E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

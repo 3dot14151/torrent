@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1872106   (1070192) от 
+###  Публикация: 1874507   (1071991) от 02.06.2026
+
+VA - Chillhop Essentials Summer (2026) [FLAC|Lossless|Web-DL|tracks] <Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. anbuu, Monsieur Teddy – High Tide (2:56)
+02. Nosmoh – Palm (3:37)
+03. Shin-Ski – Leaving You (2:59)
+04. EverythingIsAWave – HmHm (3:18)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3835696738C5171634AECEE8CA84BDCC24EB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872695   (1070840) от 24.05.2026
+
+Alicia Keys - Girl On Fire (2012) [FLAC|Lossless|image + .cue] <Hip Hop, Funk/Soul, Contemporary R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Novo Adagio (Intro) (1:20)
+02. Brand New Me (3:54)
+03. When It's All Over (4:35)
+04. Listen to Your Heart (3:47)(   Читать дальше...   )Жанр: Hip Hop, Funk/Soul, Contemporary R&BПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06290A8EBE58683515280BA31DD0BEC855F14F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872106   (1070192) от 20.05.2026
 
 Shaggy - Lottery (2026) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Reggae, Ragga HipHop>
 
@@ -666,86 +724,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602264   (1046021) от 06.01.2023
+###  Публикация: 1601880   (1046316) от 02.01.2023
 
-SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - В одного [00:03:14]
-02 - Весна ,среди зимы [00:02:33]
-03 - Клавиши черные, клавиши белые [00:02:44]
-04 - Лучшая ты [00:02:26](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F191E7D48B3B0F0B905E901E93367E056BF9CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602256   (1046012) от 06.01.2023
-
-L'One (Леван Горозия) - Концерт с симфоническим оркестром (Live 8_X 2022) (2023) [MP3|320 Kbps] <Rap, Hip Hop>
+Вася Васин - Танец с саблями (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Интро (Live 8_X 2022) [00:02:33]
-02 - Ракета, Твой день настал (Live 8_X 2022) [00:02:54]
-03 - Сон (Live 8_X 2022) [00:04:07]
-04 - Дорога (Live 8_X 2022) [00:03:24](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:51:01
+1. Великий Питер
+2. Мания величия
+3. Танец с саблями
+4. Мудрые слова(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75DC7AFE57BAF55F482EA643CD72D92355C320DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581379   (1045802) от 08.01.2023
-
-Вася Васин - 4 Albums (2009-2023) [MP3|320 Kbps] <Rap, Hip-Hop, Spoken Word>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2009 - Демонстрация достижений (CD-1)
-2009 - Демонстрация достижений (CD-2)
-2011 - Tzar Vasilich(   Читать дальше...   )Жанр: Rap, Hip-Hop, Spoken WordПродолжительность: 5 CD, 03:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F85A65F8B2CD88F530B4FCD20F46C8730A9A3A
+magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
 ```
 
 https://mybot314.ru/tekegram_catalog/

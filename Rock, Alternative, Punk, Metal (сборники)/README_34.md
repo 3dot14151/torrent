@@ -1,3 +1,148 @@
+###  Публикация: 1416483   (367183) от 16.10.2020
+
+VA - Rock Drive 11 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 H.E.A.T. - Dangerous Ground
+02 Crystal Shawanda - Church House Blues
+03 Gathering Of Kings - Lorelei
+04 Dion & Joe Bonamassa - Blues Comin' On(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BB1DA3B7FDBBB1BCD75F274F95BDBC92CACBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255253   (365888) от 17.10.2018
+
+VA - Shy Of Shameless: October Blues Collection (2018) [MP3|320 Kbps] <Blues, Rock Blues, Rock and Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Billy Lee Riley - Goin' Jukin'
+002. Ray Bonneville - Waiting on the Night
+003. Chuck Berry - My Mustang Ford
+004. Ray Bonneville - Riverside Drive(   Читать дальше...   )Жанр: Blues, Rock Blues, Rock and RollПродолжительность: 09:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCB8D9C2C2D419575EC22DC452C7FAA6F875FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459570   (365485) от 28.10.2015
+
+VA - Metal Attack (2012) [MP3|192-320 кб/с]<Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24 Black - All She Wrote
+02. System of a down - Attack
+03. Scars On Broadway - Babylon
+04. Ill Nino - This Is War(   Читать дальше...   )Жанр: Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk RockПродолжительность: 03:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F792E7D36FCAED26D09A0C725FC6A314E0F302FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328162   (365372) от 29.09.2019
+
+The Beatles - White Album De-Noised From Demos & Takes 2CD (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-01 - Back In The U.S.S.R. (Esher Demo) (03:00)
+01-02 - Dear Prudence (04:46)
+01-03 - Glass Onion (Esher Demo) (01:56)
+01-04 - Ob-La-Di, Ob-La-Da (Esher Demo) (03:11)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:41:19
+02-01 - Birthday (2018 Stereo Mix) (02:42)
+02-02 - Yer Blues (Esher Demo) (03:30)
+02-03 - Mother Nature's Son (Take 15) (02:29)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6741F49A89C67679022B3444E8B3A450E596722D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423341   (365335) от 28.10.2015
+
+VA - Metal Compilation - Best (2011) [MP3|128-320 kbps]<Symphonic, Black, Gothic, Power, Folk, Doom Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Symphonic, Black, Gothic, Power, Folk, Doom Metal, RockПродолжительность: 02:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93972BD86B1130944D4280DA14A3DF99E0352DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 424054   (365070) от 28.10.2015
 
 VA - Metal Compilation - Cover (2011) [MP3|128-320 kbps]<Symphonic, Black, Gothic, Power, Folk, Doom Metal, Rock, Cover>
@@ -599,151 +744,6 @@ T.Rex - Greatest Hits (2020) [MP3|320 Kbps] <Glam-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53BA959A6C9CF85E62DB498247CAB7581470A382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417510   (353247) от 22.10.2020
-
-VA - Rock Classic Ballad: Special Performance (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353247.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Custard - Deliver Me
-002. Kaledon - Lilibeth
-003. Claymore - Crossroad Of Forever
-004. Winterstorm - Break The Ice(   Читать дальше...   )Жанр: RockПродолжительность: 07:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7024DF2F0AAE09E4774126EB59971849BD98EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179019   (350666) от 30.10.2017
-
-Сектор Газа - Незабываемые песни 3CD 1989-2000 (2017) DON Music [MP3|320 Kbps] <Punk Rock, Fusion>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колхозный панк (1989)
-02. Плуги-вуги (1989)
-03. Наркоман (1989)
-04. Местные (1989)(   Читать дальше...   )Жанр: Punk Rock, FusionПродолжительность: 03:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7782A431B4D348121A39C032B85BBF9696F9086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577731   (350018) от 21.09.2022
-
-Motley Crue & Vince Neil - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motley Crue это целая эпоха в мире музыки. В сборник вошли лучшие песни группы. Некоторые альбомы сохранил полностью, из каких то, что то вырезал. Так что, любители ранних полноценных альбомов проходите с камнями мимо. Начиная с 94 года, как и многие рокеры того времени, команда отравилась альтернативой и слушать их стало пыткой. Очухались ребята только к 2000 году. (   Читать дальше...   )01. Motley Crue - Wild Side
-02. Motley Crue - Girls, Girls, Girls
-03. Motley Crue - Dancing On Glass
-04. Motley Crue - Bad Boy Boogie(   Читать дальше...   )Жанр: RockПродолжительность: 05:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3211D8E6A1F0F029ECE328703A0280DC7BCFFD48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578228   (347753) от 22.09.2022
-
-VA - Hammond Organ for the Soul (2022) 2CD [MP3|320 Kbps] <Rock, Hammond>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georges Arvanitas - Moanin' [04:43]
-02. Deep Purple - Lazy (Live; 1998 Remaster) [10:27]
-03. Uriah Heep - Circle of Hands (2017 Remastered) [06:27]
-04. Emerson, Lake & Palmer - Fanfare For The Common Man (Original 1977 Recording) [09:47](   Читать дальше...   )Жанр: Rock, HammondПродолжительность: 08:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D58DCDAEA819B627B2447E2C0FF366E723578D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257186   (347487) от 25.10.2018
-
-VA - Rock Kaleidoscope 3 (2018) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Moonspell - Opium
-02 Cinderella - Gypsy Road
-03 Biffy Clyro - Many Of Horror
-04 Kalmah - Heroes To Us(   Читать дальше...   )Жанр: RockПродолжительность: 07:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AC2E1D5D6F62F0389C60C16C52B323BBA9E9AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

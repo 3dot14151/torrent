@@ -1,3 +1,90 @@
+###  Публикация: 1129417   (722496) от 28.04.2017
+
+VA - Buddha-Bar Monte-Carlo (2017) [MP3|320 Kbps] <Electronic, Easy Listening, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cambis & Florzinho - Shaneh (Original Mix) 05:17
+02. Federico Spagnoli - Indian Fever 04:27
+03. Makis Ablianitis - Uranos 04:15
+04. Andrea Cardillo - Sogno D'amor 03:35(   Читать дальше...   )Жанр: Electronic, Easy Listening, DowntempoПродолжительность: 02:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EB070EADF30403339CAAC39EB94DC37ABBF6A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129261   (722404) от 28.04.2017
+
+Paul Van Dyk - Best of 10 Years: 1994-2004 (2005) [MP3|192-320 Kbps] <Trance> [Compiled by Firstlast2]
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Van Dyk - Vega [6:05]
+02. Paul Van Dyk feat. Jan Johnston - Like a Friend [3:55]
+03. Paul Van Dyk - Never Forget [5:27]
+04. Paul van Dyk - Today (Trance Ambient Mix) [5:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853A76732D4463CC6F7438280E05DE28DE1E409D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023823   (722363) от 06.06.2016
+
+VA - VOID Neo Disco (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bon Voyage Organisation - Shenzhen 5  (5:55)
+02. Marie Madeleine - Swimming Pool  (5:25)
+03. Hypnolove - La Piscine (L'Imperatrice remix)  (4:57)
+04. The Supermen Lovers - Family Business  (4:52)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB4D3DA54A856D1CC16577AFB93489FAEDAE831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023643   (722357) от 06.06.2016
 
 VA - New Music Generation. Vol. 1 (2016) [MP3|320 кб/с] <Club, House, Dance, Disco>
@@ -667,93 +754,6 @@ VA - Empire  Records: Chill Trance 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E26199F73908A5979DA4A00B691C67A7DC67F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130410   (716654) от 01.05.2017
-
-VA - LUXEmusic - Dance Super Chart Vol.116 (2017) [MP3|320 Kbps] <Club House, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 740 Boys, New Order, Porn Kings vs Dancekraft Amberg, Samtiv - Just Shake (DJ Salamandra Mash-Up) 3:17
-02. A-Ha - Take On Me (Yastreb Radio Edit) 3:18
-03. Adam Lambert - Another Lonely Night (No Hopes & Misha Klein Radio Mix) 3:52
-04. Alekseev - Пьяное Солнце (Roma Pafos Extended) 5:17(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 03:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B898BB65FFDA35096DDD83EA538964FFED166EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532195   (716626) от 18.02.2022
-
-VA - Beatport Tech House: Sound Pack #407 (2022) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот 407-й релиз от Beatport, соответствует всем современным критериям хорошей музыки в стиле Tech House. Убедитесь в этом и вы! Авторы треков собрали необычные идеи и воплотили их в реальный продукт, который мы предлагаем вам сегодня.001. DJ 3000 - Drop It
-002. Bk - Revolution
-003. Lola Palmer - Stay
-004. DJ 156 Bpm - Fly To Heaven(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 11:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB812A3C3BCF62B8D8400E9A82962DFDAD7A132B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532193   (716503) от 18.02.2022
-
-VA - Beatport Synth Electronic: Sound Pack #406 (2022) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые свежие и фирменные звуки синтетической электроники используют авторы треков 406-го релиза от Beatport в своих произведениях. Их работам свойственен свой ярко выраженный и уникальный футуристический прогрессивный саунд, который продолжает завоевывать всемирное признание у многочисленного отряда меломанов экспериментальной электроники.001. Zgoot - Time Riddle
-002. Skelesys - Do It Again
-003. Wholf B - Idea
-004. Ap Organism - Palm Trees(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 09:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4221CCC577D24CD4EB41ED0F5ACBC2DB7E8D77CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1268701   (225154) от 12.12.2018
+
+VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Video [MP3|320 Kbps] <Pop, Euro-Disco, Latin, Euro-House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaft - Mucho Mambo (3:27)
+02. Q-pow! - Summer Holiday (3:18)
+03. Loona - Bailando (3:34)
+04. Crystal Waters - 100% Pure Love (4:39)(   Читать дальше...   )Жанр: Pop, Euro-Disco, Latin, Euro-HouseПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555B70F111FD3A1D06F07BAD7E3BF06CA0400E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268934   (225146) от 12.12.2018
+
+VA - Deep Strips (2018) [MP3|320 Kbps] <Funky, Dance, Nu Disco, Deep House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Hill - You Will See (Chunkee Remix)
+02. Natasha Baccardi - No Sleep (Original Mix)
+03. Alex Dee Gladenko - Beach Party (Original Mix)
+04. Melih Aydogan - You Tell Me (Original Mix)(   Читать дальше...   )Жанр: Funky, Indie-Dance, Nu Disco, Deep HouseПродолжительность: 03:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EA2ABB248FB5C481915CD5C314037E5B43FA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584817   (224717) от 19.10.2022
+
+Sarah Connor - Bounce (2004) [OGG Vorbis|480 Kbps] <Europop, Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bounce
+02. French Kissing
+03. Let's Get Back To Bed-Boy!(featuring TQ)
+04. On Nite Stand(Of Wolves And Sheep)(featuring Wyclef Jean)(   Читать дальше...   )Жанр: Europop, Hip Hop, PopПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73077E07E83D5BF571CA2FC4973B09DFBAE38D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584788   (224535) от 19.10.2022
 
 Belinda Carlisle - A Place On Earth · The Greatest Hits (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
@@ -664,105 +751,6 @@ Emin - 8 в падении (2015) [MP3|320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C959E1AD67F21C785DD8C6BE2C4F3CF31D29EA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585586   (220305) от 23.10.2022
-
-Various - The Best Of Duets (2000) 4 CD [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.B.King & Eric Clapton - Riding With The King
-02. Elton John & Rendy Newan - It's Tough To Be God
-03. Celin Dion & Andrea Bocelli - The Prayer
-04. Pet Shop Boys & Lisa Minelli - Losing My Mind(   Читать дальше...   )Жанр: PopПродолжительность: 05:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2690327DF9003D229F51A0C26B8FD9A063CDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586556   (220114) от 11.12.2012
-
-Tina Turner - All The Best (2012) [MP3|320 кб/с]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steamy Windows
-02. The Best
-03. Private Dancer
-04. In Your Wildest Dreams
-05. I Don't Wanna Lose You
-06. Something Beautiful Remains
-07. Be Tender With Me Baby
-08. Why Must We Wait Until Tonight
-09. Help!
-10. Goldeneye(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A63CBED7E7346C5B7142BA09B289410D468242A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587057   (219905) от 11.12.2012
-
-Joe Dassin - Grand Collection (2001) [MP3|320 кб/с]<Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Salut
-02 L'ete indien
-03 Les Champs-Elysees
-04 Et si tu n'existais pas
-05 Il faut naitre a Monaco
-06 A Toi
-07 Ca va pas changer le Monde
-08 L'equipe a Jojo
-09 Salut les Amoreux
-10 L'amerique(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21F8D2FBFE3681E484CCF53E30E9368A55E45B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

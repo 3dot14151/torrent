@@ -1,3 +1,86 @@
+###  Публикация: 1432153   (165211) от 16.12.2020
+
+VA - Maor Levi Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maor Levi – Won't Say No (Extended Mix) (07:51)
+02. Maor Levi – Chasing Love (feat. Ashley Tomberlin)Жанр: Progressive House, TranceПродолжительность: 01:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A8FE71F5BDCA9945B0668CD0A96A3E467D1A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517232   (163533) от 14.12.2021
+
+VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossless|WEB|tracks|image] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woody Van Eyden & Rene Ablaze - All My Life (Extended Mix) (6:54)
+02. Kenny Palmer - Zandalar (Extended Mix) (6:00)
+03. Ferrin & Low - Breeze (Woody van Eyden Extended Remix) (7:00)
+04. TrancEye - From The Ashes (Extended Mix) (6:51)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01A5330474CFDC8B1DA500C2A7CAE5B4F5988EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673147   (163385) от 03.11.2023
+
+Supermode - Tell Me Why [MeduZa remix] (2022) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Progressive, Hypnotic Style>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Tell My Why (Meduza Remix) (2:51)
+02 Tell My Why (Meduza Extended Remix) (8:29)Жанр: Trance, House, Progressive, Hypnotic StyleПродолжительность: 00:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CD44DFC82A4AAB1E0D3A0723C27D642E2D5B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673737   (163303) от 03.11.2023
 
 Siskin - We Are Siskin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
@@ -652,86 +735,6 @@ VA (Armin Van Buuren) - A State of Trance 2024 - DESTINATION (The Official Album
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A27B5681999D0A1071BD56D23BA9DC65BCC73666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717399   (111171) от 20.04.2024
-
-Nova Scotia - Before I Sleep (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Trance, Scouse House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova Scotia – Before I Sleep (4:45)Жанр: Trance, Pop Trance, Scouse HouseПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853A82B8201E8CC9C7453922D04B7B3A463C167D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717595   (111126) от 21.04.2024
-
-Nova Scotia - Think About The Angels (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Trance, Euro-House, Scouse House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova Scotia – Think About The Angels (5:04)Жанр: Pop Trance, Euro House, Scouse HouseПродолжительность: 00:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43431E6837F306F745AA62B8F3C40CD9A080D137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717617   (111125) от 21.04.2024
-
-Nova Scotia - Everytime We Touch (2023) [FLAC|Lossless|WEB-DL|tracks] <Club-Dance, Pop Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova Scotia – Everytime We Touch (Original mix) (3:55)
-02. Nova Scotia – Everytime We Touch (DJ Oskar rmx) (5:49)
-03. Nova Scotia – Everytime We Touch (DJ Oskar short mix) (4:57)Жанр: Club-Dance, Pop TranceПродолжительность: 00:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A524EE72324F074D55AA763FA03C63EF67F26B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

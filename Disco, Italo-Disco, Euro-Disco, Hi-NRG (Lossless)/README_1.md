@@ -1,3 +1,61 @@
+###  Публикация: 1450562   (1029019) от 26.02.2021
+
+VA - Italo Made In Spain 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Italo Made In Spain 4 (Edicion Mexico) (16:15)
+02. Various - Italo Made In Spain 4 (Summer Session) (28:49)
+03. Francesco Napoli - Lady Fantasy 2018 (Italo New Extended Mix) (6:54)
+04. Naoky feat. Stylove - Cybernetic Love (Extended Mix) (6:13)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B42741A4A931A8A57BC9D6FDDA0E005343BE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450603   (1028863) от 27.02.2021
+
+VA - Disco Deluxe - Disco Classics (2005) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Chocolate - You Sexy Thing (4:05)
+02. Gloria Gaynor - I Will Survive (Re-Rec) (4:52)
+03. Two Fons O'fon - I Got The Feeling (5:17)
+04. Marshall, Hain - Dancing In The City (3:45)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 02:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8571158AF4819F40506C838EEADF048B15374BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451486   (1028342) от 02.03.2021
 
 VA - New Italo Disco Top 25 Compilation, Vol. 15 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance, Eurobeat>
@@ -685,64 +743,6 @@ Soulya ID - Only One We're Need Is Love (2021) [FLAC|Lossless|WEB-DL|tracks] <It
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:701955253C318DEEB5746066087F01407C99E73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463933   (1020135) от 20.04.2021
-
-Digitalo - Gentleman (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentleman (3:35)
-02. In Australia (Remaster) (3:40)
-03. Star Girl (Mix 2021) (4:33)
-04. Taxi (Remaster) (4:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEBA575A8BE536CB3181A23E979B6DA6F6CD99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466350   (1018568) от 29.04.2021
-
-VA - Disco 80's Fresh Hits & Remixes (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K-Barre - Right by the Moon (Special Dance Remix) (3:24)
-02. Sweet Connection - Heart to Heart (Special Italo Dance Remix) (3:59)
-03. T. Ark - Count on Me (Power Disco Remix) (4:42)
-04. Silent Circle - Touch in the Night (Special Remix Version) (5:10)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75356CF79EF1EC6705CCFB2D4C46F4C37A5DF53E
 ```
 
 https://mybot314.ru/tekegram_catalog/

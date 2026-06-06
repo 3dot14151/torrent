@@ -1,0 +1,737 @@
+###  Публикация: 1818059   (2755) от 14.09.2025
+
+The 251s - From the Five (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alright, OK, You Win (Cover) (3:22)
+02.  Look Whatcha Done (Cover) (2:52)
+03.  Sloppy Drunk (4:43)
+04.  Party Girl (Cover) (4:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974F66872ABE1225F1C25FEE77FFCD2ECCA668B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818058   (2754) от 14.09.2025
+
+SirJoe Polito - Black & White (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Happy New Year (4:47)
+02.  Pacific Coast Highway (3:49)
+03.  4 + 20 (5:01)
+04.  Lay You Down (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE1B73DA6D3EC61BE510301DF32B11A19F31ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818089   (2753) от 14.09.2025
+
+The Name Droppers - Cool Blue Shoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Killing Floor (3:13)
+02.  Cool Blue Shoes (3:15)
+03.  Be Alright (3:18)
+04.  Keep Pushin (3:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0FEDC608791DFC1031F15F4251A63A61A0E463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818106   (2752) от 14.09.2025
+
+Crucible - Hail To The Force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Speed Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deathdealer [00:02:49]
+02. Embrace Of Steele [00:03:27]
+03. Redwing [00:05:11]
+04. Far Beyond The Grave [00:04:39](   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5901A359B1AB3F06AE45C9A804219DD085DFBA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818165   (2751) от 14.09.2025
+
+MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Гонка (14.09.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2751.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 сентября 2025 воскресенье 15:00 МСК этап 16. Арена: трасса Мизано Марко Симончелли. Гран-при Сан-Марино. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E873754920F72AFA6E3DB1CF564D82B4A7962579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818063   (2750) от 14.09.2025
+
+The Charlie Daniels Band - Country Stars N' Stripes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Country Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Star Spangled Banner (1:48)
+02.  In America (3:19)
+03.  This Ain't No Rag, It's A Flag (3:31)
+04.  The Intimidator (3:11)(   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641E4877A900190C3B247229336AC913ED1F73F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818057   (2749) от 14.09.2025
+
+Ripoff Raskolnikov Band - Another Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Last Sunny Day (5:25)
+02.  Ain't No Use (4:20)
+03.  Corridor (3:52)
+04.  Down At The Red Rocks Cafe (5:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11FFB3C43C6C6859C14FC8BF6D2E11ED7F3A906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818124   (2748) от 14.09.2025
+
+Лора Спенс-Эш | А дальше – море (2023) [MP3, Мария Орлова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восхитительный и наполненный любовью роман о потерях и обретениях. Когда в 1940-м на Лондон начинают падать немецкие бомбы, Милли и Реджинальд Томпсон решаются на непростой шаг – отправить одиннадцатилетнюю дочь Беатрис в эвакуацию за океан. Здесь, в безопасной Америке, ей предстоит жить в чужой семье, пока не закончится война. Испуганная, обозлённая на родителей, (   Читать дальше...   )Жанр: исторические романы, психологическая проза, современная зарубежная литератураПеревод: Мария АлександроваИздательство: ВимбоПродолжительность: 11:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C3EB4F76F839AA15FEAD9386DFF414D2C53FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818130   (2747) от 14.09.2025
+
+Чудо техники с Сергеем Малозёмовым (14.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда программы разобралась в трендах и новых правилах оказания первой медицинской помощи.
+ Левши вовсе не отличаются большей креативностью — к такому виду пришли ученые из США.
+ Ученые из Китая выяснили, что увлечение короткими роликами в соцсетях нарушает работу мозга почти как алкоголь.
+ Полосатый враг! Что делать, если в доме поселились осы, какие устройства помогут (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591AD546CC32BDFE9FD3D3B1D4C16072A95F1D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818114   (2746) от 14.09.2025
+
+Speed Queen - ... With a Bang! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5678 [00:00:59]
+02. Showdown [00:04:38]
+03. I Want It [00:04:28]
+04. Eye to Eye [00:04:11](   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E4C5EFC316314B4B9A88E569709A35DB74BD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817882   (2745) от 14.09.2025
+
+Combichrist - RISE (2025) Single [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RISE [00:04:15]
+02. Desolation [00:05:03]Жанр: Industrial MetalПродолжительность: 00:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA9B7C041CF03A6805C79D22147E2FEABFD3D23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818170   (2744) от 14.09.2025
+
+Своя игра (14.09.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Михаил Манжуло, Лилия Якунина, Максим КузнецовЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51646FE2CE1E6947B6E41D51F3FDB3B035952C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818098   (2743) от 14.09.2025
+
+Dark Angel - Extinction Level Event (2025) [MP3|320 Kbps] <Thrash, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Extinction Level Event [00:04:16]
+02 - Circular Firing Squad [00:04:29]
+03 - Woke Up to Blood [00:05:00]
+04 - Apex Predator [00:05:06](   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794C0A585189616D46C1609E6A3C34395C62A671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818174   (2742) от 14.09.2025
+
+Аркадий Аверченко | О маленьких для больших (Сборник) (2021) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов, написанный взрослым о детях и иногда глазами детей:
+1.От автора
+ 2.О детях ( материалы для психологии )
+ 3.День делового человека(   Читать дальше...   )Жанр: Проза, ЮморИздательство: Аудиокнига своими рукамиПродолжительность: 02:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFA38A71EA6BD9718AAAA75D38371BA7CEE0BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818055   (2741) от 14.09.2025
+
+Rick Keller - Heroes (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  For Pat (7:55)
+02.  Ahead of the Curve (10:19)
+03.  Hope (6:40)
+04.  Subterraneous (5:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44C64187C4E9F50CC4919304D67666A629A3300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818095   (2740) от 14.09.2025
+
+Willie Phoenix - Friends (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Friends (4:42)
+02.  Sheila In My Room (2:51)
+03.  Turn This Love Around (4:38)
+04.  Heartbreakville (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF664CED8753AF36102D07F9CD69B36F96CDB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818166   (2739) от 14.09.2025
+
+Яков Протазанов. Уход великого старца (1912) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немой художественный фильм Якова Протазанова и Елизаветы Тиман по мотивам свидетельств о последнем периоде жизни Льва Николаевича Толстого.
+Лев Толстой (Владимир Шатерников) в последний период своей жизни разрывается между своими убеждениями, согласно которым он и его семья должны отказаться от собственности, и любовью к жене Софье Андреевне (Ольга Петрова), которая (   Читать дальше...   )Производство: Российская империя / Торговый дом "П. Тиман и Ф. Рейнгардт"Жанр: драма, короткометражка, немое киноРежиссер: Яков Протазанов, Елизавета ТиманАктеры: Владимир Шатерников, Ольга Петрова, Михаил Тамаров, Елизавета ТиманСубтитры: русские (интертитры)Продолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AA28BD5C05A9DE30ED22BF9567E4C9245AB1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818021   (2738) от 14.09.2025
+
+Prospective - The Weight Of What I've Become (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken [00:02:49]
+02. Who I Am [00:02:52]
+03. Ethereal [00:03:02]
+04. Rise [00:03:23](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633BB575ABEC4D4B73D5A122E5398B4E1B76CFE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817969   (2737) от 14.09.2025
+
+Джон Голсуорси | Любовь художника (Вилла Рубейн) (2025) [MP3, Валерий Толков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Любовь художника», известная также как «Вилла Рубейн» открывала авторский сборник Джона Голсуорси – сборник захватывающих и заставляющих задуматься историй, демонстрирующих исключительный повествовательный талант автора и его глубокое понимание человеческой природы. Сборник состоял из шести разноплановых рассказов, каждый из которых затрагивает различные (   Читать дальше...   )Жанр: Английская классика, Зарубежная классика, Социальный реализм, ПсихологияИздательство: АРДИСПродолжительность: 05:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690D8285B2706EE96D9E3F80F85350FD5FE6B930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818129   (2736) от 14.09.2025
+
+Первая передача на НТВ. Автомобильная передача (14.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2736.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 13 лет за рулем он как мастер спорта и даже приятеля обучает… Что затеял несовершеннолетний экипаж?
+ Симбиоз мотокроса и футбола: правила игры в мотобол.
+ «Картечь» из-под задних колес: кто должен оплатить перекрас бампера — водители или дорожники?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D844E7F05117B855A78CA3F5658FE62BC2FA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818090   (2735) от 14.09.2025
+
+Vhäldemar - XX Anniversary - Live at BEC Barakaldo (2025) 2XCD, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. BLACK BEAST
+02. DEATH TO THE WIZARD!
+03. 1366 OLD KING'S VISIONS PART 5(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5805098512B378814F550F748D0F92D43862CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818107   (2734) от 14.09.2025
+
+Nicolas Cage Fighter - I Watched You Burn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Watched You Burn [00:03:48]
+02. Valley Of Agony [00:04:16]
+03. Godforsaken Silence [00:03:43]
+04. The Executioner [00:04:09](   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF028BFB17B2F9F60751DCD35C866EA873F03A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818088   (2733) от 14.09.2025
+
+The Matt Swanton Band - Growing Pains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mulpus Bop (3:45)
+02.  Soldier (3:19)
+03.  Growing Pains (2:50)
+04.  Cooking with Fire (3:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D36F895423F367AE62EF8BF87AE2EB5202AEB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818023   (2732) от 14.09.2025
+
+Shame - Cutthroat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Post-Punk, Britpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cutthroat [00:03:14]
+02. Cowards Around [00:02:21]
+03. Quiet Life [00:03:16]
+04. Nothing Better [00:02:47](   Читать дальше...   )Жанр: Indie, Post-Punk, BritpopПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FC8BBCAF0447A5E664CBBB58C99D87C115DBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818015   (2731) от 14.09.2025
+
+Starset - Silos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Metal, Alternative-Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Praesens [00:02:00]
+02. Degenerate [00:03:36]
+03. Silos [00:04:20]
+04. Rise Of Messenger [00:02:14](   Читать дальше...   )Жанр: Alternative-Metal, Alternative-Rock, ElectronicПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A7BE33477199CB22687F2189CC789F1FC96CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818033   (2730) от 14.09.2025
+
+Nevertel - Start Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative-Rock, Rapcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Again (Prelude) [00:01:23]
+02. Criminal [00:02:55]
+03. Did It All [00:03:01]
+04. Break The Silence [00:03:06](   Читать дальше...   )Жанр: Alternative-Rock, RapcoreПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2871ABD45F0E12C1E29A32C342BD387F2D144E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------

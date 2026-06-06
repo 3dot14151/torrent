@@ -1,3 +1,112 @@
+###  Публикация: 1332792   (308803) от 22.10.2019
+
+Microsoft Windows 10.0.18362.418 Version 1903 (October 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.418.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20533C084E758F0F1CBC1B777CFD1244B0C9DF97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332791   (308773) от 22.10.2019
+
+Microsoft Windows 10.0.18362.418 Version 1903 (October 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.418.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A99E8DCDD5E95A3D099AA4E117BEE7C3652374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332979   (306543) от 23.10.2019
+
+Windows Server 2019 LTSC 1809 (build 17763.805) updated_October_2019 - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BD27F20619B853F7957752E8364C2431D9848D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960666   (304791) от 29.11.2015
+
+Recovery USB-flash for Acer Aspire E5-573 / Windows 8.1 (х64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304791.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Acer_E5_573_W81.tib
+записанной на ноутбуке Acer Aspire E5-573-34QR (NX.MVJER.001) с помощью программы Acer Recovery Management.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления ноутбука к заводским настройкамЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225BA2F297F3A7C2075E243C0869785DBCAA63FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 267464   (297071) от 09.12.2010
 
 Microsoft Windows Vista - Оригинальные образы от Microsoft MSDN [English]
@@ -17,6 +126,32 @@ Windows Vista — операционная система семейства Mic
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423656   (297055) от 14.11.2020
+
+Windows 10 Pro x64 20H2.19042.630 2in1 Nov 2020 by Generation2 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа сборки - оригинальный образ Microsoft Windows 10 20H2 19042.572 x64. В одном образе две редакции: с автоактивацией и без. Интегрированы обновления по ноябрь 2020 года, билд повышен до 19042.630. Системы абсолютно чистые. На начальном этапе есть возможность выбора редакции устанавливаемой системы. Подробности ниже.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71880A2C7994BEAB32CF94D05913B2AEED3EE2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,145 +689,6 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1846074AD0419EA2CC296EC223B4D12C1F8C9F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837786   (257666) от 19.11.2025
-
-Microsoft Windows 11 [10.0.26100.7171], Version 24H2 (Updated November 2025) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3711A3F09CAEA3AB063122385B58B741E12696E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837788   (257587) от 20.11.2025
-
-Microsoft Windows 11 [10.0.26200.7171], Version 25H2 (Updated November 2025) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BEFD9DFA5C859714107756F071B08379B8D325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837557   (257492) от 18.11.2025
-
-Windows 10 (v22h2) x64 HSL/PRO by KulHunter v28 (esd) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_22h2_
-updated_oct_2025_x64_dvd_38efd00d.iso
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A2141408D13E64143B8F8ECA87AC6B3D4CA6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837559   (257491) от 17.11.2025
-
-Windows 10 (v22h2) x64 PRO by KulHunter v28 (esd) [En]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: en-us_windows_10_consumer_editions_version_22h2_
-updated_oct_2025_x64_dvd_38efd00d.iso
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0C822568CE4CD5C660216C1A5557A30EA01A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837106   (256646) от 15.11.2025
-
-Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.7171 [Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-ru-ru_windows_11_business_editions_version_24h2_updated_oct_2025_x64_dvd_65563bd3
-ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
-Установлены обновления по 14.11.2025(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAA353FF9A23D0DABCD8B27E7D7067432366B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

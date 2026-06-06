@@ -1,3 +1,235 @@
+###  Публикация: 1453381   (1026747) от 12.03.2021
+
+Yotto - A Very Cold DJ Set, Lapland, Finland (2021-03-06) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yotto - The Valley
+2. Yotto & Cassian-Grains w/ SØNIN vs. Yotto - Nothing Like You (Acappella)
+3. Yotto - Nova (Joseph Ray Remix)
+4. SOHMI - Closer(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F7FD0A2F2CF9B1E1A26CBD2F967EC863244043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453892   (1026623) от 13.03.2021
+
+Gabriel & Dresden - AFTR:HRS SESSIONS 03 (2021-03-11) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CRi - Stranger
+02. Alex O’Rion - Cuprum
+03. Emil Berliner - Aoede
+04. Mind Against - Walking Away(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0F713C1A0B3CD71AC3D895DE663AFBFD752B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455049   (1025827) от 18.03.2021
+
+Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Frankey & Sandrino - Xrain
+03. ID - ID
+04. ID - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 03:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0386CF16C06C6BF626EC470DE4CC3D5941594427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457980   (1024258) от 27.03.2021
+
+Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard Dance, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludwig van Beethoven - Moonlight Sonata (Blasterjaxx Remix)
+02. Danimal - Wolves
+03. Justin Prime & Vito Mendez - Rebirth Of Sound
+04. Darius & Finlay - Superbeast(   Читать дальше...   )Жанр: Hard Dance, Big RoomПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E39E889367E116784186A36CAA0BC2412AAF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457976   (1024254) от 27.03.2021
+
+David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cardi B ft. Megan Thee Stallion - WAP (David Guetta Bootleg)
+02. Cloverdale - Open Up
+03. David Guetta & MORTEN - Kill Me Slow
+04. Danny Avila ft. Ruby Prophet & PollyAnna - My Blood(   Читать дальше...   )Жанр: Electro House, Progressive House, Big RoomПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E494584251F792C1455EDBED5FDE0C21DA3974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460928   (1022302) от 07.04.2021
+
+The Blizzard - AVACast Guest Mix (2021-03-29) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blizzard - Torden
+02. The Blizzard & The Madison - Sequoia
+03. The Blizzard - Sol
+04. The Blizzard - Snøfnugg(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6131CA723FBD3CD80DB8AE678A1D233C7AE0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461691   (1021782) от 10.04.2021
+
+Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Special) (2021-04-09) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren ft. Sharon Den Adel - In And Out Of Love (Ilan Bluestone & Maor Levi Remix)
+02. Armin van Buuren & AVIRA ft. Sam Martin - Mask
+03. Armin van Buuren & Avian Grays ft. Jordan Shaw - Something Real
+04. Above & Beyond ft. Zoë Johnston - There's Only You (Above & Beyond Club Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E15754FABB0DF33D7E0116AB6A0B1C644D114D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462094   (1021432) от 12.04.2021
+
+Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passenger 10 - Days Of Yore
+02. Nora En Pure - Cognitive Fadings
+03. Passenger 10 - Thuringia
+04. Nora En Pure - Enchantment(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244B86C44661D0EC75EE470867543A91CF33AC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462238   (1021321) от 13.04.2021
 
 Korolova - Live @ Zanzibar, Tanzania (2021-03-26) [MP3|320 Kbps] <Deep House, Progressive House>
@@ -513,238 +745,6 @@ VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E0BC1DCB8207ACD02F962E399B00596894B866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973558   (975748) от 12.01.2016
-
-Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Revees feat. Alanah - Lonely (Aurosonic intro bootleg)
-02.Aurosonic - My Way (original mix)
-03.Aurosonic & Ange - Without You (2011 dj mix)
-04.Aurosonic & Frainbreeze feat. Katty Heath - All I Need (club mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FE2CBE68BF153945EDE582C19D699F1DE05826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817967   (969166) от 17.01.2016
-
-Traxtorm records - Hardcore Italia podcast 1-106 (2011-2016) (обновляемая)[MP3|128 кб/с]<Hardcore>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01) Koozah - Stand up
-02) DJ Mad Dog - Rewind #TiH (Xcite remix)
-03) Piecemaker - Brutal deluxe
-04) Alien T feat. MC Alee - Our light #TiH(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB97AECF3805D96F0F01EABC295F44CFA689B160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863215   (967662) от 19.01.2016
-
-DJ S.I.D.R. - Keep It Ob'ecore Podcast # 1-20 (2013-2015) [MP3|320 кб/с]<Happy Hardcore, Hardcore, Rave>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Prospect - I Just Wanna Feel (UK Hardcore Edit)
-02. Re-Con & Demand ft. Mandy Edge - I'm Sorry (Original Mix)
-03. Eufeion & Patch - Crash
-04. UniqForm - Oooo Fuck(   Читать дальше...   )Жанр: Happy Hardcore, Hardcore, RaveПродолжительность: 23:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCED436A21C0C87E465DBBB4ED5454FCE4B3CF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358808   (967433) от 09.02.2020
-
-VA - Live @ Transcend 7th Birthday, Club Reina London, United Kingdom 2020-02-01 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daniel Skyver:
-01. Alex Di Stefano - Escape From The Past (Skyver intro edit)
-02. Cirez D - In The Reds
-03. Ruben de Ronde & PROFF feat Deirdre McLaughlin - Fade Away With Me (Key 4050 remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D292BBF66BDBEC29EA940EBD7AF6B47C6D17AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978165   (964584) от 22.01.2016
-
-Dj Sveta - My City (2016) [MP3|320 кб/с] <Progressive House, House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remcord - Saed (Original Mix)
-Lucas Rossi - No Expectations (Original Mix)
-Advent's Rising - Return (Matter Remix)
-PAX - Fated(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144C093246B57F71D73141FFCD54BEEC7FBD78B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737621   (959383) от 26.01.2016
-
-Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 кб/с]<Progressive House, Electro House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tube & Berger feat. Juliet Sikora - Set It Off
-02. Tim Berg feat. Amanda Wilson - Seek Bromance (Dear David & Posse Version)
-03. C-Block - So Strung Out (Christian Cardwell & Nigel Stately Remix)
-04. Lexer feat. Chantal - Dream & Love (Pingpong Tanzt Mix / SonneMondSterne Version)(   Читать дальше...   )Жанр: Progressive House, Electro House, Deep HouseПродолжительность: 195:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657EB75E46E4D0B0D3F057721F7B2240007F1636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363650   (942610) от 28.02.2020
-
-Cold Blue - Live @ Crystal Forest Medellin, Colombia 2020-02-22 [MP3|256 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Blue - Golden Leaves
-02. Cold Blue - Once In Time
-03. Cold Blue - Dreamland
-04. Cold Blue - Simplicity(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF1F9D2D8D6340B49DF6C2DCB1A85138CE1FF94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587128   (942495) от 09.01.2017
-
-Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|320 кб/с]<Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cerf, Mitiska, Jaren - Light The Skies (Harry Peat remix)
- 02. DJ Fire - Midnight In Beijing
- 03. Andrew Bennett - Menar (Markus Schulz remix)
- 04. ATB - Desperate Religion (Aurosonic remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 198:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A847F021CE563DD43E479E0350AE42AEE6E766CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

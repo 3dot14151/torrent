@@ -1,3 +1,90 @@
+###  Публикация: 1486931   (1004374) от 02.08.2021
+
+VA - Hard Dance Clubbing: Hardstyle Megaset (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro Clubbing Core>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004374.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Psiko & Hysta - Lockdown
+002. Teka B & G-Fresh - The Darkness
+003. Paulie - Pointing Fingers
+004. John Bounce - Tell Me(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, Electro Clubbing CoreПродолжительность: 08:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF64E4C0FDB8ADCB570A5F11F27B73CD2011387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486940   (1004371) от 02.08.2021
+
+VA - Tech Athletics Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Terriers - Octagon
+002. H! Dude - Doesn't Matter
+003. Bryan Chapman - Journey Of Conarium
+004. Mvi - 33 Knots(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 10:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3BA6F41B077AB1C421FB0D0C45F161F022EC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486932   (1004369) от 02.08.2021
+
+VA - Hardstyle Fitness Collection (2021) [MP3|320 Kbps] <Hardstyle, hard dance, electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. B-Front - Thank God For Music
+002. Frequencerz - Perfect Unity
+003. Fracus & Hartshorn - Ready For Love
+004. Ophidian - The Middle Children(   Читать дальше...   )Жанр: Hardstyle, hard dance, electroПродолжительность: 09:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542A0FE96493B393476C0B323C99F1DF556BA627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486960   (1004366) от 02.08.2021
 
 VA - Techno Night: Future Electro Session (2021) [MP3|320 Kbps] <Techno, Electronic, Minimal>
@@ -658,93 +745,6 @@ VA - Chill Cristmas Lounge (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E096247D699A82672710D4A5B912A1AEFE2DF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350944   (1002756) от 08.01.2020
-
-VA - Maelstrom: Progressive Trance (2020) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002756.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jaymee - Waterfall
-002. Nickax - Flames (Original Mix)
-003. Meles Astralis - Awake
-004. Tbo And Vega - Just A Fool (Timo Pralle Remix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2909336D05814EA2E326E234BDED0A9C788864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351184   (1002545) от 09.01.2020
-
-VA - Granjurema: Psychedelic Trance Party (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altered State - Cloudsurfing
-02. Atyss - Black Snake (Original Mix)
-03. Britti & Intenscify - Contemplation Of The Cosmos
-04. Elowinz - Granjurema(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 06:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C636BA540B387479B8FC7636CBEC604A25DEDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351182   (1002476) от 09.01.2020
-
-VA - The Sound Of Now (2020) [MP3|320 Kbps] <Tech House, Electro, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamliki - Never Give Up
-02. Emanuele Rada - You Know Da Name
-03. Gidronique - Rain
-04. Mina Overoux - Electro Vibes(   Читать дальше...   )Жанр: Tech House, Electro, EDMПродолжительность: 07:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A872164F93F9D9C8CFF31887C092F230EA5947AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

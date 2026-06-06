@@ -1,3 +1,90 @@
+###  Публикация: 1133549   (693324) от 13.05.2017
+
+VA - Synthetic  vol.3 - Electropop Edition (2017) [MP3|320 Kbps] <Electropop, Synthpop, Electroclash >
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marsheaux - Empire State Human (03:22)
+02. Golden Boy with Miss Kittin - Rippin Kittin (04:47)
+03. Kasper Bjorke - Hummingbirds (with Jacob Bellens) (04:39)
+04. Glass Apple Bonzai - Night Maze (05:12)(   Читать дальше...   )Жанр: Electropop, Synthpop, ElectroclashПродолжительность: 01:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29EBE7DAABB7023AB978AB0BCFFB002262DEF59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221562   (693183) от 25.04.2018
+
+VA - DNA Injection: Techno Party (2018) [MP3|192-320 Kbps] <Techno, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693183.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске творится настоящая гипно бионическая магия. Быстрые биты и размеренно плывущая по синусоиде мелодия обрастает дополнительными гармониями и красками, и с каждой минутой прибавляется десятки дополнительных звуков, которые к пятой или шестой минуте унесут ваше сознание в умиротворенное и отстранённое пространство.01. NagoviciN - My Beloved Wife! (Original Mix)
+02. Frequency Fifty - A'Dora
+03. Joven Misterio - Shakerz Nights (Original mix)
+04. Robben Cepeda - Tribal Shades (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 05:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BC624160FB35CE6FD3B762088E9404C0768A0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221532   (693180) от 25.04.2018
+
+VA - Night Dreamer: Chill Deep House (2018) [MP3|320 Kbps] <Deep House, Chill House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693180.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 1Kilo - Duro Igual Concreto (Hisashi & RFeL Remix)
+002. Natural Soul - Get Ready (Phisicall Lover Mix)
+003. Hess Is More - Yes Boss (Mr. Gun X Isabelle Remix)
+004. K Tonique - Give At To Me (Ibiza Night Mix)(   Читать дальше...   )Жанр: Deep House, Chill House, Electro HouseПродолжительность: 08:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CA7BDBE327D0F6CF7143647760EA071DA753D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221542   (693177) от 25.04.2018
 
 VA - 125 Keep World DJ Loaded (2018) [MP3|256-320 Kbps] <Progressive, Future House, Electro>
@@ -658,93 +745,6 @@ VA - Dream Music for Deep Sleep (2016) [MP3|320 кб/с] <Downtempo, Chillout, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:310628CD86826D84A89D3CBB33DBF08CA634D240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028776   (688851) от 23.06.2016
-
-VA - Premium Electro Lights: Electro House Mix (2016) [MP3|320 кб/с] <Electro, Club House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688851.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Preston - Get SO (Kyro Remix)
-002. Dantiez Saunderson, Joe Le Groove - Groove Machine
-003. Jilk - Nim
-004. The Termite & Mikky Clap - Insomnia (Alex Fresh Remix)(   Читать дальше...   )Жанр: Electro, Club House, DanceПродолжительность: 09:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFBDC527551C76C786169B1BD37EF85C28C9E126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403581   (688633) от 21.08.2020
-
-VA - Beatport Bass House: Electro Sound Pack #147 (2020) [MP3|320 Kbps] <Dub House, Bass, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688633.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stefonix - Get Up!
-002. Ize 1 - Afro Kraze
-003. Terrie Kynd - Apple Kiwi
-004. Cryogenics - Nothing Bad Will Ever(   Читать дальше...   )Жанр: Dub House, Bass, ElectroПродолжительность: 08:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578076ED00C542E7280057117BD7D9EBB14FFADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403582   (688632) от 21.08.2020
-
-VA - Beatport Dance House: Electro Sound Pack #148 (2020) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bowie And Fortuny - Shine
-002. Ivan Spell - Numb (Original Mix)
-003. Stafford Brothers - Blow Off The Roof
-004. DJ Combo - Happy Every Day(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BAD90608AC114D06A3458BBF944C2C869AB067
 ```
 
 https://mybot314.ru/tekegram_catalog/

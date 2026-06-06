@@ -1,3 +1,61 @@
+###  Публикация: 1280900   (755204) от 06.02.2019
+
+Spacehawk - Laser Squad (2018) [MP3|320 Kbps] <Spacesynth, Spacedisco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:24)
+02. Zeratul's Return (3:55)
+03. Cosmic Expedition (4:28)
+04. Laser Squad (3:53)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B219817E9050D21DB2AC5D591AA2C7E74C8DB9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246468   (751604) от 08.02.2019
+
+Sexy Suicide (ex-Neon Romance) - 2 Albums, 2 Singles (2014-2018) [MP3|320 кб/с] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изначально группа называлась "Neon Romance", и была основана в начале 2012 года. "Neon Romance" сформировалась по инициативе Варфоломея Саламона и Майкла Капусцинского. Спустя время к группе присоединяется Марика Томчик, которая становится официальной вокалисткой. В течение некоторого времени ребята трудились над своим дебютником "Midnight (   Читать дальше...   )Neon Romance - 2014 - Midnight Stories
+Sexy Suicide - 2016 - Intruder
+Sexy Suicide - 2018 - Iron City (Love Song) (Single)
+Sexy Suicide - 2018 - Techno Scar (Single)Жанр: Synthpop •Продолжительность: 01:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079B0B3F7F18758C9761F75115A7C271D3E6E671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523660   (749900) от 12.01.2022
 
 New Arcades - Proximity (2021) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
@@ -687,64 +745,6 @@ Moskva-Kassiopeya - российский электронный проект м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D214BF964E08A39168759838B51A4E8218E9B40F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286844   (705363) от 06.03.2019
-
-Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop, Minimal, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuerst Ich (3:14)
-02. Ich Bin Nicht Die (3:52)
-03. Mata Hari (4:20)
-04. Morderinnen Kusst Man Nicht (3:38)(   Читать дальше...   )Жанр: Synth-pop, Minimal, New WaveПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECC1670216F65B23F7ABABF9D88A42FB7238BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287309   (705069) от 06.03.2019
-
-Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Blue
-02. Magic Fly
-03. Symphony
-04. Souvenir from Rio(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 05:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77DB4BEDFEB10C6A82BFD07BCA794BFA1B4E15A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 1729783   (53502) от 12.06.2024
+
+V.A. - ZYX Italo Disco Spacesynth Collection 10 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth, Synthwave>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Mission Hyperdrive 06:00
+02. Galaxy Observer - Martian Spaceship
+03. Synthesis - Beyond Time
+04. Mind Vision - Final Mission(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthwaveПродолжительность: 02:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA54CFC5FCB486F188FDFEE72E68815AF567059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730308   (53222) от 15.06.2024
+
+VA - Sabadell Sound 2 - The Ultimate Collection (2024) 2xCD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53222.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Closed - Crazy Love 6:32
+02. Azul Y Negro - The Night 6:10
+03. David Lyme - Let's Go To Sitges 4:47(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 02:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26716355D07E25FFF794440A0D512BA1CFC2F602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730941   (52896) от 18.06.2024
+
+Chillymouse - You're My Love, You're My Life (Jason Parker X Bootmasters remix) (2021) [FLAC|Lossless|tracks] <Nu-Disco, Disco House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillymouse - You're My Love, You're My Life (Jason Parker X Bootmasters remix) (4:42)Жанр: Nu-Disco, Disco HouseПродолжительность: 00:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7DC762173939105527F1C324F844FDCF6C8071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737471   (49711) от 17.07.2024
+
+Victoria Nordmann - Best Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Days
+02. Good Days (Extended Version)
+03. Be My Desire
+04. Dance(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317B3F2F27EFF6A6ED36F63CEF25DB827E9F3B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738460   (49173) от 22.07.2024
+
+VA - ZYX Italo Disco Dub Versions (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Paul - Good Version (Instrumental) 05:06
+02. Ken Laszlo - Tonight (Instrumental) 05:41
+03. Swan - Don't Talk About It (Instrumental) 06:11
+04. Felli - Diamond In The Night (Instrumental) 05:24(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1159B2C786C615F7539EEC01CD7A1AC542997587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739797   (48474) от 29.07.2024
 
 Mflex Sounds - Shining Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italo Synthwave>
@@ -598,151 +740,6 @@ Mflex Sounds - Flashback Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289F69A993ED33A3D06BF4E11AB353E6730D00EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766156   (33789) от 18.12.2024
-
-AlimkhanOV A. - Black (The 4th Album) (2024) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black (Intro) (3:47)
-02. One More Night (3:57)
-03. Follow Me Baby (5:30)
-04. One Two Three (3:59)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05047A3F8D0AC45E6B09FB4E8DEFA1C1353146A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769687   (32610) от 29.12.2024
-
-Ken Laszlo - Hey Hey Guy Don't Cry Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Hey Guy
-02. Dance With Me (Extended Mix)
-03. Starlight (Extended Mix)
-04. Don't Cry(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84ED03A244397B484C21B0D622BC22E8C5A777F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775610   (29591) от 27.01.2025
-
-Mflex Sounds - Misleading Truth (Volumes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sparkle (5:08)
-02. Search A Heart (2020 Re-Edit) (7:06)
-03. I Want You Back (6:40)
-04. I'm Walk Alone (10:12)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86DFA0A36A1B9724D0DE471FC3C90116F725F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775608   (29589) от 27.01.2025
-
-Mflex Sounds - Synthmagic (Italo Essentials Volumes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Know (5:48)
-02. Dream With You (6:18)
-03. In My Eye (6:12)
-04. Love In The Rain (7:49)(   Читать дальше...   )Жанр: Italo-Disco, Synth-DanceПродолжительность: 03:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F602064BB038B20992883907D9357952486AE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775617   (29584) от 27.01.2025
-
-Mflex Sounds - Bad Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Love (6:06)
-02. Black Hole (5:18)
-03. My Angel 2 (Snippet) (2:28)
-04. A Sea of Calm (3:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7F33C66AE6CEA37C2C73350BB7DDCCAB644782
 ```
 
 https://mybot314.ru/tekegram_catalog/

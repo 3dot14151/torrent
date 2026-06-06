@@ -1,3 +1,61 @@
+###  Публикация: 1419989   (335712) от 30.10.2020
+
+Jim Brickman - Joy (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Drummer Boy
+02. Lights Of Christmas
+03. The Twelve Days Of Christmas
+04. Shades Of White(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAD3FB7DA8AB5931E43E0074C587BCD17393720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420027   (335616) от 30.10.2020
+
+Jim Brickman - Christmas Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Brickman - I'll Be Home For Christmas
+02. Winter Wonderland
+03. O Tannenbaum
+04. Snowflake(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F2DD76FA5FE2420CA2B1BBF439F1F07DCA5519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331076   (334984) от 13.10.2019
 
 Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
@@ -685,64 +743,6 @@ Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B10E89F476C035D4C2083AA1B04310D9BFE90170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422378   (304168) от 11.11.2020
-
-Tantric Music - Tantric Art of Love - New Age Music 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting for the Night (3:53)
-02. Sex Evolution (3:32)
-03. Erotic Rituals (3:16)
-04. Empire of Two (3:32)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EBD3892037E53204C6FE29BED540EC3BEF2C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423003   (304166) от 11.11.2020
-
-Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304166.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Path of Peace (8:04)
-2. Sunlight Through Trees (7:40)
-3. Raindrops on Leaves (6:56)
-4. Temples in the Mist (10:00)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B09BC2961379726796C7F3C25903647375705F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1839309   (1046472) от 28.11.2025
+
+VA - Armin van Buuren - A State Of Trance 1253 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond & Malou – Letting Go (Above & Beyond Club Mix)
+02. Beatsole – Velvet Fall
+03. Ruben de Ronde & TRYAD – Doubts
+04. Ferry Corsten – Blueprint (Matt Fax Reprint)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B240094CDF80761E624955FE743F3B411D394EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603158   (1045763) от 09.01.2023
+
+DJ Viper - 33 Oborota Compilation (2009) [MP3|~245 Kbps (V0)] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Levente feat Shirley Levi - Vonat (07:48)
+02. Solila - Atlantis (Acos CoolKAs Night Mix) (05:18)
+03. Loverush UK & Molly Bancroft - Fountains Of Youth (Hybrid Heights Dub Mix) (05:05)
+04. Tristan Del Ray - Leaving The 80s (05:04)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E043920DE639D8AF9BC1FEA3A1119C76D29C6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436875   (1042819) от 02.01.2021
+
+Mr. Smith - Smith Sessions Radioshow 239-240 (Vocal Trance 2020 Top 40) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smith Sessions Radioshow 239 (Vocal Trance 2020 Top 40 - Part I):
+01. Kbk & Grande Piano Ft. Agata Pasternak - Mystery Of Tomorrow (Vocal Mix)
+02. Woody van Eyden DJ T.H. & Cari - Drowning
+03. Joyline Snow - Heart Beating(   Читать дальше...   )Жанр: TranceПродолжительность: 03:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8EDDBC9AD04D3A4A43D4ADF1986391D240A44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436896   (1042813) от 02.01.2021
+
+The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Duguid feat. Julie Thompson - Falling
+02. Michael Cassette - Zeppelin
+03. Cicada - Beautiful (Michael Gray Remix)
+04. Andrew Bayer - Counting The Points(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBA998E0FA597EA1FA67C9079A7BD06A5F1A74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436867   (1042728) от 02.01.2021
+
+David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
+02. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
+03. Jack Back - Performance
+04. David Guetta & MORTEN & Lovespeake vs. Fatboy Slim - Save My Life vs. Sunset (Bird Of Prey) (David Guetta & MORTEN Edit)Жанр: Electro House, Progressive HouseПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFEC223EC5D67EE2458F110FAA7F0A44EE70D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260313   (1041866) от 05.01.2021
+
+Arika Lane - TopTrance Radioshow (2011-2021) [MP3|256 - 320 Kbps] <Uplifting Trance, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041866.jpg" />
+</div>
+
+
+###  Подробнее
+
+TOPTRANCE 128 MainMix by Arika Lane:
+01. Daniel Kandi - Nova II (The Second Journey) (Extended Mix)
+02. FAWZY - Resonating Force (Ula Remix)
+03. Victor Special - Inhaling Sounds of Thunder (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, TranceПродолжительность: 01:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFB41738231B49F48E0B82BF4BC2A7E782C3FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438426   (1041155) от 08.01.2021
+
+VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massane - No Return
+02. Marsh & Phenoir featuring Mariel Beausejour - Don't Wait
+03. Beije - Standing Between the Worlds
+04. Markus Schulz & Adina Butar - In Search of Sunrise (Watercraft Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE758610A12A7DAB5E3476BA49A44CCA183795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438228   (1041154) от 08.01.2021
+
+Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <Future House, Big Room, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - WOW (Intro Edit)
+02. TUJAMO & Lotten - One Million
+03. Danny Avila - Pushin
+04. Day 'n' Nite (Crookers Remix/Cheyenne Giles 2020 Remix)(   Читать дальше...   )Жанр: Future House, Big Room, Electro HouseПродолжительность: 01:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE48488253156D9E75968E76894E7DC1CD9A9C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614301   (1038835) от 21.02.2023
 
 VA - Xolodno Compilation [22.12] (Mixed and Compiled by Alexey Viper) (2021) [MP3|320 Kbps] <Progressive House, Melodic Progressive, Dark Progressive>
@@ -508,238 +740,6 @@ ATB & Topic - SiriusXM Guest Room Mix (2021-02-20) [MP3|~245 Kbps (V0)] <House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D9DC2CA58AC9891DFDB3ADD0E2131C7AC86E53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453381   (1026747) от 12.03.2021
-
-Yotto - A Very Cold DJ Set, Lapland, Finland (2021-03-06) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yotto - The Valley
-2. Yotto & Cassian-Grains w/ SØNIN vs. Yotto - Nothing Like You (Acappella)
-3. Yotto - Nova (Joseph Ray Remix)
-4. SOHMI - Closer(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F7FD0A2F2CF9B1E1A26CBD2F967EC863244043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453892   (1026623) от 13.03.2021
-
-Gabriel & Dresden - AFTR:HRS SESSIONS 03 (2021-03-11) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CRi - Stranger
-02. Alex O’Rion - Cuprum
-03. Emil Berliner - Aoede
-04. Mind Against - Walking Away(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0F713C1A0B3CD71AC3D895DE663AFBFD752B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455049   (1025827) от 18.03.2021
-
-Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Frankey & Sandrino - Xrain
-03. ID - ID
-04. ID - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 03:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0386CF16C06C6BF626EC470DE4CC3D5941594427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457980   (1024258) от 27.03.2021
-
-Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard Dance, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ludwig van Beethoven - Moonlight Sonata (Blasterjaxx Remix)
-02. Danimal - Wolves
-03. Justin Prime & Vito Mendez - Rebirth Of Sound
-04. Darius & Finlay - Superbeast(   Читать дальше...   )Жанр: Hard Dance, Big RoomПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E39E889367E116784186A36CAA0BC2412AAF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457976   (1024254) от 27.03.2021
-
-David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cardi B ft. Megan Thee Stallion - WAP (David Guetta Bootleg)
-02. Cloverdale - Open Up
-03. David Guetta & MORTEN - Kill Me Slow
-04. Danny Avila ft. Ruby Prophet & PollyAnna - My Blood(   Читать дальше...   )Жанр: Electro House, Progressive House, Big RoomПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E494584251F792C1455EDBED5FDE0C21DA3974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460928   (1022302) от 07.04.2021
-
-The Blizzard - AVACast Guest Mix (2021-03-29) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blizzard - Torden
-02. The Blizzard & The Madison - Sequoia
-03. The Blizzard - Sol
-04. The Blizzard - Snøfnugg(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6131CA723FBD3CD80DB8AE678A1D233C7AE0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461691   (1021782) от 10.04.2021
-
-Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Special) (2021-04-09) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. Sharon Den Adel - In And Out Of Love (Ilan Bluestone & Maor Levi Remix)
-02. Armin van Buuren & AVIRA ft. Sam Martin - Mask
-03. Armin van Buuren & Avian Grays ft. Jordan Shaw - Something Real
-04. Above & Beyond ft. Zoë Johnston - There's Only You (Above & Beyond Club Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E15754FABB0DF33D7E0116AB6A0B1C644D114D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462094   (1021432) от 12.04.2021
-
-Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passenger 10 - Days Of Yore
-02. Nora En Pure - Cognitive Fadings
-03. Passenger 10 - Thuringia
-04. Nora En Pure - Enchantment(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244B86C44661D0EC75EE470867543A91CF33AC42
 ```
 
 https://mybot314.ru/tekegram_catalog/

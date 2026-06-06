@@ -1,3 +1,61 @@
+###  Публикация: 1098305   (908392) от 30.01.2017
+
+Ken Laszlo - The Best Of (1994) [APE|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight (Original Edit) [3:57]
+02. Hey Hey Guy (Original Long Edit) [7:33]
+03. Glasses Man [4:19]
+04. Baby Call Me (Mix Edit) [7:28](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD1A9C9724A5795F30246C65773AF47CAEEAFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099220   (904871) от 01.02.2017
+
+Dead Or Alive - That's The Way I Like It: The Best Of Dead Or Alive (2010) Compilation [FLAC|Lossless|image + .cue] <Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  You Spin Me Round (Like A Record)  (03:16) 
+02|  That's The Way I Like It  (03:10) 
+03|  Lover Come Back To Me  (03:13) 
+04|  In Too Deep  (03:51) (   Читать дальше...   )Жанр: Hi NRG, Synth-popПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D300E778E2F716DEE346CC393F22FF04791A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 293241   (902922) от 09.02.2011
 
 Dee D. Jackson - Space And Time (2010) [FLAC|Lossless]<Disco>
@@ -682,64 +740,6 @@ La Prohibida - Ruido (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32A04F2DC485D679E4138579DB84B8312F3A655D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375892   (862168) от 16.04.2020
-
-VA - Cay Hume And His Music Productions 1-3 (2016-2017) Remastered [FLAC|Lossless|tracks + .cue] <Euro-Disco, Synth-pop, Euro-House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cay Hume - Call Me Up (House Music Version) (6:46)
-02. Top Secret - Let It Be (12'' Version) (5:59)
-03. Jean & Jill - Blue Blue Eyes (12'' Version) (6:59)
-04. T. Ark - Count On Me (12'' Version) (6:31)(   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, Euro-HouseПродолжительность: 03:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FA7BB4AF162A5D9610E1C29708F4583112774C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376090   (861791) от 16.04.2020
-
-VA - Eurodisco 80's Maxi Hits & Remixes 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Lime - I Don't Wanna Lose You (Extended Dance Remix) (6:39)
-02. London Boys - I'm Gonna Give My Heart (Special Long Remix Version) (9:22)
-03. Fun Gang - Just for Fun (Radio Remix) (4:02)
-04. Geff Harrison - Bad New York City (Special Mix) (6:11)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83455D61BCEE90205A6DB26EBC457FCE04534768
 ```
 
 https://mybot314.ru/tekegram_catalog/

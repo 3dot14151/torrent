@@ -1,3 +1,32 @@
+###  Публикация: 1175025   (383259) от 16.10.2017
+
+Carla Bruni - French Touch (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карла Бруни известна не только как жена экс-президента Франции и супермодель, но и как поп-звезда. Для нового альбома певица по-своему исполнила любимые хиты AC/DC, The Rolling Stones, ABBA, The Clash и многих других.1. Enjoy The Silence
+2. Jimmy Jazz
+3. Love Letters
+4. Miss You(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E6AA9A6D311A40CB3EB7C3389D5FAF6FCB1686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068062   (382478) от 31.10.2016
 
 VA - NRJ 300% Hits 2016 (2016) 3CD [MP3|320 Kbps] <Pop>
@@ -729,35 +758,6 @@ Christian Kolonovits - 3 Albums (1976-1984) LP Collection [MP3|320 Kbps] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E175719FB19E0DE78A22C18C4069E95C88239B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950026   (372581) от 25.10.2015
-
-Ricchi E Poveri - The Best Dance Remixes (2015) [MP3|320 кб/с]<Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma Maria
-02. Sara perche ti amo
-03. Made in Italy
-04. Se mi innamoro(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6C3BC973C8BB8741708BE3F86DAC9A414E8196
 ```
 
 https://mybot314.ru/tekegram_catalog/

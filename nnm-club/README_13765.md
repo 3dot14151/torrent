@@ -1,22 +1,22 @@
-###  Публикация: 1317647   (499622) от 02.08.2019
+###  Публикация: 538003   (504906) от 28.08.2012
 
-Tipard Total Media Converter 9.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
+VA - Spiritual High (1999) [MP3|320 кб/с]<New Age, Enigmatic, Ambient>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tipard Total Media Converter - простая в использовании программа, позволяющая быстро и качественно преобразовать видео DVD и любые фильмы в различные форматы (MPEG-4, H.264/MPEG-4, AVC, MOV, M4V, AVI, DivX, XviD, ASF, WMV, MPEG-1, MPEG-2, 3GP, 3GPP, MKV, FLV, SWF, VOB и др.), а также дает возможность извлекать аудио-дорожки и конвертировать их в M4A, MP3, AC3, AAC, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+01.Жанр: New Age, Enigmatic, AmbientПродолжительность: 01:13:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F659769AF8D81528B6AA24122DC7665D373E7BD
+magnet:?xt=urn:btih:FC0400152866B44D7ED0D0567AC176FAE63D1F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,21 +24,180 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317519   (499621) от 02.08.2019
+###  Публикация: 540204   (504905) от 28.08.2012
 
-П. И. Остриков (ред.) | Сборник документов по истории рабочего и социалистического движения стран Европы и США (1985) [DJVU, PDF]
+Best HD Wallpapers Pack (28.08.12) [Wallpapers]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_499621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В пособии собраны преимущественно документы официального характера, прежде всего программы, декларации, уставы социалистических партий и рабочих организаций стран Европы и США, решения партийных съездов и конференций по коренным вопросам стратегии и тактики в период с 1870 по 1914 г. Документы показывают положение рабочего класса, уровень стачечного движения в отдельных (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: DJVU, PDF
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7A45E968412DDDC1D407FCBB40F7B733F99CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539421   (504904) от 28.08.2012
+
+Desktop wallpapers (26.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F34DD00244A012F5F89A0581DEBC43403720F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540207   (504903) от 28.08.2012
+
+Design and interior of the wallpaper (28.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A780FFDD3765743223D072167A6A20427155E748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537875   (504902) от 28.08.2012
+
+Best HD Wallpapers Pack (21.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D3353590D637520A2A0E24876D382807030966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537879   (504901) от 28.08.2012
+
+Mixed Wallpapers (21.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80AC4957036491FA961FD5D057240C1146B74F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539427   (504900) от 28.08.2012
+
+Ships Wallpapers (26.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BFC4C90BAFA101AEEA915431414336A6BFBCFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540546   (504899) от 28.08.2012
+
+Термит & Иллюминатор - Новогодний  (2001) [FLAC|Lossless]<Ambient, Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странный симбиоз двух музыкальных начал, породивший в итоге неожиданный результат. Безграничная музыкальная фантазия, уводящая слушателей в эфемерное пространство иллюзий, умело создаваемых музыкантами. Стремительные ритмические завихрения, тесно переплетенные с мягкими мелодиями и атмосферными звуковыми конструкциями, создают завораживающий (гипнотизирующий) музыкальный коктейль. Качественные гитарные и клавишные аранжировки, вкупе с остальными инструментами, смешиваются с космическими напряжёнными шумами. Это придаёт музыке эффект напора, движения вперёд.01. Термит - Белоснежная :: 02:18
+02. Иллюминатор - Ты спишь :: 06:11
+03. Термит - Эдельвейс :: 06:07
+04. Термит - Апрель :: 10:16Жанр: Ambient, ChilloutФормат: Mini-CD, Web trackПродолжительность: 00:24:53
 
 ## Скачать торент
 ```bash
@@ -50,189 +209,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 541544   (499617) от 02.09.2012
+###  Публикация: 540362   (504897) от 28.08.2012
 
-VA - Территория Русских Новинок (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ring Girls - Танцуй Для Меня
-002. Couple - Дым
-003. Весна - Море дышит
-004. Ирина Билык - Моя любовь, как ягода
-005. Дима Билан - Так Не Бывает
-006. Алёна Свиридова - Се Ля Ви
-007. Ваня Чебанов - Найду!
-008. Карина Кокс - Все решено
-009. Aslan Feat. Misty - Знаю, Знаю
-010. Dan Balan - До Утра (Andry Makarov Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2326AEE87B8C79FA0391A919BC007F79D603035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541533   (499616) от 02.09.2012
-
-Sarva Antah - Mantras & Rituals (2009) [MP3|128-320 кб/с]<World, Meditative, Mantras>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499616.jpg" />
-</div>
-
-
-###  Подробнее
-
-(11:00) 1. The Eight Offerings (To Buddha)
-(05:56) 2. Om Vajrasattva Hum (Om Benza Satto Hum)
-(09:57) 3. Om Namo Manjushriye
-(08:58) 4. Mama Kara Ye Svaha (Mama Kara Ye Soha)
-(03:29) 5. Heart Mantra (Om Agani)
-(07:26) 6. Namo Mati Gana Ja
-(05:23) 7. Om Sambhara
-(08:31) 8. Om SarveshamЖанр: World, Meditative, MantrasПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8B6B8173FD35AAC0143109D8814DE5D42FA42E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542271   (499615) от 02.09.2012
-
-VA - Soul of Ibiza Volume 43 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499615.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmic Gate & J'Something - Over The Rainbow (Extended Mix)
-002. Evol Waves - Evolver
-003. Gareth Emery feat. Christina Novelli - Concrete Angel (John O'Callaghan Remix)
-004. Giuseppe Ottaviani & Betsie Larkin - Toys (Club Mix)
-005. James Dymond - Sunset Bench (Original Mix)
-006. Johan Vilborg - Altara (Original Mix)
-007. John '00' Fleming - The 10th Life
-008. Jon Oґbir feat. Julie Harrington - Perfect As You Are (Marcus Schossow Remix)
-009. Julian Vincent & Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
-010. Lange & Audrey Gallagher - Our Way Home (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F496A95CE35EA9F3A5FA597650489ED4212B010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542287   (499613) от 02.09.2012
-
-VA - 538 Dance Smash Vol.4 (2012) [MP3|320 кб/с]<Dance, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack - Rock The House
- 02. Usher - Scream
- 03. Otto Knows - Million Voices
- 04. Alex Kenji & Ron Carroll - Good Time (A-Lab Radio Edit)
- 05. Sander van Doorn & Mayaeni - Nothing Inside
- 06. Cash Cash - Michael Jackson (The Beat Goes On)
- 07. Asaf Avidan - One Day / Reckoning Song (Wankelmut Remix)
- 08. Mark Knight - Alright
- 09. Nicki Minaj - Starships
- 10. Basto - I Rave You (Give It To Me)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5401D9B8981F43B98B4DAE67140D700E0E0203F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542384   (499612) от 02.09.2012
-
-Газета | 1000 секретов [Украина] №17 (54) [сентябрь 2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499612.jpg" />
-</div>
-
-
-###  Подробнее
-
-"1000 секретов" - народная газета, которая будет полезна каждому без исключения. Она содержит по несколько полос из каждой области человеческой жизни: воспитание детей, кулинария, здоровье, строительство и ремонт, сад и огород, умелые руки, дизайн, физическое развитие, психологические и юридические консультации.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B028891FACFBAC3F9AA58FC6B531A2866D07FA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542435   (499611) от 02.09.2012
-
-Наука 2.0.Технологии спорта. Ралли – автогонки на льду (2012) SATRip
+История французских спецслужб [3 серия] / Histoire des services secrets français (2010) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Есть ли предел человеческих возможностей? Нет, когда в спорт приходят высокие технологии. Умные ткани предохраняют организм от перегрева, мяч со встроенной системой GPS сигнализирует о нарушении правил, уникальные камеры, которыми снимали "Аватар", помогают подобрать идеальную ракетку.Жанр: ДокументальныйПродолжительность: 00:25:19
+Французские спецслужбы считаются не только старейшими в Европе, но и самыми элегантными и коварными. Фильм студии PROGRAM 33 рассказывает об образовании и истории создания французских спецслужб.
+3 серия - История французских спецслужб. "Серьёзное недопонимание. 1981-1989 г.г"Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FF24085D7E4F5EC153AC7FCC25945EA736F0AA6
+magnet:?xt=urn:btih:B0EFB9B197306D1E22498F053294466E970EB148
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -240,117 +236,49 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 542544   (499610) от 02.09.2012
+###  Публикация: 539306   (504896) от 28.08.2012
 
-Просто, как смерть / Dead Easy (2004) DVDRip
+Best HD Wallpapers Pack (24.08.12) [Wallpapers]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чтобы добиться развода с женой, успешный бизнесмен Саймон Сторм, оплатив услуги, получает доказательства ее неверности. Простая задача, казалось бы, решена.
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B19F16564F3D22CDFEC89CD3E136D2143EFE3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539947   (504895) от 28.08.2012
+
+Any Video Converter Professional 3.5.0 RePack (& portable) by KpoJIuK [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Converter Pro - это программа для конвертирования видео файлов. Она позволяет перекодировать популярные видео форматы (AVI, MOV, RM, MPEG, DVD, WMV, MP4 и FLV) в DVD, VCD, MP4 или FLV. В утилите присутствует возможность использовать для кодирования файлов как готовые профили с установленными параметрами видео, которые ориентированы на определенные устройства (бытовой DVD-проигрыватель, мобильный телефон), так и самостоятельно подбирать свои настройки конвертирования. Перед началом кодирования видео, его можно просмотреть во встроенном проигрывателе.
 
-Но он ошибся! Ничто не достается просто, если замешаны большие деньги. Теперь Саймон готов заплатить даже за убийство, не понимая, что это уже совсемдругая игра! И сможет ли он диктовать условия сделки, когда заказана чья-то смерть?!Жанр: ТриллерРежиссер: Нил СандстромАктеры: Ричард Греко, Танди Пурен, Джоанна Пакула, Рон Смержак, Рассел Савадье, Лэнгли Кирквуд, Брэндан Полекатт, Камилла Уолдман, Грегг Вилджоен, Роланда МареПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF17D19BBDC4EB193E655ED5616B1765E7AF27ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542192   (499609) от 02.09.2012
-
-Детективы Агаты Кристи: Убийство в трех актах / Murder in Three Acts (1986) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499609.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Акапулько, в замке экстравагантного и гостеприимного хозяина — миллионера, происходит светский раут. Гостям, элегантным дамам и господам, среди которых — сам Эркюль Пуаро, предлагают перед трапезой прохладительный коктейль. В один из бокалов подмешан яд…Жанр: Драма, Криминал, ДетективРежиссер: Гэри НельсонАктеры: Питер Устинов, Тони Кертис, Эмма Сэммс, Джонатан Сесил, Фернандо Альенде, Педро Армендарис мл., Лиза Айкхорн, Дэна Элкар, Фрэнсис Ли МакКейн, Мэриан МерсерПеревод: ДублированныйПродолжительность: 01:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F3258265123BDAA4C229890E15EE137CB9FD46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539504   (499608) от 02.09.2012
-
-TrollfesT - Brumlebassen (2012) [MP3|320 кб/с]<Folk Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brumlebassen (05:38)
-02. Böse Tivoli (04:07)
-03. Illsint (03:06)
-04: Hevlette (01:48)
-05. Finsken, Norsken And Presten (04:31)
-06. Mystisk Maskert (01:45)
-07. Apis Mellifera (04:33)
-08. TrinkenTroll (03:09)
-09. Verboten Kjærleik (04:04)
-10. Bråk (04:12)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A459FEF7770C1E1C596DD77F3990B49E1CD6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542323   (499607) от 02.09.2012
-
-Lunar Aurora - Hoagascht (2012) [WavPack|Lossless]<Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Im Gartn (6:59)
-02. Nachteule (6:53)
-03. Sterna (6:30)
-04. Beagliachda (5:42)
-05. Håbergoaß (5:14)
-06. Wedaleichtn (6:13)
-07. Geisterwoid (6:06)
-08. Reng (7:32)Жанр: Atmospheric Black MetalПродолжительность: 00:51:08
+(   Читать дальше...   )Название программы: Any Video Converter ProfessionalЯзык интерфейса: MULTi / Русский
 
 ## Скачать торент
 ```bash
@@ -362,34 +290,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540954   (499606) от 02.09.2012
+###  Публикация: 537874   (504894) от 28.08.2012
 
-Butterfly - Trance Life Radio Podcast 002 (August 2012) (Guest Stan Sanych) (28.08.2012) [MP3|320 кб/с]<Progressive House, Progressive Trance, Vocal Trance>
+Computer Desktop Wallpapers Collection (21.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9487E9B30D8A4CFBB4BD0FB250066A8A2A80EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538602   (504893) от 28.08.2012
+
+Monjes Budistas - Sakya Tashi Ling (2005) [MP3|~245 кб/с (V0)]<New Age, Enigmatic, Ambient, Ethnic>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pre-party Live Mix:
-01. Glenn Morrison -  Triangle & Strings (Tom Middleton Remix)
-02. Aleksey Beloozerov -  For Those Who Sleeps (The Fusion Remix)
-03. Davor Bojanov -  Abstract (Original Mix)
-04. Rank 1 -  Opus 17 (Nuera 2012 Remix)
-05. EDX feat. Hadley -  Everything (Dub Mix)
-06. Kastis Torrau & Arnas D -  Atlantic (Original Mix)
-07. Gregory Esayan & Shinobi -  Astro Ibiza (Original Mix)
-08. Internos feat. Tiff Lacey -  Hidden Sorcery (Matrick Remix)
-09. Glenn Morrison -  Transparent Road (Original Mix)Жанр: Progressive House, Progressive Trance, Vocal TranceПродолжительность: 03:56:42
+01. My spirits flies to you
+02. Secret energy
+03. The other side
+04. River of light
+05. I wanna fly
+06. Om sai ram
+07. Way to Kundalini
+08. Blessings for life
+09. Emotions
+10. Urban Buddishm(   Читать дальше...   )Жанр: New Age, Enigmatic, Ambient, EthnicПродолжительность: 00:50:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54106EAB4BEDB4B4FB63730BD29E45151EEE68AA
+magnet:?xt=urn:btih:696D797AD09D4D0ADC83867540FF5B3832993FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,25 +351,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 542003   (499605) от 02.09.2012
+###  Публикация: 539410   (504892) от 28.08.2012
 
-Журнал | Кулинарный практикум №7 [июль 2012] [PDF]
+Художник Ivan Berryman [Графика]
 
->>Журналы
->>Домоводство (журналы)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Практичный журнал для современных хозяек, который служит надежным источником полезной и практичной информации о продуктах питания и способах приготовления вкусной и здоровой пищи. Он знакомит читателя с новинками бытовой техники и продуктов питания; раскрывает секреты здорового питания и рецепты от звезд кино, телевидения и шоу-бизнеса. Множество разнотиповых подробных рецептов с красочными фотографиями, указанием калорийности, количества персон, затрат времени на приготовление.Формат: PDF
+Художник Ivan Berryman
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4665B5FCAFA43D7EB5A61E60B53170CDB0A5058
+magnet:?xt=urn:btih:232D9A1CA32789B26C57757982775E280D05B480
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,25 +377,90 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 542211   (499602) от 02.09.2012
+###  Публикация: 539430   (504891) от 28.08.2012
 
-Журнал | Загадки истории №7 [2012] [PDF]
+Wallpapers - Ангелы (26.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AEAF7DE37777613D59D7D91180FF44BD07DE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540330   (504888) от 28.08.2012
+
+Mistic - Mistic (2006) [MP3|192 кб/с]<New age, Gregorian Chant>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mistic
+02 - 10 Przykazan
+03 - Statki Na Niebie
+04 - Zaluje
+05 - Kiedy Powiem Sobie Dosc
+06 - Wiara
+07 - Kropla Deszczu
+08 - Kolysanka Dla Nieznajomej
+09 - To Co Dobre
+10 - Imie Deszczu(   Читать дальше...   )Жанр: New age, Gregorian ChantПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76125D3E0A8DDBBB1485473B0B2DC69B9CBEB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540037   (504886) от 28.08.2012
+
+Газета | Час України № 10 [2004] [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Формат: PDF
+Краснодарский выпуск газеты.
+ Полностью посвящён президентским выборам на Украине - "проянуковичевская" агитация.
+ Издание распространяется бесплатно.
+
+В номере 20 страниц формата А3, собственный скан.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17C5A6FB38F2B0FC10452568499222453CAD7518
+magnet:?xt=urn:btih:B17F4F7DE0DD15F21ADF0DB6B840F364C74BF53B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,34 +468,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 542295   (499601) от 02.09.2012
+###  Публикация: 538175   (504885) от 28.08.2012
 
-VA - Top 50 Club Hits September (2012) [MP3|320 кб/с]<Dance, Club>
+VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native American, Ethno, New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504885.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sacred Ground - Bill Miller (6:21)
+2. Can You Hear The Call - Robert Mirabal (6:37)
+3. Mountain Song - Star Nayea And Primeaux & Mike (6:00)
+4. Spirit Wind - Bill MIller (5:05)
+5. Seeking Light - Joanne Shenandoah (6:13)
+6. Raven - Little Wolf Band (5:43)
+7. People Of Yesterday - Robert Mirabal (5:00)
+8. Prayers In The Wind - Little Wolf Band (4:07)
+9. Let Us Dance - Primeaux & Mike And David Carson (5:16)
+10. Mother Earth - Walela And Joanne Shenanadoah (4:50)Жанр: Native American, Ethno, New Age, Ambient, DowntempoПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA3F30A0A8C6B3D3A041E558DB36B1D33A3D960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540340   (504884) от 28.08.2012
+
+Павел Попович. Космические приключения (2008) SATRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vivo feat. Orel - Bitchy Girl (Extended Edit)
-02. DJ MaGnUm & DJ Lion feat. K-Flow - Party People (Radio Edit)
-03. Christopher S & Slin Project feat. Tommy Clint - Tear Down The Club (Extended Mix)
-04. Jeronimo - One Kiss (CJ Stone & ReFuge Radio)
-05. DJ Yankovski & InVersia - Football (Spain Version)
-06. D. O. N. S. & Mikael Weeremts feat. Kadoc - The Nighttrain 2k12 (Jidax Remix)
-07. Dutch Agency feat. Antoine Delvig & Yulya - I Wanna Kiss You (Radio Edit)
-08. Dave202 vs. Cerf Mitiska Jaren - Arrival vs. Beggin You (Armin Van Buuren Mashup)
-09. Gary Caos - Specialize In Love (Radio Edit)
-10. Digital LAB & Pedro Henriques ft Polina - Spirit in My Life (Original Mix)Жанр: Dance, ClubПродолжительность: 04:48:55
+Фильм о Поповиче Павеле Романовиче – пилоте космического корабля «Восток-4», подполковнике; командире космического корабля «Союз-14», полковнике. Лётчике-космонавте СССР № 4 и 6-м космонавте мира.Жанр: Телепередача, ДокументальныйПродолжительность: 00:51:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:035ACA2FF442527907ABD206C2697CF7D78A6D8E
+magnet:?xt=urn:btih:0EA7598A36944D58819DF8029C48B7421B2C7164
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,25 +529,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564627   (499600) от 19.07.2022
+###  Публикация: 540354   (504881) от 28.08.2012
 
-Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life Suru Koto ni Shimashita | Меня выгнали из гильдии героев [2021, TV, 13 эп.] BDRip 1080p raw
+Журнал | Вкусно и полезно №49 [сентябрь 2012] [PDF]
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доблестный и могучий авантюрист мечтает... открыть аптеку? В прошлом Ред был членом отряда героя, сильнейшей группы, призванной спасти мир от злых сил Тараксона. Но в один момент всё поменялось, когда один из товарищей Реда решил выгнать его из отряда. После произошедшего Ред задумывается над открытием собственной аптеки и о спокойной жизни в глуши. Однако сохранить (   Читать дальше...   )Жанр: приключения, фэнтези, романтикаРежиссер: Хосино МакотоПеревод: Wakanim (оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+«Вкусно и полезно» - это коллекция лучших рецептов, собранных за всю историю журнала «Домашний очаг» и много интересных сведений и дополнений: знакомство с различными кухнями мира, интервью с лучшими поварами столицы - представителями восточной и европейской кухни, рецепты фирменных блюд самых известных ресторанов Москвы.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C2838DAC988AA1C624DC18F196C2656AFFE7F0B
+magnet:?xt=urn:btih:1FF27F569477DD5C0FE8A41A543588E74DF2FC97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,26 +555,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564648   (499599) от 19.07.2022
+###  Публикация: 539406   (504880) от 28.08.2012
 
-MusicBrainz Picard 2.8.2 + Portable [Multi/Ru]
+Kuang Hong [Графика]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MusicBrainz Picard - простая в использовании программа для редактирования тегов аудио файлов, которая поддерживает большое количество разнообразных форматов, включая MP3, Ogg Vorbis, FLAC, MP4 (AAC), Musepack, WavPack, Speex и пр.
-Приложение анализирует музыкальный трэк и ищет его в онлайн базе MusicBrainz, если совпадение найдено, то программа скачивает всю информацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Kuang Hong
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22C2A61D9E42A8FC93C5B87D63FE8BC7AC8027AF
+magnet:?xt=urn:btih:CCC808BE84A230A3C5E540EDF8247D65DF968239
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,25 +581,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564625   (499598) от 19.07.2022
+###  Публикация: 539936   (504879) от 28.08.2012
 
-Джеральд Даррелл | Переход (2020) [MP3, Puffin Cafe]
+VA - I love Electro Music vol.1 (2012) [MP3|320 кб/с]<Club, Dance>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Однажды к известному букинисту Питеру Леттингу обращается молодой человек с просьбой провести каталогизацию своей домашней библиотеки. Вскоре Питер и Гидеон (так зовут молодого человека) становятся довольно близкими друзьями. Но у Гидеона есть семейная тайна, в которой фигурируют его старый дядюшка и... зеркала. Зеркала, развешанные в большом доме дядюшки, скрывают (   Читать дальше...   )Жанр: МистикаПродолжительность: 02:07:37
+1. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 13
+2. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 16
+3. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 2
+4. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 7
+5. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 8
+6. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 9
+7. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 14
+8. Alex Sayz ft Nadia Ali - Free To Go (Original Mix)
+9. Alexander Popov Feat. Kyler England - My World (Dub Mix Edit)
+10. Bel Suono & DJ Magic Finger  - Te Quiero(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:58:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43640A133C95335E9E6D2646091E7FC5EC370B6B
+magnet:?xt=urn:btih:219D00CEBE765877F2C61AE83A1FA479D6D1A31C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,25 +616,62 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564543   (499597) от 19.07.2022
+###  Публикация: 540317   (504877) от 28.08.2012
 
-Break Me Down - 1 Album, 3 Singles (2019-2022) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
+Григорий Горин (1998) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интервью с драматургом, сценаристом Григорием Гориным о жизни и творчестве.Литературную деятельность начал с сочинения сценок для студенческого «Клуба весёлых и находчивых» (КВН).
+Горин любил рассматривать всем известные истории с необычного угла зрения. У него Мюнхгаузен — честнейший человек, а граф Калиостро — понаехавший в Россию жулик-гастарбайтер.
+Каждый год Горин выдавал на-гора что-то безусловно годное: театральную пьесу, киносценарий, книгу. В мире кино сначала приобрёл известность как автор сценария (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 00:21:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB12598F6BD20DC27867C5716ED4AD0F3DD7DC45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538164   (504876) от 28.08.2012
+
+Charlie Shred - Charlie Shred (2012) [FLAC|Lossless]<Power Metal/Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. See Me Fall (Single) [00:04:01]Жанр: Alternative Metal, Female VocalПродолжительность: 00:51:21
+01. Arise (0:48)
+02. Panic (4:25)
+03. Death Comes to All (5:04)
+04. The Rose (3:56)
+05. Tainted Inside (3:34)
+06. Time to Die (3:00)
+07. The Ancestors Guide (3:15)
+08. Game Over (5:12)
+09. Wellcome to Hell (4:11)
+10. Fall Down (6:30)(   Читать дальше...   )Жанр: Power Metal/Heavy MetalПродолжительность: 00:43:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81EE41220A44014EBC54953C7EC8C66F4B33A890
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,25 +679,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564553   (499596) от 19.07.2022
+###  Публикация: 540297   (504875) от 28.08.2012
 
-Джеймс Блиш | Закон Чарли (2021) [MP3, Максим Тарлавин (Scaners)]
+Загадочная птица Моа / The Mystery Of The Giant Birds (2001) TVRip
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На планете Фэзас разбился исследовательский корабль, и пережил катастрофу только Чарли Эванс. Четырнадцать лет он провёл на этой планете, единственный человек среди фэзиан. Когда за ним прилетели земляне и забрали с собой, они не сразу поняли, что в Чарли не осталось ничего человеческого…Жанр: ФантастикаПродолжительность: 00:33:08
+Новая Зеландия - царство птиц, родина моа - самой большой птицы на свете. Существовала ли она на самом деле? Или это всего лишь легенда.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFC7F3A8B73D8A223702B20A0453DCC446BCE35F
+magnet:?xt=urn:btih:ADB5274881E6A53B07FB70C8BD7A098C7E5B94B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,138 +705,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564411   (499595) от 19.07.2022
+###  Публикация: 539402   (504872) от 28.08.2012
 
-Убийство в семье / Mord in der Familie - Der Zauberwurfel / Murder Squared (2021) WEBRip (сезон 1, серии 1-4 из 4) ViruseProject [AD]
+СОБР «БУЛАТ» [Графика]
 
->>Зарубежные сериалы
->>Сериалы с рекламой
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Томас Беккер, сын строительного магната Генри Беккера, застрелен в своей машине в первый день Нового года. Инспектор Барбара Фальк и коллега Кристиан Крамер в первую очередь подозревают, что убийство связано с обрушением дома-куба, амбициозного строительного проекта компании «Беккер и сын», которой руководит единокровный брат убитого Эрик БЕккер. В результате катастрофы (   Читать дальше...   )Производство: Германия / Rowboat Film- und FernsehproduktionЖанр: драма, криминал, детективРежиссер: Михаэль ШнайдерАктеры: Матиас Кеберлин, Хайнер Лаутербах, Лукас Грегорович, Петра Шмидт-Шаллер, Катарина Лоренц, Сабина Уинтерфелдт, Wolf Danny Homann, Jacob Speidel, Patrick Simons, Нино Порцио и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: Русские (отдельным файлом)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+Расположение СОБР «БУЛАТ» КМ ГУВД Московской области. Во время съёмок бойцам СОБРа было предложено при всякой возможности действовать (ходить, сидеть, бежать и целиться) как в боевой обстановке.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AB852C6D1ECB250397BC0383B0CF15D25C887EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564542   (499594) от 19.07.2022
-
-Sorrowful Knight - Legacy of The Knight (Best of 2014-2020) (2022) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Kingdom of Rock [00:03:29]
-02 - The Fall Of Olympus [00:04:18]
-03 - Dead Space [00:04:17]
-04 - The Final Starfall [00:07:49](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB22D8DE9A98509A6F3B45A50997A3897C804C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564561   (499593) от 19.07.2022
-
-Нейро - С обратной стороны (2015) Remastered, 2022 [MP3|320 Kbps] <Industrial Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро [00:03:00]
-02 - С обратной стороны [00:03:50]
-03 - Жажда крови [00:03:29]
-04 - Когда она... [00:04:36](   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CCE82A089C03467BEDA068C05617757A3BF2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564429   (499592) от 19.07.2022
-
-Wicked Sensation - Outbreak (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mission Timewalker (Intro)
-02. Starbreaker
-03. Child of Sorrows
-04. Light in the Dark (feat. Gus G)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55936E9288C991E3F1AFA08BFCC74AB387088DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564559   (499591) от 19.07.2022
-
-Garmin: TopoActive South America 2020.10 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покорите Южную Америку с помощью этой универсальной карты, оптимизированной для активного отдыха и составленной из базы данных созданной сообществом OpenStreetMap (OSM).Тип издания: РазблокированоРелиз состоялся: февраль 2020Разработчик: Garmin / OSMПоддерживаемая ОС: GarminЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62592CF860BA611517296D2010EF4090EE69AB60
+magnet:?xt=urn:btih:6A21C78A0093B1AC6E53681217BB56D22F6E1619
 ```
 
 https://mybot314.ru/tekegram_catalog/

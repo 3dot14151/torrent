@@ -1,3 +1,90 @@
+###  Публикация: 1356268   (980543) от 29.01.2020
+
+VA - Heaven With You: Chill House Mixtape (2020) [MP3|320 Kbps] <Chill, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980543.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jack Burton - Beacon Of Light
+002. James Corquita - Distancia Paralela
+003. The Ambientalist - Cast A Spell
+004. Lounge Pilots - Any Lounge Color(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC20FA9C894B497BB8C7D3A9B1FA375B0E519428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355795   (980541) от 29.01.2020
+
+VA - Blissful Journey: Vocal Chillout (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980541.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J-E-T-S Jimmy Edgar - Potions
+002. Stergios - Dream Sky (Silence Mix)
+003. Manu Zain - I Never Knew How
+004. Ani Williams - House Of Horus(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 09:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D04483136ED3E629C5AA972262D7D7667ABB7CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355852   (980529) от 29.01.2020
+
+VA - Beauty Interior Lounge Music (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980529.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carlo Peralta - Cala Carbo
+002. Silence Of The Sirens - Roberto Bronco
+003. Soulful-Cafe - Really Gone
+004. Love In Stereo - Mojardo(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 11:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FAF1555A466398FD689DAD53CE363579E645117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973216   (980330) от 08.01.2016
 
 VA - Ladies Night Festival (2016) [MP3|320 кб/с] <House, Progressive, Electro>
@@ -692,93 +779,6 @@ VA - Top50: Tracks Deep House Ver.17 (2020) [MP3|320 Kbps] <House, Deep House, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51BFA3FAD07632AEB35539031ABC02C13DD54445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974815   (975805) от 12.01.2016
-
-VA - Tech House Masters Fresh (2016) [MP3|259-320 кб/с] <Deep House, Minimal, UK Jackin, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Derek Howell - Lickety Split (Original Mix) 08:12
-02. Jim Noize - Amplify (Radio Edit) 03:59
-03. Perseus Traxx - Harmony Of Elements 07:31
-04. Mcmxc - 12 Dec / 13 Jun 04:11(   Читать дальше...   )Жанр: Deep House, Minimal, UK Jackin, SoulfulПродолжительность: 09:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788651B60DB6BD1DCFED4C1B544205ADA6E90903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974180   (975800) от 12.01.2016
-
-VA - EdShar Music (10.01.16) [MP3|128-320 kbps]<DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliverse - Wormholes (03:20)
-02. Jarvis & Roughmath - Time (feat. Ivy J) (04:21)
-03. BH & Kirk Cosier - Slipping Away (feat. Cheney) (03:49)
-04. Tristam - My Friend (04:22)(   Читать дальше...   )Жанр: DubStepПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57142A50E04C73342F4F18A67B6AD557340207ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974810   (975795) от 12.01.2016
-
-VA - Alive Strong Best Of Hits (2016) [MP3|262-320 кб/с] <Electro, Club, Bigroom, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canberra - Rebirth
-02. Exis - Manifestation (Original Mix)
-03. The Fish House - Venture (Original Mix)
-04. Fedde Le Grand - The Noise (Original Mix)(   Читать дальше...   )Жанр: Electro, Club, Bigroom, Future HouseПродолжительность: 03:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0A06BF10E41F279A8A5C4F16C1AD5B83AB4975
 ```
 
 https://mybot314.ru/tekegram_catalog/

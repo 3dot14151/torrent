@@ -1,3 +1,119 @@
+###  Публикация: 1180364   (340278) от 04.11.2017
+
+VA - Radio Mania Vol. 1-2 (2016) [MP3|320 Kbps] <EuroDance, EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chito - Cold as Ice (4:02)
+02. Nikita Fomin - Stranger (3:52)
+03. The Daylite - Do I Love You (80's Disco Mix) (3:16)
+04. Chito - The Long Tomorrow (4:09)(   Читать дальше...   )Жанр: EuroDance, EuroDiscoПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD061C69B33E8E87FEA641EB2012BC3FC7F7E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180405   (340142) от 04.11.2017
+
+The Universal Robot Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340142.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Universal Robot Band - американская музыкальная группа в составе: Gregory Carmichael, Patrick Adams, Leroy Burgess, Gregory Tolbert и Woody Cunningham. Сформированы Патриком Адамсом и Грегом Кармайклом в 1976, их дебютный сингл "Dance And Shake Your Tambourine" достиг максимума в топе 25 хитов в танцевальной клуб-музыке.01. Flintstone Disco (8:52)
+02. Dance And Shake Your Tambourine (6:21)
+03. You're My Music (5:05)
+04. Space Disco (11:47)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE2F4F97F563FD97BD6D0EDE201E0CC088469B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419463   (339988) от 28.10.2020
+
+Gene Farrow - Move Your Body (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move Your Body  (5:43)
+02. Woman  (3:32)
+03. One Night In New York  (3:29)
+04. Do It Again  (3:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C17A25E4D72F28B2F09C8E6002B5C15CE2308D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954738   (339711) от 08.11.2015
+
+Sabrina - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys (Summertime Love) (03:53)
+02. Hot Girl (03:38)
+03. Get Ready (Holiday Rock) (03:20)
+04. Kiss (03:37)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4A6C9DA0E76B1BB3FE1084D550B5C7699AE268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954666   (339594) от 08.11.2015
 
 Gazebo - Reset (2015) [MP3|~245 кб/с (V0)]<Italo Disco, Synthpop>
@@ -634,122 +750,6 @@ Syndicate - The Best Disco 80 (1980) [MP3|320 кб/с]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD89CF6FDCC0480FD5B6CF6C120B3821F7AC3BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421104   (321904) от 03.11.2020
-
-Bad Boys Blue - Tears Turning To Ice (2020) [MP3|320 Kbps] <Dance, Pop, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killers (03:49)
- 02. Tears Turning to Ice (03:19)
- 03. Love Love Love (02:56)
- 04. A Million Times in Heaven (04:07)(   Читать дальше...   )Жанр: Dance, Pop, Euro-DiscoПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B6340AB80F7393C35B55FB84713B2D562A1D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332062   (318505) от 18.10.2019
-
-VA - Musicland - The Sound Of Munich (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы и продюсеры: Giorgio Moroder, Pete Bellotte01. Giorgio - From Here To Eternity (3:50)
-02. Donna Summer - Love To Love You Baby (3:26)
-03. Munich Machine - Get On The Funk Train (3:57)
-04. Trax - Dance (5:58)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA775FC39504D27AC624F777D1E5D942F5279310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332003   (318503) от 18.10.2019
-
-Syncophonic Orchestra - Columbia - A Space Symphony (1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автором и продюсером проекта является Alec R. Costandinos, выпустивший диск под псевдонимом A. Kouyoumdjian.01. Ignition (1:41)
-02. A Theme For Columbia (3:35)
-03. Tomorrow Starts Today (3:26)
-04. The Conquest (4:43)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134A74E74F0CD7C1DA593B503EA581BBCC193CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181892   (316946) от 10.11.2017
-
-VA - Italian Style Everlasting Italo Dance Compilation Vol.8 (2017) [MP3|320 Kbps] <Italo-Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boris Zhivago - Rainy Day (BCR Extended TGV Version)  6:32
-02.  Emy Care - Once In A Lifetime (BCR Long Runners Mix)  5:08
-03.  Ranger - Breaking My Heart (BCR Long Venice Mix)  6:43
-04.  Limelight - Forever Lovers (BCR Extended Modern Version)  6:50(   Читать дальше...   )Жанр: Italo-Disco, EurodanceПродолжительность: 02:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA713D4D93F309D5FEE4E4CEA8F9E764583C5B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

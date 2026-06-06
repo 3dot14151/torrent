@@ -1,3 +1,96 @@
+###  Публикация: 623211   (955349) от 26.02.2013
+
+VA - Gold of Teddy Killerz (2013) [MP3|320 кб/с]<Drum'n'Bass, Dub Step, Glitchhop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955349.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Modestep - Evolution Theory (Teddy Killerz Remix)
+2. Modestep feat. Teddy Killerz and Ghetts - Inside My Head
+3. Nishin Verdiano, AK9 – Bitch Please (Teddy Killerz Remix)
+4. Skrillex feat. Damian Marley - Make It Bun Dem (Teddy Killerz Remix)
+5. Teddy Killerz - Bad Taste
+6. Teddy Killerz - Hunger
+7. Teddy Killerz - New Drums
+8. Teddy Killerz - Ravezone Anthem
+9. Teddy Killerz - Samsyka
+10. Teddy Killerz - Scary(   Читать дальше...   )Жанр: Drum'n'Bass, Dub Step, GlitchhopПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA57CFA94547F64B418450FF383766BB0DD035E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088739   (955150) от 01.01.2017
+
+VA - 90s Dance Classics (2016) [MP3|320 Kbps] <Latin Pop, Jazz, Soul, Dance, RnB, Swing, Garage House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna - Vogue 05:18
+02. En Vogue - Hold On (Hip Hop Remix) 05:50
+03. All Saints - Lady Marmalade (Timbaland Remix) 03:40
+04. Clubland - Hypnotized (Pka Full Philly 7) 04:09(   Читать дальше...   )Жанр: Latin Pop, Jazz, Soul, Dance, RnB, Swing, Garage HouseПродолжительность: 01:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4660B9EF7FACF1A4DA04307802C0D2214A29989A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361301   (955129) от 19.02.2020
+
+VA - Дискотека 2020 Deep House - The Best Vol.7 от NNNB (2020) [MP3|320 Kbps] <Deep House, Nu Disco, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diego Power - Don't Look at Me (Original Mix) (5:08)
+02. Serge Legran - Love me like crazy (4:19)
+03. TRITICUM - Waiting For (Original Mix) (3:06)
+04. A. Rassevich, Susie Johnson - The Dice (5:13)(   Читать дальше...   )Жанр: Deep House, Nu Disco, OtherПродолжительность: 38:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67076521951D0D0F6C9FECDA807B75355E192AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088808   (955069) от 01.01.2017
 
 VA - Record Dance Label: Compilation Vol.7 (Christmas Edition) (2017) [MP3|320 Kbps] <House, Melodic, Dance, Club>
@@ -664,93 +757,6 @@ VA - Sunday Privilege, Vol. 4 (25 Luxury Lounge Anthems) (2015) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:956A75936EDEAC370C3F4DC4B0DCBA4EBBA4646E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981533   (949803) от 02.02.2016
-
-VA - Absolute Dance Hits Vol.2 (2016) [MP3|320 кб/с] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Blue & Judith - Dance (Extended Mix) [04:20]
-02. Overtune - How Does It Feel (Clubbticket Remix) [05:27]
-03. Pulsedriver & Tiscore - My Love (Topmodelz Remix) [04:39]
-04. Carolina Marquez - Summerlove Right Now (Na Na Na) (Bruno Mayron Remix) [05:17](   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 05:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3162403F12682BE90DDA5EADDCC9E8E462E8625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362235   (949546) от 23.02.2020
-
-VA - Record Super Chart 626 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carla Morrison - Disfruto 3:57
-02. SAINt JHN - Roses (Imanbek Remix) 3:58
-03. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
-04. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78A2F160D1DD64CC742E28B0484CB74A8821479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362019   (949460) от 23.02.2020
-
-VA - Sounds Trance Euphoria (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wellkum - It's You
-02. Dj Xboy - Never Ever Give Up
-03. Dark Matter - When Faith Fades
-04. Ehren Stowers - Swarm (Club Mix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 07:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E40CE50194FBC3D636150C6C15FD0BA15BF8D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

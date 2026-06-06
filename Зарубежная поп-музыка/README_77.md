@@ -1,3 +1,90 @@
+###  Публикация: 1671964   (170932) от 26.10.2023
+
+VA - Bravo The Hits 2023 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170932.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Miley Cyrus - Flowers (3:20)
+02. Udo Lindenberg & Apache 207 - Komet (2:47)
+03. Metro Boomin, The Weeknd & 21 Savage - Creepin' (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CBB71A1405FBE948736CD68C248311F90820723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672084   (170385) от 27.10.2023
+
+VA - A'dam After Disco (2023) [MP3|320 Kbps] <Funky, Nu Disco, Indie Dance, Soulful>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazibiza & House Of Prayers - One Night In The Disco (Original Mix)
+02. Mike Newman - Say I Love You (Original Mix)
+03. House Of Prayers & Crazibiza - Double Disco (Radio Mix)
+04. Ryan Fz & Mike Newman & Crazibiza - So Much Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Nu Disco, Indie Dance, SoulfulПродолжительность: 02:53:33 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFDC7EBE3A0B703DE32DCED614A051F193D8D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671989   (170375) от 27.10.2023
+
+DJ Shadow - Action Adventure (2023) [MP3|320 Kbps] <Hip-Hop/Rap>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ozone Scraper
+02. All My
+03. Time and Space
+04. Craig, Ingels, & Wrightson(   Читать дальше...   )Жанр: Hip-Hop/RapПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6283FE242B1D99912BF04769F2808AA3D8104E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672070   (170351) от 27.10.2023
 
 VA - Indie Disco Hits (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Synth Funk>
@@ -658,93 +745,6 @@ VA - Hit News Vol. 7 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5158D6D1CD66B0733A5D21CFDDB530562D82B95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433180   (161363) от 20.12.2020
-
-The Chap - Digital Technology (2019) [MP3|320 Kbps] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring Your Dolphin (04:07)
- 02. Pea Shore (04:30)
- 03. I Am the Emotion (02:43)
- 04. I Recommend You Do the Same (04:57)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7980852D2D3CF9DE5776085431D1479CCA8513E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432984   (161201) от 20.12.2020
-
-VA - Zumba Beats Strong 2021 (2020) [MP3|320 Kbps] <Electro Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samuel Kimkò, El 3mendo - Mi Novia - Radio Edit (3:15)
-02. Joe Berte - Choka Choka (feat. El 3mendo) - Club Radio Edit (3:04)
-03. Diego A., Oscar Yestera - Retumba Moombah - Original mix (3:29)
-04. Luka J Master, Carlo M. - Baila! (feat. Karlon Urbano) - Radio Mix (2:43)(   Читать дальше...   )Жанр: Electro Pop, DanceПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11152B7E3FDC8C0CA4E46C989CA816C21E22A04F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674669   (160852) от 06.11.2023
-
-VA - Let´s Go Dancing All Night (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emdey - All Night (02:33)
-02. Lady Gaga - Just Dance (04:04)
-03. FORTELLA - Get Up Off The Floor (02:35)
-04. Tobias Bergson - Lost In Time (05:24)(   Читать дальше...   )Жанр: Dance, Club, Pop, ElectronicПродолжительность: 02:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96176F30E7A2F5C771173F6B9FAAC1EBC97C10F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

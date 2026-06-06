@@ -1,3 +1,90 @@
+###  Публикация: 1505344   (802938) от 28.10.2021
+
+VA - Synth of Waves 5 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Mortal - Hex Machina (Gertrudda Edit) (5:08)
+02. Alex Boychuk - Escape (5:13)
+03. Michael Cassette - My Name Is Michael Cassette (Extended Mix) (5:28)
+04. FM Attack - Cinematic (4:37)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC8FDC4B660251228ECCDB7A0CE7D034AF2D783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505350   (802927) от 28.10.2021
+
+VA - Synth of Waves 6 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demesys - Cocktails & Dreams & Tropical Haze (Gertrudda Edit) (7:53)
+02. Backfrom84 - Lost Summer Love (4:33)
+03. The Midnight - Nighthawks (Gertrudda Summer Mix) (8:17)
+04. Stan DuClare - Newtown Mall (3:14)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672A101E572290C756393D72DFC1F224A44A618D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505334   (802866) от 28.10.2021
+
+VA - Synth of Waves 3 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castroe - Chase Arrival (Gertrudda Edit) (8:58)
+02. 2DCAT - On My Own (3:38)
+03. Runaway Droid - Dance (3:29)
+04. A-Reis - Hyperdrive (4:13)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18004B4D53A73D45BE844D65A5756FAFF123726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505545   (802861) от 28.10.2021
 
 VA - Beatport Drum And Bass: Sound Pack #359 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
@@ -655,93 +742,6 @@ VA - Club Night Cream Moon (2018) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6832DA15E1D9E2EA4AA78D51C3F8E8ECDB19DC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121076   (800617) от 02.04.2017
-
-VA - Trance Traveling 87 (Mixed by VNP) (Special Uplifting Mix) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Suncatcher - The Beach (Extended Mix)  6:07
-02.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (Standerwick Remix)  3:40
-03.  Heatbeat - Bondi (Extended Mix)  4:36
-04.  Ben Gold - Pilot (Extended Mix)  4:52(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 03:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C8BD7E83E4B25B3BB19CC9A0577A2B02E92515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121292   (800547) от 02.04.2017
-
-VA - Deep House Collection Vol.115 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A - Mase - Spring Love, Mad Love (Radio Mix) 3:08
-002. Acidbro - Moon Day (Vip Tech Mix) 6:57
-003. Andrey Exx - Need to Feel Loved (Original Mix) 6:53
-004. Anton Suchorukov - Tagtraum (Original Mix) 4:45(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D69690693499768D102FB65283CDA8834941A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121479   (800497) от 02.04.2017
-
-VA - Future Trance - Best Of 20 Years (2017) [MP3|320 Kbps] <Future House, Techno, Trance, Hands Up, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scooter - Posse (I Need You On The Floor)  3:52
-02.  Jan Wayne meets Lena - Total Eclipse Of The Heart  3:30
-03.  Sylver - Forever In Love  2:44
-04.  Darude - Sandstorm  3:46(   Читать дальше...   )Жанр: Future House, Techno, Trance, Hands Up, Dance, ClubПродолжительность: 05:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12C68567485A6A15D78F59DD86C4AE28F7D9502
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,143 @@
+###  Публикация: 486008   (89837) от 21.04.2012
+
+VA - Galaxy (2011) [MP3|256 кб/с]<Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intru.der - Galaxy (5:50)
+02. Synthaurion - No Return From Here (6:23)
+03. Lahniz - Troubled Loser (5:19)
+04. Phobotrax - On Cloud Nine (3:03)
+05. Synthaurion - Rebelion (7:20)
+06. Marcel De Van - Melody Of Dance (3:59)
+07. Wojtekopole - On Border Of The Worlds (6:28)
+08. Synth Void - Starfire (5:22)
+09. Jsc - Codetalkers (5:20)
+10. Synthesis - Secret Energy (4:02)(   Читать дальше...   )2011Жанр: SpacesynthПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4160D594876CFB752C0B452602CA6F9E5C5456D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476361   (85590) от 31.03.2012
+
+Технология - Лучшие песни (2010) [MP3|320 кб/с]<Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Нажми на кнопку
+02.Первый полет
+03.Телефон небес
+04.Дивный новый мир
+05.Сегодня ночью
+06.Королева дорог
+07.Странные танцы
+08.Саморазрушение
+09.Рано или поздно
+10.Яд(   Читать дальше...   )2010Жанр: ElectronicПродолжительность: 02:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8979805EB29322ED11BDF52B283B0E9C32DCB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469436   (83246) от 20.03.2012
+
+Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, Electro Pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One In A Million (04:10)
+02. Electric Feet (Featuring Samsaya) (03:53)
+03. Pop Pop Pop (03:20)
+04. Get Me Out Of Bed (04:20)
+05. Bittersweet Embrace (03:28)
+06. Stuck In Reverse (03:21)
+07. Starlight (04:03)
+08. Pretend To Dance (03:23)
+09. Wrap Me ´Round Your Finger (03:03)
+10. Wrong (03:59)(   Читать дальше...   )2012Жанр: Synth-Pop, Acid Jazz, Electro PopПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F298D2BD57B278C6E162E36F6ED5237D78B67C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458625   (79326) от 01.03.2012
+
+Miike Snow - Miike Snow (2009) [MP3|320 кб/с]<Electro-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animal 04:22
+02. Burial 04:20
+03. Silvia 06:25
+04. Song for No One 04:09
+05. Black & Blue 03:39
+06. Sans Soleil 04:25
+07. A Horse is Not A Home 04:11
+08. Cult Logic 03:54
+09. Plastic Jungle 03:52
+10. In Search of 05:14(   Читать дальше...   )2009Жанр: Electro-popПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51C742ABD9BF5DE14B347DEA735FB40ACB98096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771426   (71876) от 06.01.2025
 
 VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps] <Spacesynth, Synthdance>
@@ -629,122 +769,6 @@ Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Mo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69C77A334BCEDC3B9255BF1EFA7312783F8E7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755709   (40090) от 17.10.2024
-
-Lusa - The Colour Of Space (2024) [MP3|320 Kbps] <Electronic, Synthpop, Pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TMAAS (with Beth Malcolm) (4:37)
-02. Probably (with Beth Malcolm) (3:55)
-03. Hawea (6:06)
-04. Crosses (with Beth Malcolm) (5:51)(   Читать дальше...   )Жанр: Electronic, Synthpop, PopПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5F840C059C2FF1B34DE68265A10EC9447D2191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759087   (38086) от 06.11.2024
-
-Blondie - Live In Boston 1978 (2024) HQ Remastered [MP3|320 Kbps] <New Wave, Punk, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In The Sun [00:03:49]
-02 - X Offender [00:03:05]
-03 - Hanging On The Telephone [00:02:04]
-04 - Detroit 442 [00:02:50](   Читать дальше...   )Жанр: New Wave, Punk, Synth-popПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19DFFE8897D729B208F53FA7DEDEB8AEBE73B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763841   (35312) от 03.12.2024
-
-Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Feature Presentation [00:00:20]
-02 - Murder Miami 1983 [00:03:41]
-03 - Renegade [00:03:09]
-04 - Higher [00:03:55](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB82A332DC8B39CFB49CB76412BD6FC1E3C30EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768629   (33034) от 25.12.2024
-
-Yuri Sosnin - New Times (2024) [MP3|320 Kbps] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Dawn (6:13)
-02. A New Reality (6:08)
-03. New Times (6:20)
-04. Awakening (4:50)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA9C473D82BF3AB974792BA32ECFE656D5B49E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

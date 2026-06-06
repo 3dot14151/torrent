@@ -1,25 +1,25 @@
-###  Публикация: 1206915   (781335) от 16.02.2018
+###  Публикация: 1389873   (783922) от 12.06.2020
 
-Jakob Lindhagen - Paces (2017) Feeder [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
+Jojo Effect - True Sky Heroes (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Broken Beat>
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kenopsia (04:20)
-02. Shelter (05:09)
-03. The Tipping Point (04:41)
-04. Forgotten (02:51)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:43:50
+01. Along Came Fred
+02. No Joke
+03. Pacific Breeze
+04. Our Hearts Are Free(   Читать дальше...   )Жанр: Nu-Jazz, Broken BeatПродолжительность: 00:46:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D410D764C9CD43A2C9F27A52571C91229B183B42
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,375 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206562   (781334) от 16.02.2018
+###  Публикация: 1389636   (783921) от 12.06.2020
 
-VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
-02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
-03.Adeva - Respect (Extended Mix) (7:32)
-04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206920   (781333) от 16.02.2018
-
-LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change (05:57)
-02. Tape Loops (05:28)
-03. Enchantment (03:25)
-04. Rise (06:31)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206955   (781332) от 16.02.2018
-
-KCNcrew Pack 15.02.2018 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781332.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и регулярно обновляется!
-
-База серийных номеров проекта KCNcrew по состоянию на середину февраля 2018 года.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CAA4AA02417419869A077072D6DA810F4B94C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206972   (781331) от 16.02.2018
-
-Abney Park (Эбни Парк) - Ancient World (2012) Not On Label [MP3|320 Kbps] <Rock, Folk, World&Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Steampunk Revolution 3:17
-02. Scupper Shanty 2:56
-03. The Story That Never Starts 4:08
-04. Ancient World 4:30(   Читать дальше...   )Жанр: Rock, Folk, World&CountryПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74835CCF40CD43160FC2E80918F448E2F954BA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206889   (781330) от 16.02.2018
-
-VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cyre & DJ T.H. - Salida Del Sol (Original Mix)
-2. Kajis feat. Ylona - Way Back Home (Taival Remix)
-3. RAMiNiO - Confession (Extended Mix)
-4. Sunlight Project - Desert Flower (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206964   (781329) от 16.02.2018
-
-Abney Park (Эбни Парк) - The End Of Days (2010) Not On Label [MP3|320 Kbps] <Industrial, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The End Of Days 3:25
-02. Neobedouin 3:41
-03. The Wrath Of Fate 3:05
-04. I've Been Wrong Before 2:55(   Читать дальше...   )Жанр: Industrial, FolkПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA4A30173E46C8E780A7C340E64D1C290F8350F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206910   (781328) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. 2-я Квалификация (12.02.2018) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781328.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 13:30 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Фристайл. Мужчины.
-Могул. 2-я Квалификация(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00FA7C4B18679E631466DE6C11779291EEECBBD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207062   (781327) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Женщины. Трамплин HS-109. Финал (12.02.2018) IPTV [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781327.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 15:50 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Прыжки с трамплина. Женщины.
-Трамплин HS-109. Финал(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7623F68B95A20F9D476C01502ECC056914065F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206936   (781326) от 16.02.2018
-
-VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781326.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estiva & Justin Oh - Reach For The Sky
-002. Marc Van Gale - Mumbai Taxi (Original Mix)
-003. Emanuele Braveri - Destination Summer (Original Mix)
-004. Activeblaze - Last Day(   Читать дальше...   )Жанр: Progressive, Vocal, Uplifting TranceПродолжительность: 13:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207028   (781325) от 16.02.2018
-
-White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hansa (Cygnus)
-2. Patent Leather
-3. Slave
-4. Wait Till Tomorrow(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206766   (781324) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Женщины. Гонка преследования (12.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781324.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 13:10 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Биатлон.
-Женщины. Гонка преследования 10 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CC357A906516F356CA759294364CEFBCC4A1D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206961   (781323) от 16.02.2018
-
-VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Metamorph  -  Wash Your Pain Away (feat. Shelley Sheree) (Original Mix)  7:05
-02.  Leonety  -  Le Lis Blanc (Original Mix)  7:06
-03.  Luvmac  -  Daybreak (Original Mix)  6:26
-04.  Niklas Grosswald  -  Daybreak (Nuestro Remix)  6:21(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 02:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49F6B1B3D0DA41A444FAB5802F7E3FABA714575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207047   (781322) от 16.02.2018
-
-Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+Frankie Goes To Hollywood - Welcome To The Pleasuredome (1984) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 L'amas d'chair
-2 Aie
-3 Soirees parisiennes
-4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
+01. The World Is My Oyster-Snatch Of Fury (Stay) (1:58)
+02. Welcome To The Pleasure Dome (13:39)
+03. Relax (Come Fighting) (3:56)
+04. War (And Hide) (6:14)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:09:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
+magnet:?xt=urn:btih:CB7781725183440E0E0F3367E2C2E7A3F3913CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,115 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206921   (781321) от 16.02.2018
+###  Публикация: 1389796   (783920) от 12.06.2020
 
-VA - Erased Tapes Collection VIII (2017) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Avantgarde, IDM, Modern Classical, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allred & Broderick - The Ways (03:08)
-02. Penguin Cafe - Cantorum (07:22)
-03. Daniel Brandt - Kale Me (06:30)
-04. Rival Consoles - Slow Song (03:52)(   Читать дальше...   )Жанр: Contemporary, Avantgarde, IDM, Modern Classical, AmbientПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4139825AD30EBE02B9D443C3838DE8DA3D180178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206893   (781320) от 16.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. 1/2 финала. Россия (ОАР) — Швейцария (12.02.2018) IPTV [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781320.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 февраля 2018 года, понедельник. 14:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. 1/2 финала.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B9A1DE3E603C067247F322714FE4A07003F51B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206944   (781319) от 16.02.2018
-
-VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dave202  -  Open Up Your Heart (Original Club Mix)  4:26
-02.  Dave202 & Gino G  -  Along With You (Extended Mix)  4:33
-03.  Dave202 & Gino G  -  Like An Animal (Club Mix)  4:15
-04.  Dave202  -  Kimura (Original Club Mix)  4:44(   Читать дальше...   )Жанр: House, Future House, Big Room, Electro HouseПродолжительность: 02:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206959   (781318) от 16.02.2018
-
-Abney Park (Эбни Парк) - The Death Of Tragedy (2005) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
+Chris De Burgh - The Getaway (1982) A&M 394929-2 [FLAC|Lossless|image + .cue]<Soft Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Stigmata Martyr 5:05
-02. The Wrong Side 3:31
-03. Dear Ophelia 4:51
-04. Witch Cult 0:25(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:38:01
+01. Don't Pay The Ferryman (3:49)
+ 02. Living On The Island (3:31)
+ 03. Crying And Laughing (4:34)
+ 04. I'm Counting On You (4:28)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CA49C1DD22F6AFC12A5F72E77C50306F05E9550
+magnet:?xt=urn:btih:1F3E5ED7193F4A17F745C16484AD01DA8E512FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +85,407 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206914   (781317) от 16.02.2018
+###  Публикация: 1192681   (783919) от 12.06.2020
 
-VA - Deep Progressive House Set | Mixed by Johnny M (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+SaturmZlide - Human Art Engines (2017) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Industrial, Rhythmic Noise, Electro, IDM, Ambient>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible Society (03:46)
+02. Arcade Boulevard (04:02)
+03. Azsid Tunnel (03:36)
+04. Six O’clock & Hysteria (05:00)(   Читать дальше...   )Жанр: Industrial, Rhythmic Noise, Electro, IDM, AmbientПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389739   (783918) от 12.06.2020
+
+Валерий Павликов | Битва за Курилы (2020) [MP3, Андрей Леонов]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783918.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 1970-х годов в Советском Союзе был разработан секретный план по созданию геотектонического оружия. Согласно плану на дне Большого Курильского пролива, в скалах подводного хребта Хабомаи, была построена сверхсекретная база-лаборатория. Потом СССР распался и проект закрыли. Но люди-то остались! Остались самые отчаянные и беззаветно преданные Отечеству. И когда (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:27:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389688   (783917) от 12.06.2020
+
+K-Lite Codec Pack Update 15.5.2 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783917.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1C62695AF691780908E4D702B196B62E7DBC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389901   (783916) от 12.06.2020
+
+Тамара Антонова | Огнедышащий (2020) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Огнедышащий», написанный в жанре фэнтези, с первых страниц увлекает захватывающим сюжетом. Отчасти «Огнедышащий» напоминает историко-приключенческий роман, действие которого происходит в вымышленном мире, близком к реальному, а его герои сталкиваются со сверхъестественными явлениями и существами. От первой до последней страницы роман держит читателя в постоянном (   Читать дальше...   )Жанр: Фэнтези про драконовФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9461C138967C7583787676932887A88FD203F2C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389788   (783915) от 12.06.2020
+
+Boney James - Solid (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Effect
+02. Solid
+03. The Bottom Line
+04. Luna(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330F46F450D6D5DB14C4354659504B77CF41D25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389691   (783914) от 12.06.2020
+
+Jehnny Beth - To Love is to Live (2020) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am (03:42)
+ 02. Innocence (03:22)
+ 03. Flower (03:20)
+ 04. We Will Sin Together (03:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DF803F95B9DCA4F5DA5AECFFECE97413E593A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389794   (783913) от 12.06.2020
+
+FontCreator Professional Edition 13.0.0.2656 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783913.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56002F93D9412E5C4D8DF2CC61A85056164FA7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389722   (783912) от 12.06.2020
+
+HDCleaner 1.295 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783912.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows от компании Майкрософт. Данный набор эффективных средств ля очистки ПК создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой (   Читать дальше...   )Язык интерфейса: - Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575186A1FCFCD7F8967327649B5320DE5305ED80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389902   (783911) от 12.06.2020
+
+Данила Ботанцов | Вихри эпох [сборник] (2020) [EPUB]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие секреты хранит наша Вселенная – такая загадочная и неизведанная? Одни ли мы во Вселенной? Какие тайны подстерегают человека на Земле? Способен ли земной человек преодолеть пространство и время? Именно об этом рассказы, вошедшие в сборник. Близкие к научной фантастике, они просто и понятно открывают перед читателем завесу неразгаданного и неведомого… Финал каждого (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастикаФормат: EPUB
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389727   (783910) от 12.06.2020
+
+Серия Кубков NASCAR 2020. 11-й Этап. Мартинсвилл 500. Гонка / NASCAR Cup Series 2020. Round 11. Blue-Emu Maximum Pain Relief 500. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
+10 июня 2020 года. Риджуэй (штат Вирджиния, США).
+11-й Этап. Мартинсвилл 500 (Blue-Emu Maximum Pain Relief 500)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:41:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389765   (783909) от 12.06.2020
+
+Найк Борзов - Капля Крови Создателя (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не предел
+02. Слышу тьму
+03. Фрагмент
+04. Пойми и прости(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD62684E7B52AFB29FA8207DADAA8E27E6D45F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389836   (783908) от 12.06.2020
+
+Светлана Морозова | Злитесь, чтобы не болеть! Как наши эмоции влияют на наше здоровье (2020) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда врачи говорят: «Все болезни от нервов…» – они забывают добавить: «…непризнанных и невысказанных». Звучит странно, но это так! Автор книги Светлана Морозова – врач, кандидат медицинских наук, психотерапевт – поможет разобраться в том, какая связь существует между нашими эмоциями и нашим телом и почему мы заболеваем из-за переживаний и грустных мыслей. А главное (   Читать дальше...   )Жанр: Практическая психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDDA84DECB4ED5D13BA9E43D0CE5ADB3CF09A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389899   (783907) от 12.06.2020
+
+Айрин Кох | Крушение или мир в котором ты живешь (2020) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё вчера Карина Алтуева планировала отпуск в Италию – утром она села в самолет, предвкушая прогулки по древним улицам, а сегодня она одна из переживших крушение посреди огромного океана. Одна из тех, кому повезло быть спасенными командой проходящего корабля. Но так уж ей повезло? Что за тайны хранят эти странные люди? Возможно, ответы разрушат её привычный мир. (   Читать дальше...   )Жанр: Детективная фантастика, МистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318144432F2EBF9135B6C4A34A694F84F7A2B00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389815   (783906) от 12.06.2020
+
+CPU-Z 1.92.2 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783906.jpg" />
+</div>
+
+
+###  Подробнее
+
+CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289CD1ACEE5EA0D84039C5E02818DDFB576E0767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389514   (783905) от 12.06.2020
+
+VA - Training Hits: Workout Music (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Johnny M - Deep Progressive House Set (Dj Continuous Mix) (2:01:36)
-02. Nahuel Carrizo - Blind in the Mist (Original Mix) (8:44)
-03. Robert R. Hardy - Sensus (GMJ Rmx) (9:14)
-04. Robert R. Hardy - Chasing Pleasure (Silinder Rmx) (9:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:21
+01. Death Team - Kids
+02. Jacob Banks - Move with You
+03. Sam And The Womp - Bom Bom (Radio Edit)
+04. Anitta - Totalmente demais (feat. Flávio Renegado)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A98CA3BA4109400723AEED5866D75D37527ECCA1
+magnet:?xt=urn:btih:4CFAF32607411C96DB6D3B894871BD02C023F366
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,166 +493,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206663   (781316) от 16.02.2018
+###  Публикация: 1389468   (783904) от 12.06.2020
 
-Anderva - Boarding Pass Festival DJ Contest (2018) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anderva Intro Edit w/ Galantis - Runaway (Acapella)
-02. Nicky Romero & Teamworx vs. Linkin Park - Champion Sound vs. In the End (Steady Mashup)
-03. Jose De Mara & Crusy Ft. Chipper - Believe (Original Mix)
-04. Florian Picasso & Tom Tyger - Mamo (Original Mix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F088DC9889877D3EA2FCF312C63AD840CFB42EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206902   (781315) от 16.02.2018
-
-Виктор Лихачев | Единственный крест (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что чувствует человек, потерявший память? Герой новой книги Виктора Лихачева попадает в автокатастрофу. В попытках вспомнить себя и свою прошлую жизнь, он побывает во многих уголках России, встретит свою любовь, станет участником удивительной и даже опасной истории. Но самое главное - он поймет, что каждый человек несет свой крест, без которого невозможна дорога (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF3EFE695193A7C8FB6AFC8D1E2B944C7F5D133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207034   (781314) от 16.02.2018
-
-Abney Park (Эбни Парк) - The Circus At The End Of The World (2013) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Circus At The End Of The World 3:44
-02. Blowing Off Steam 3:53
-03. The Anthropophagists' Club 3:38
-04. Follow Me If You Want To Live 3:23(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A723EB1EC417FF7705462E629AE7ADEB0FE54454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206792   (781313) от 16.02.2018
-
-Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza Appartenere
-02. Domani Arrivera (Modern Art)
-03. Ti Amo Mi Uccidi
-04. 1xUnAttimo(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC0270397B50592FFFE42D57B2826FFEE08D7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207052   (781312) от 16.02.2018
-
-iTrash 4.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781312.jpg" />
-</div>
-
-
-###  Подробнее
-
-iTrash - утилита для удаления приложений с вашего Mac, которая использует специальный алгоритм поиска (расстояние Левенштейна), чтобы найти все связанные файлы для последующего удаления.
-
-Приложения распределяют несколько файлов всюду по Вашим системным устройствам хранения. Удаление самого приложения - главным образом недостаточно и оставляет несколько файлов нетронутыми. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2018Разработчик: OSXBytesПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6594D955C8F0056469F6D9D657C75979C6785143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206943   (781311) от 16.02.2018
-
-М. Балабанов | Царская Россия XX века [накануне революции 1917 года] (1927) [PDF]
+Анатолий Арлычев | Саморегуляция, деятельность, сознание (1992) [PDF]
 
 >>Научная и техническая литература
->>Историческая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все попытки буржуазии сохранить соглашение с монархией — попытки, не прекращавшиеся и раньше, во время войны, но только под давлением обстоятельств, менявшие свой характер — закончились крушением. В вихре революции один за другим сметены были и Николай, и Алексей, и Михаил.Жанр: История, политология, экономикаФормат: PDF
+В монографии намечена программа решения комплексного изучения проблем сознания на пути органического объединения принципа отражения с принципом человеческой деятельности на основе выявления информационно-регулятивных процессов. В работе подробно представлена знаковая теория идеального, анализируется внутренняя структура субъекта сознания, человеческого общения и (   Читать дальше...   )Жанр: ФилософияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:090CE4B8CF3AFCDF7ED3A0EA4938CEC1622499D9
+magnet:?xt=urn:btih:D8A0B5F9B1F6E2993ECE058834B925557C09CE30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,26 +519,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206958   (781310) от 16.02.2018
+###  Публикация: 1389758   (783903) от 12.06.2020
 
-Николай Крыщук | Ваша жизнь больше не прекрасна (2018) [MP3]
+CoolUtils Total Image Converter 8.2.0.217 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Известный петербургский писатель Николай Крыщук, лауреат премии «Студенческий Букер — 2009» за книгу «Кругами рая», названием нового романа отсылает нас к электронному извещению о компьютерном вирусе. Но это лишь примета времени, автор дал понять, что живет сегодня и среди нас.
-Неприятное происшествие: утром в воскресенье герой понял, что умер. За свидетельством (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 20:40:15
+CoolUtils Total Image Converter преобразует изображения в желаемый вами формат, изменит размеры и перевернёт фотографии и картинки. Total Image Converter сделает всё, что вам потребуется: вы сможете преобразовывать большие TIFF изображения в маленькие JPEG, подгонять картинки под размеры веб-страницы или преобразовать RAW фотографии в более популярные форматы. Это (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA78EE40742724F14B346702AC6B611572911174
+magnet:?xt=urn:btih:E35769C0EFCB68FCE3B5C884B20E68DA99328E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389654   (783902) от 12.06.2020
+
+Найк Борзов - Капля Крови Создателя (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не предел
+02. Слышу тьму
+03. Фрагмент
+04. Пойми и прости(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4838D63D2A18CE1A1AE69956E14F2F00395A269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389865   (783901) от 12.06.2020
+
+Марина Аист | Хорошие роды. Что нужно знать и как самостоятельно подготовиться (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беременность – это волшебное время для каждой женщины. Осознание того, что в тебе зарождается новая жизнь, – это что-то таинственное и само по себе прекрасное. Марина Аист – акушер, перинатальный психолог и руководитель клуба для будущих мам «Аист» – за годы своей практики приняла более 3000 родов. В этой книге собран ее многолетний опыт, который поможет вам успешно (   Читать дальше...   )Жанр: Акушерство и гинекология, ЗдоровьеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF406BCF05DE3DF0CCBA245EC0343C67F14B854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389852   (783900) от 12.06.2020
+
+VA - 80s Love Songs (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783900.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chicago - Hard to Say I'm Sorry (2007 Remaster) (3:41)
+2. Air Supply - All Out of Love (4:01)
+3. The Police - Every Breath You Take (4:11)
+4. John Lennon - Woman (3:32)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:34:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389740   (783899) от 12.06.2020
+
+Фигурное катание. Чемпионат России 2020. Красноярск (Россия). 4-й День (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ростелеком-Чемпионат России по фигурному катанию на коньках 2020 — соревнование по фигурному катанию среди российских фигуристов сезона 2019 - 2020 года, проходившее с 24 по 29 декабря 2019 года.
+29 декабря 2019 года, воскресенье. 4-й День:
+1. Церемония награждения
+2. Показательные выступления(   Читать дальше...   )Телекомпания: Первый каналЖанр: Спорт, Церемония, ШоуЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:40:00 — 02:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F17623A772E29796B5F54992C6030AD1C32B5DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389770   (783898) от 12.06.2020
+
+Topaz Gigapixel AI 4.9.4 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79515F05BCAFE8AAEB56E590A46BC02C5E440216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389862   (783897) от 12.06.2020
+
+Светлана Морозова | Злитесь, чтобы не болеть! Как наши эмоции влияют на наше здоровье (2020) [EPUB]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда врачи говорят: «Все болезни от нервов…» – они забывают добавить: «…непризнанных и невысказанных». Звучит странно, но это так! Автор книги Светлана Морозова – врач, кандидат медицинских наук, психотерапевт – поможет разобраться в том, какая связь существует между нашими эмоциями и нашим телом и почему мы заболеваем из-за переживаний и грустных мыслей. А главное (   Читать дальше...   )Жанр: Здоровье, Практическая психологияФормат: EPUB
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1872485   (1070382) от 22.05.2026
+
+Midge Ure (Ex. Ultravox) - A Man Of Two Worlds (2026) 2CD [FLAC|Lossless|image + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070382.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 - World One: Music:
+01. A Different View
+02. The Space In - Between
+03. Hearing The Invisible(   Читать дальше...   )Жанр: Synthpop |Продолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F88C32FC3B42A591D029B53E0EE7257BE7DDE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865112   (1065309) от 14.04.2026
 
 VA - Sonic Space, Vol. II (2026) [FLAC|Lossless|WEB-DL|tracks] <Space Music, Synthpop>
@@ -717,35 +746,6 @@ Code Elektro - Deeper Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8672644DF584E924C0BF864DD29B8E6A29BD544D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436778   (1042793) от 02.01.2021
-
-Techni-ka - Contamination (2020) DJ Remix [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Wave, Synthpop, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theriak - Tragic Romance (Techni-ka Remix) (04:33)
-02. Ultimated - Unforgettable - (Techni-ka Remix) (05:01)
-03. Parralox - A Question Of Love (Telekon Remix) (04:58)
-04. Tegan & Sara - Closer (Techni-ka Remix) (05:20)(   Читать дальше...   )Жанр: Electronic, New Wave, Synthpop, ElectropopПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A52C98A822DB3EADF94FC41945BDD63EFDD3670
 ```
 
 https://mybot314.ru/tekegram_catalog/

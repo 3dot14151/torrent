@@ -1,3 +1,61 @@
+###  Публикация: 1539771   (655045) от 28.03.2022
+
+VA - Calm Down (Chill Out & Lounge Moods), Vol. 2 (2017) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Milton - Sunny Day (5:00)
+02. Dominik Pointvogl - Nova Bossa (5:09)
+03. Pharaon - Patented (Extended Mix) (2:51)
+04. Köbes - On The Sun (Extended Mix) (5:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51467EC91FC9856D8EEB300802320E14421CF941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539988   (655043) от 28.03.2022
+
+The Electric Swing Circus - It Flew By (2017) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_655043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empires (3:11)
+02. Golden Hour (2:49)
+03. Big Surprise (3:14)
+04. Scuttlebutt (2:45)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9ABDD0EE6209E1ED551FF01F9FAAAB4B7A0D12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540031   (655039) от 28.03.2022
 
 VA - Lounge Music Essentials 2022 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
@@ -660,64 +718,6 @@ VA - 100% Hotel Deluxe Music, Vol. 1 (2012) [AAC|~334 Kbps] <Lounge, Chill Out, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B04C7AFE08EEFBB5969568A9507F2DF8EB6682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539593   (654027) от 29.03.2022
-
-Андрей Макаревич - Хроника текущих событий (2013) [AAC|~310 Kbps] <Rock, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лишь только веки сомкну... (0:42)
-02. Посвящение Михаилу Генделеву (2:09)
-03. Переворот (2:38)
-04. Песенка про Интернет (1:03)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE062F37110AE180902FEA91F796C094676C946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540016   (654010) от 29.03.2022
-
-VA - Arab Hits (2022) [AAC|~321 Kbps] <House, Pop, Folk>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khaled - Didi (5:02)
-02. Rachid Taha - Ya Rayah (6:15)
-03. Tawsen, Manal, ElGrandeToto - Safe Salina (Moroccan Remix) (3:03)
-04. Nancy Ajram - Oul Tani Eyh (4:08)(   Читать дальше...   )Жанр: House, Pop, FolkПродолжительность: 01:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F5175A91A18359E0B996099A18611F5602E65B
 ```
 
 https://mybot314.ru/tekegram_catalog/

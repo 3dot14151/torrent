@@ -1,3 +1,90 @@
+###  Публикация: 1092995   (937429) от 13.01.2017
+
+VA - Trance Elegance On This Year 007 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mark Sixma & Jonathan Mendelsohn - Way To Happiness (Reorder Extended Remix)  5:51
+02.  Xian - Equinox (Original Mix)  8:00
+03.  Stoneface & Terminal With Ana Criado - My Heart Wont Tell You No (Original Mix)  8:20
+04.  STA - Singularity  8:28(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEFFECA011FD716E9AD9F462CD43BC4B1B69D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092841   (937340) от 13.01.2017
+
+VA - Aboved Singles Reviews (Trance Pack  9 January) (2017) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vadim Spark & Dennis Graft - Spells (Radio Edit)  3:23
+02.  Allen Watts - Square One (Original Mix)  6:44
+03.  Mario Piu - Thunderstruck (Voolgarizm Mix)  6:32
+04.  Alexander Dyomin - Reborn (Delta IV Remix)  6:16(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 05:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE30396F9C8C50A745FB4D37F81F60DEB87F177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984954   (937256) от 10.02.2016
+
+VA - Miami Dance - Lights Impression (2016) [MP3|212-320 кб/с] <Acid House, Hard NRG, Electroclash, UK Funky, Bigroom, New Rave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937256.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sandro Silva X Dirtcaps - Someone Like U (Radio Edit) 03:22
+002. Hardwell And Dannic Feat. Haris - Survivors (Original Mix) 04:36
+003. Nervo Ft. Kreayshawn, Dev & Alisa - Hey Ricky (Extended Mix) 04:07
+004. Steve Angello & Laidback Luke - Show Me Love (Feat Robin S) (Anevo Remix) 05:15(   Читать дальше...   )Жанр: Acid House, Hard NRG, Electroclash, UK Funky, Bigroom, New RaveПродолжительность: 10:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1518F3825215807B5D7F1FA792A55100E1C6FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984768   (937253) от 10.02.2016
 
 VA - After Ultimate Club Anthems (2016) [MP3|320 кб/с] <Club, House, Progressive, Funky>
@@ -659,93 +746,6 @@ VA - Beatport Top 100 14.02.2016 [MP3|320 kbps] <House, Electro, Progressive, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6CDEF6CD0FDC06BDA7B4A7521925C42E6908DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987116   (927989) от 16.02.2016
-
-VA - Tempting Lounge: Sensual Lounge Music Selection (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luigi Seviroli - Aeoliah - Full Mix
-02. Francesco Demegni - Seduction
-03. Antonio Vernuccio - Flying Over the Sea
-04. Giacomo Bondi - Your Style - Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5703E0CBFE6FDAFD1982C4B9DEA51692A81D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987247   (927981) от 16.02.2016
-
-VA - Vintage Sounset Lounge (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Source - Framed Profile - Curt Clever Version
-02. Chad - Making Love - Brief Mix
-03. Derail - Freedom - Deep Little
-04. Bee Side - Can Be - Tiny Original(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E04D4054E08F0B83BE0A4A7E5630C71F78D301E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987019   (927978) от 16.02.2016
-
-VA - Cocktail Chillhouse Collection (2016) [MP3|320 kbps] <Chill House, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamar Ensemble - About Yesterday (05:46)
-02. The Sura Quintet & Franco Poti - No Inhibitions (06:03)
-03. Rhythmphoria - Highlights (05:32)
-04. Diario - Gracefulness (05:39)(   Читать дальше...   )Жанр: Chill House, Lounge, ChillOutПродолжительность: 02:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11184EBC2748ECCDB7DD2BB4DE5418702B017ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 972724   (981861) от 06.01.2016
+
+Thousand Foot Krutch - Oxygen: Inhale (2014) [MP3|320 кб/с] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like a Machine
+02. Untraveled Road
+03. Born This Way
+04. Set Me on Fire(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60924A2C1E896157F9FD26F1A90934EEF638CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973155   (980694) от 07.01.2016
 
 Brunettes Shoot Blondes - Bittersweet (2015) [MP3|320 кб/с] <Alternative, Indie>
@@ -747,35 +776,6 @@ The Casualties - Under Attack (2006) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9968205414AA0E2635A2D8742DD6BAC93E5F2C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979947   (957420) от 28.01.2016
-
-The Casualties - We Are All We Have (2009) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Carry On The Flag
-02 - We Are All We Have
-03 - Heart Bleeds Black
-04 - Rise And Fall(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8592AB6840CE18AD5D75B9B6A189F347C7057EED
 ```
 
 https://mybot314.ru/tekegram_catalog/

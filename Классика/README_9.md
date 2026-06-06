@@ -1,3 +1,61 @@
+###  Публикация: 994760   (888083) от 09.03.2016
+
+Heifetz Jascha - Adagios (2002) [FLAC|Lossless|image + .cue] <Classical, violin>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruch: Violin Concerto No 1 in G minor, Op. 26 - Adagio
+02. Glazunov: Violin Concerto in A minor, Op 82 - Andante sostenuto
+03. Bach: Concerto for two Violins in D minor, bwv 1043 - Largo ma non tanto
+04. Medelssohn: Violin Concerto in E minor, Op. 64 - Andante(   Читать дальше...   )Жанр: Classical, violinПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737024E42145D3094C8799119D67E44776F78AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995027   (887867) от 09.03.2016
+
+Wolfgang Amadeus Mozart - The Violin Concertos (1999) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto No. 4 in D major for Violin, K. 218: I. Allegro
+02. Concerto No. 4 in D major for Violin, K. 218: II. Andante cantabile
+03. Concerto No. 4 in D major for Violin, K. 218: III. Rondeau. Allegro grazioso ...
+04. Concerto No. 5 in A major for Violin, K. 219 'Turkish': I. Allegro aperto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276A1777A2BC882BF99F4384711909328B152F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995042   (887778) от 09.03.2016
 
 Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [MP3|320 кб/с] <Classical, Concerto>
@@ -680,64 +738,6 @@ Act 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97CABF062AFA5459962EDF1EFA9DDACE6CDC0DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996307   (878581) от 14.03.2016
-
-Niccolo PAGANINI - Complete Chamber Music (2007) [MP3|320 кб/с] <Classical, Instrumental>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878581.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-Quartet No. 1 in A minor, Op.4/1, MS28 [21:41]
-Quartet No. 9 in D major, MS36 [21:42]
-Quartet No. 10 in A major, MS37 [23:53]Жанр: Classical, InstrumentalПродолжительность: 10:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BD97E07566B3B283BF4E69C3762BA94EBA0E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996405   (878423) от 14.03.2016
-
-Brahms - The Piano Concertos - Daniel Barenboim, Staatskapelle Berlin and Gustavo Dudamel (2015) [FLAC 2.0|96/24|WEB-DL|tracks] <Classics, Piano, Orchestra>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 1 in D minor Op. 15:
-1. Maestoso
-2. Adagio
-3. Rondo. Allegro non troppo(   Читать дальше...   )Жанр: Classics, Piano, OrchestraПродолжительность: 01:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4AF9207049AD0CF200787419BB753D8710DD7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

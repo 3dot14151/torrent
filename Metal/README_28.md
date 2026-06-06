@@ -1,3 +1,32 @@
+###  Публикация: 1199413   (801787) от 15.01.2018
+
+Tremonti - Dust (2016) [MP3|320 Kbps] <Alternative Metal, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Last Mistake (4:30)
+02. The Cage (3:35)
+03. Once Dead (3:06)
+04. Dust (5:22)(   Читать дальше...   )Жанр: Alternative Metal, Post-GrungeПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47AF7A364799AA0AADB19378922AED6CF4D2B1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199404   (801717) от 15.01.2018
 
 CyHra - Letters To Myself (2017) Japanese Edition [MP3|320 Kbps] <Melodic Modern Metal>
@@ -716,35 +745,6 @@ Sophie Lloyd - Delusions (2017) EP [MP3|320 Kbps] <Heavy Metal, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B5FC2B1787D194B08FF6C25DDC2AE7EAF16E651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274548   (792993) от 07.01.2019
-
-Venom - Storm the Gates (2018) [MP3|320 Kbps] <Thrash Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring Out Your Dead
-02. Notorious
-03. I Dark Lord
-04. 100 Miles To Hell(   Читать дальше...   )Жанр: Thrash Metal, Black MetalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80035D7E518B310BF9FC540012AD4280661502D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

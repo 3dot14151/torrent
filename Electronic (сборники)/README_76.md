@@ -1,3 +1,90 @@
+###  Публикация: 1398443   (735693) от 26.07.2020
+
+VA - Endless Summer: Sunset Lounge Party (2020) [MP3|320 Kbps] <Lounge, Relax, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sardinia Lovers - Nel Cuore
+002. Dreamhunter - La Nostalgie (Original Mix)
+003. Dave Ross - El Baile Del Rey
+004. Sunset Lovers - Flamenco(   Читать дальше...   )Жанр: Lounge, Relax, AmbientПродолжительность: 09:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B575A37A513968E825C78F2401B821F6FDCB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527871   (735376) от 31.01.2022
+
+VA - Record Super Chart 29.01.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alis Shuka - Not About Us (2:09)
+02. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
+03. OWNBOSS, Sevek - Move Your Body (2:37)
+04. Filatov Karas, Busy Reno - Au Revoir (2:44)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F169FD988A9D9C7083FF370EEC8F955EA7F97181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398714   (735247) от 27.07.2020
+
+VA - Beatport Trance: Electro Sound Pack #137 (2020) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Relais - Over Vanity
+002. California Sunshine - Sababa Time
+003. Structural Mind Engine - Eternalix
+004. Tromo - The Dreamer(   Читать дальше...   )Жанр: TranceПродолжительность: 10:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9431EB46FF21F3F7E65792D9C38507E8498AFDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398710   (735226) от 27.07.2020
 
 VA - Beatport Techno: Electro Sound Pack #136 (2020) [MP3|320 Kbps] <Techno, Minimal, Electro>
@@ -664,93 +751,6 @@ VA - Ibiza Sundowner Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8A72CE5778445C58FA93DE06A6C0385E35D7DFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283942   (731030) от 19.02.2019
-
-VA - Kamlanie: Psychedelic Trance (2019) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brojanowski - Liebliche Musique
-002. Outer Signal - We Be Come
-003. Ukauka & Teorema - Krishna
-004. Metronome - The Consequence(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C7C2C3C470B839E3D2B74631F7E1F35BD29452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127794   (730996) от 22.04.2017
-
-VA - Deep House Collection Vol.117 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730996.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amtrac - Accessorize (Original Mix) 7:53
-002. Andrew Rai & Anton Liss feat. Veselina Popova - Keep on Loving (Original Club Mix) 6:40
-003. Anzzor, Underfilter - Like That (Original Club Mix) 5:32
-004. Alberto Mantelli - Nomads Nomads (Malandra Jr. Remix) 6:12(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4752A64F7E8E23D97B4789CCD5E26D0FBE6954F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127713   (730603) от 22.04.2017
-
-VA - Автозвук. Лучшее в Дорогу. (Sound Clinic - Bass Overdose Edition) (2017) [MP3|320 Kbps] <House, Techno, Progressive, Electro, Trance, Trap, DubStep, Chill>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Side:
-01. Audiofly, Georgia Lewis - In The (Last) Moment (Original Mix)
-02. Florian Kaltstrom - E1 (Original Mix)
-03. Johannes Brecht, Christian Prommer - Voix Grave (Johannes Brecht Version)(   Читать дальше...   )Жанр: House, Techno, Progressive, Electro, Trance, Trap, DubStep, ChillПродолжительность: 35:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06EC63688D6350F1B1CBA9F466F77FE442BDF0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

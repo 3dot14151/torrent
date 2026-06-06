@@ -1,3 +1,108 @@
+###  Публикация: 597078   (1000491) от 02.01.2013
+
+VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B Van E - I Need You (Cut N Glue Chillout & Lounge Mix)
+02. Sky And Sand - Sunset (Comfort Version)
+03. Cazintel - Aliens in Love (Air Play Version)
+04. Mister Paul - You Don't Know (Vocal Exclusive Mix)
+05. Wine & Dine - Why Are We Here (Original Mix)
+06. Miguel Lando - Sylt (Exclusive Remaster Version)
+07. Muner DJ - This Is My Dream (Original Performant Mix)
+08. Exit Mars - Gliding (Exclusive Mix)
+09. Collective Sound Members - Fast Features
+10. Maurice Scoville - Perfect Day (Comfort Version)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 04:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8A8EDF27ED48FD3850C070CF53818643072687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598681   (1000044) от 04.01.2013
+
+VA - Euphoric Emotions Vol.41 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Orjan Nilsen - Between The Rays (Original Mix)
+002. Markus Schulz feat. Jennifer Rene - Not The Same (Eelke Kleijn Remix)
+003. Mario Hammer feat. Asheni - Life Before The Earthquake (Original Mix)
+004. Moonbeam feat. Avis Vox - Star Way (Big Room Original Mix)
+005. M.I.K.E. - Massive Motion (Original Mix)
+006. Mark Otten - So Serene (Original Mix)
+007. Kyau & Albert - A Night Like This (Original Mix)
+008. Majai - Emotion Flash (Elevation Big Room Remix)
+009. Kirsty Hawkshaw feat. Tenishia - Reasons To Forgive (Original Mix)
+010. John O'Callaghan feat. Betsie Larkin - Save This Moment (Gareth Emery Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD48D4287AD8292DD27A6C00D23487D7B576A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597920   (999931) от 04.01.2013
+
+VA - Aqua Trance Volume #01 - #31 (2012-2013) (Обновляемая) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 03:03:49
+
+01. Cathy Burton & Omnia - Hearts Connected (Skytech Remix) [07:53]
+ 02. Ana Criado & Ronski Speed - Afterglow (Ronski Speed Remix) [08:32]
+ 03. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Original) [11:01]
+ 04. Daniel Wanrooy - Dog Day Afternoon [06:01]
+ 05. Dash Berlin feat. Emma Hewitt - Like Spinning Plates (Club Mix) [05:39]
+ 06. Dub Effect feat. Mix Usha - Perfect Love [05:40]
+ 07. Kenneth Thomas feat. Colleen Riley - The Heart Speaks (Damian William Remix) [06:31]
+ 08. Ian Betts - Under Below (Original Mix) [08:06](   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:16:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599580   (999187) от 07.01.2013
 
 VA - Trance. Vocal Fascination 42 (2013) MP3 (2013) [MP3|320 кб/с]<Trance>
@@ -759,93 +864,6 @@ VA - Drum and Bass Pro V.2 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFA730F09DC7DF37299875C6B4710A8EAE66F806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353572   (991268) от 18.01.2020
-
-VA - Top50: Tracks Deep House Ver.16 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Delay - Giving Up On Love (Extended Mix) 5:20
-02. Parah Dice - Hot (Imanbek Extended Remix) 4:03
-03. Tones and I - Dance Monkey (Gumanev & Tim Cosmos Deep Remix) 4:04
-04. Sean Aaron - Hold Me (VetLove Remix) 5:12(   Читать дальше...   )Жанр: House, Deep House, Progressive House, Club HouseПродолжительность: 04:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7409D10B1A3AF79910C5AB29792D6E408A417854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353580   (991267) от 18.01.2020
-
-VA - Лучшие Trance треки Ver.12 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha - Take On Me (Robert Nickson Remix) 5:57
-02. KINETICA & Denise Rivera - Every Time Your Heart Runs Dry (Extended Mix) 6:58
-03. Darren Porter & Jak Aggas - Transonic (Extended Mix) 7:02
-04. Sean Tyas & Shelby Merry - Someday (Extended Mix) 7:25(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 05:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B87F088553B1DDD8438D34494D889DF00FF86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353790   (990800) от 19.01.2020
-
-VA - Rise Up DnB Mixtape (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreadcore - Tripwire Feat. Theta
-02. Nicky Blackmarket - One Part Jungle
-03. Books - Roark
-04. Chaser - Bring Me Down(   Читать дальше...   )Жанр: Drum & Bass, Bassline, DubstepПродолжительность: 06:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFF950BF45278803383892F121E3CAE17510FFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

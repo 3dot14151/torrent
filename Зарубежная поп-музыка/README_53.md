@@ -1,3 +1,32 @@
+###  Публикация: 1325263   (414481) от 14.09.2019
+
+Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3|320 Kbps] <Electronic, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Woman No Cry (3:39)
+02. Mary's Boy Child (3:13)
+03. Heart Of Gold (3:27)
+04. Mandela (4:11)(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8728FEF74777C0FD8DBFBBCF46F49D7A493504C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168179   (412895) от 22.09.2017
 
 Love Committee - 2 Albums (1978, 1980) [MP3|320 Kbps] <Funk-Soul, Disco>
@@ -725,35 +754,6 @@ Magic Mail - Magic Mail (1981) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A718B426177D393C1909FDFDA02F6B547FD86D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170778   (398453) от 02.10.2017
-
-Miley Cyrus - Younger Now (2017) [MP3|320 Kbps] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Younger Now
-02. Malibu
-03. Rainbowland (Feat. Dolly Parton)
-04. Week Without You(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B938BB38195002CC24195F5CE3EBAFFAA9821B5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

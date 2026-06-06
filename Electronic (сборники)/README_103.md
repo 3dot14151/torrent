@@ -1,3 +1,96 @@
+###  Публикация: 1143920   (631634) от 20.06.2017
+
+VA - Drumsound and Bassline Sampler (2017) [MP3|320 Kbps] <Drum&Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631634.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tantrum Desire - Gravitate
+002. 3D Stas - Loud Thief (Remaster)
+003. Drumsound & Bassline Smith - The Odyssey (VIP)
+004. Agressor Bunx - The Suffering(   Читать дальше...   )Жанр: Drum&Bass, DubstepПродолжительность: 09:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13B2F42E26A1DFDFCA23C5AF950D826D4DB9A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520777   (631615) от 09.07.2012
+
+VA - A State Of Vocal Trance Volume 1 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631615.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
+002. Mike Shiver feat. Bo Bruce - Still Here
+003. Neev Kennedy - The Unknown (DNS Project Extended)
+004. Omnia & IRA - The Fusion (Original Mix)
+005. Pulser feat. Molly Bancroft - In Deep (Pulser's Main Floor Remix)
+006. Rave Channel - Illusion (Original Mix)
+007. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion (Original Mix)
+008. Ronski Speed feat. Sir Adrian - Seen It All (Alexander Popov Mix)
+009. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
+010. Sebastian Ingrosso, Alesso & Ryan Tedder - Calling (Lose My Mind) (Extended Club Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F2BFBD1682F2B33C159DF28561ADACA1E83E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143923   (631494) от 20.06.2017
+
+VA - Diamond Euphoria: Night House Party (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631494.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Deep Spirit - Lonely 2K16 (Club Edit)  3:25
+002.  Moonrider - Resurrection (Radio Edit)  3:39
+003.  Arctic Motion - Black & White (Radio Edit)  3:33
+004.  Miguel Alcobia - We Get It Right Sometimes (Radio Edit)  3:12(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB6F1989719F3CAF4F15DD5534AC713A0BDB718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035080   (630591) от 15.07.2016
 
 VA - Summer Splash (2016) [MP3|320 Kbps] <Club, House, Funky, Progressive>
@@ -685,93 +778,6 @@ VA - Believe In Trance  Music (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D360AF6B321DD7009B96C5A3770E37F325D7CD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035751   (626718) от 17.07.2016
-
-VA - Ibiza Clubbing Missing July (2016) [MP3|320 Kbps] <House, Electro House, Future Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. StadiumX -  Mombasa (Radio Edit) 3:17
-02. DJ Tafta ft Miss Effe -  My Flower (Extended Version) 4:47
-03. J3n5on -  I Like to Move (Extended Mix) 4:02
-04. DRYM -  Wolf (Extended Mix) 3:57(   Читать дальше...   )Жанр: House, Electro House, Future TranceПродолжительность: 07:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41B0BE59BCE8F00A150EF9D71C8A41472D7A821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035565   (626713) от 17.07.2016
-
-VA - Club Dance Ambience vol.78 (2016) [MP3|320 Kbps] <House, Electro House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626713.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luca Debonaire -  Like This (Original Mix) 5:53
-002. Bobby Rock & Jones 2.0 -  Work Hard, Play Hard (Original Mix) 3:56
-003. Domeno & Josh -  Kama (Extended Mix) 4:31
-004. Tony Junior & KURA feat Jimmy Clash -  Walk Away (Extended Mix) 3:50(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 08:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6684DBF6670B76119067CEAACC57C4D50D9F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035696   (626705) от 17.07.2016
-
-VA - 50 Best of Summer Workout Hits (2016) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin Minimal - Schonefelder Weiden
-02. Lieblingsplattendreher - Wo Das Kitscht so Nice (Progressive Minimal Ska Mix)
-03. Del Do Ra - Beergarden Melody
-04. Crazy Krauts - Vorfreude(   Читать дальше...   )Жанр: HouseПродолжительность: 05:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B678F11951E3DFAE6B419A256623AB3A4007F06E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1216269   (751079) от 30.03.2018
+
+VA - Deep House Collection Vol.163 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751079.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7even (GR) - Mystery  (Original Mix)
+002. Ada  -  Rostock  (Original Mix)
+003. Adelina  - Bye Bye  (Robert Cristian Remix)
+004. Ahmet Kilic - We Still Alive  (Extended Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D379026971AEC06D38225FEBE4CC3F7F2369FE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019532   (750340) от 23.05.2016
+
+VA - Incepto Music. 100Th Release (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephen J. Kroos - Numb (SureICan Remix)
+02. Dimix - Turnover (Bicycle Corporation Remix)
+03. Monojoke - Deceitful (Forerunners Remix)
+04. 2NNEL - You (Katrin Souza Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF3737F05EE2987EFDB72342DC585773655EF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019407   (750339) от 23.05.2016
+
+VA - Pacific Progressive Trance (2016) [MP3|320 кб/с] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750339.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dennis Sheperd - Dive (Radio Edit) 3:48
+002. TrancEye - Aviator 7:05
+003. Yuri Kane - Running Wild (Radio Edit) 3:35
+004. Kaimo K - Afraid (Radio Edit) 4:16(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2EB7C7C0C13ADC03D7C08C89EED9202C6D104D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019522   (750337) от 23.05.2016
 
 VA - Ultimate Guide to Chillout: The Only Chillout Album Youll Ever Need (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -658,93 +745,6 @@ VA - Future Bass Top 100 (Compiled by ZeByte) (2018) [MP3|263-320 Kbps] <Future 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:294B58DB205B243C9C927094640F8583DF150814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783199   (747203) от 03.05.2014
-
-VA - Lounge At The Seashore 11 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747203.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Chill-Out Orchestra - The Sound of Silence
-002. Le Petit Dejeuner - A Girl's Dream
-003. Sao Vicente - Daddy Cool
-004. Ascent & Argus - Water The Perfect Element(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C25D18AD89F0CE358E3C4C3765885408002DF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396494   (746966) от 15.07.2020
-
-VA - Sound Of Innocence (2020) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746966.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Dark - Open
-002. Lowpaz - Floating
-003. Lounge Aura - The Last Train
-004. Emancipator - Snakes(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 08:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5BA70FC646ACD2F64E069FC9EE5A8B529C4992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396499   (746924) от 15.07.2020
-
-VA - EDM Hawaii Party (2020) [MP3|320 Kbps] <EDM, House, Tech House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drival - Clockwise (Original Mix)
-002. Dmak - Go
-003. Der Hon - La Premiere
-004. Savant - Monster(   Читать дальше...   )Жанр: EDM, House, Tech House, TranceПродолжительность: 08:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DA3EC96E3DF6E6AB9D608A1E03E1924C2A72B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

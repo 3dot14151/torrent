@@ -1,22 +1,24 @@
-###  Публикация: 467988   (96713) от 15.03.2012
+###  Публикация: 1743278   (105447) от 15.08.2024
 
-Димка-велогонщик (1969) VHSRip
+Т.Е. Ванагель | Животные (2013) [PDF, JPG]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Димка завоевал приз в тире — торт с шоколадным зайцем, часть которого тут же съел. В это время дядя Димы предложил вручить торт победителю велогонки.Жанр: СемейныйРежиссер: Исаак ШмарукАктеры: Саша Марченко, Игорь Балла, Алеша Гринченко, Ира Смирнова, Николай ЯковченкоПродолжительность: 00:14:24
+Из этой книги ваш малыш узнает, как по-английски называются животные. Решая интересные задания в игровой форме вместе с веселым персонажем девочкой Мери - он быстро запомнит новые слова, научится произносить и писать их, и сможет даже строить простые предложения.
+О серии.
+Автор книг Т.Е. Ванагель имеет многолетний стаж преподавания английского языка детям дошкольного (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7BE3D2B53D0200E91254567BB0BBAC5848F6EF3
+magnet:?xt=urn:btih:4F1284E88C2D726B1F8D5DE9BCF87C98B445C121
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467830   (96712) от 15.03.2012
+###  Публикация: 1743275   (105446) от 15.08.2024
 
-GOM Player 2.1.39.5101 Final [Английский]
+Т.Е. Ванагель | Времена года (2013) [PDF, JPG]
 
->>нет
->>нет
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GOM Player - мультимедиа-плеер, подерживающий множество видео файлов. Установка сторонних кодеков не требуется (встроенная поддержка большинства популярных кодеков). GOM Player проигрывает все современные видео- и аудио- форматы, а также видео мобильных устройств и цифровых видеокамер, и воспроизведение видео прямо из интернет-сети.Название программы: GOM PlayerЯзык интерфейса: Английский
+Из этой книги ваш малыш узнает, как по-английски называются времена года, и выучит "зимние", "весенние", "летние" и "осенние" слова. Решая интересные задания в игровой форме вместе с веселым персонажем - девочкой Мери - он быстро запомнит новые слова, научится произносить и писать их, и сможет даже строить простые предложения (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:344D0F83C7B8BDD304955B15880308FE092E9215
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,33 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467889   (96711) от 15.03.2012
+###  Публикация: 1743279   (105445) от 15.08.2024
 
-VA - DESTINATIONS 2 - compiled by DJ Murus & Cubixx (2008) [FLAC|Lossless]<Psychedelic / Progressive>
+Лукавый / Lord of Misrule (2023) BDRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Музыки
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Yotopia - Stereo Bug [7:30]
-2. Midimal - Deep Devil (Zyce Remix) [8:12]
-3. ARW - Searching for new levels [7:33]
-4. Motion Drive - Disco Slave [8:55]
-5. Time in Motion - Shadowgaze [9:14]
-6. Flowjob - Don't believe in mirrors [8:41]
-7. Nasser - Fixed [8:15]
-8. TimeDrained - Bob Jackson (Mute Remix) [7:31]
-9. S-Range - Ilha Bela (NASA Remix) [8:49]Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:16
+Натуральное хозяйство, дом, окруженный вековыми деревьями — подлинная мечта уставшей от столицы семьи. Здесь, в уютном городке, где все друг друга знают, они готовятся встретить овеянный легендами языческий праздник. В самый разгар торжества исчезает дочка — но кажется, никто не спешит ее искать. Где-то глубоко в чаще леса оживает (   Читать дальше...   )Производство: Великобритания, Ирландия / Riverstone Pictures, The Machine Room, BCP Asset ManagementЖанр: ужасыРежиссер: Уильям Брент БеллАктеры: Таппенс Мидлтон, Ральф Айнесон, Мэтт Стокоу, Рэйчел Джоэнн Браун, Саймон Бундок, Джо Ситроу, Алекса Гудолл, Роберт Гудман, Марк Хокли, Люк АйнесонПеревод: Дублированный (Pride Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:44:12
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F23663918B0BC72143F9665B2954C7284028FE36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,25 +78,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467883   (96707) от 15.03.2012
+###  Публикация: 1743301   (105444) от 15.08.2024
 
-SIV (System Information Viewer) 4.27 + Portable [Английский]
+Т.Е. Ванагель | Цвета (2013) [PDF, JPG]
 
->>Архив торрентов
->>Архив Программ
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SIV (System Information Viewer) - Утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы при работе с разными приложениями. Утилита в реальном времени показывает, сколько оперативной памяти свободно на данный момент и как используется файл подкачки.Название программы: System Information ViewerЯзык интерфейса: Английский
+Из этой книги ваш малыш узнает, как называются все цвета по-английски. Выполняя несложные и интересные задания, он легко запомнит их названия в процессе игры.
+О серии.
+Автор книг Т.Е. Ванагель имеет многолетний стаж преподавания английского языка детям дошкольного и младшего школьного возраста
+Серия этих книжек поможет вашему ребёнку выучить английские слова по различной (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:04677BC6EA862E8E52287B0A4D1B70D1328D7CD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,25 +107,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467857   (96706) от 15.03.2012
+###  Публикация: 1743290   (105443) от 15.08.2024
 
-Перевод с американского / American Translation (2011) [1080p] BDRip
+Т.Е. Ванагель | Моя семья (2013) [PDF, JPG]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Аврора - богатая наследница, Крис - паршивый щенок, ни кола, ни двора; их страсть предопределена законами жизни и искусства, где барышня всегда отдаёт предпочтение хулигану. Однако есть одно отягчающее и не вписывающееся ни в какие рамки обстоятельство: Крис - прирождённый серийный убийца. Для него лишение жизни случайно встреченных парней и девушек легкого поведения - род мучительной и сладостной болезни, не тупая уголовщина, а почти мистический опыт, который Аврора, кажется, не прочь разделить.Жанр: ДрамаРежиссер: Паскаль Арнольд, Жан-Марк БаррАктеры: Лиззи Брошер, Пьер Перрье, Жан-Марк Барр, Бенжамин Болен, Эстебан Карвахаль-Алегрия, Фредерик ЭнгПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Русский, Французский (forced)Продолжительность: 01:53:43
+Из этой книги ваш малыш узнает, как по-английски называются члены вашей семьи. Решая интересные задания в игровой форме вместе с веселым персонажем - девочкой Мери - он быстро запомнит новые слова, научится произносить и писать их, и сможет даже строить простые предложения.
+О серии.
+Автор книг Т.Е. Ванагель имеет многолетний стаж преподавания английского языка детям (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4D3C3DEC9E13105FAAD8897105EA88FD75BF8C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,25 +135,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466918   (96704) от 15.03.2012
+###  Публикация: 1743335   (105442) от 15.08.2024
 
-[EN] Пограничные Мальчики / The Frontier Boys (2012) DVDRip
+Ritual - The Story Of Mr. Bogd - Part 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На бесконфликтном внешнем фоне начала фильма показана трогательная дружба четырех сверстников и одноклассников средней школы небольшого городка штата Мичиган, трое из которых,- Брент, Джет и Льюис,- звезды баскетбольной команды школы, а четвертый,- Джексон,- член группы поддержки команды.Однако вскоре все рушиться,-и дружба, и баскетбольный сезон,- когда в город прибывает наркодиллер, затянувший в свою преступную сеть Брента вместе с его старшим братом Майком. Однажды Брент становится свидетелем рокового выстрела из пистолета, который произвел Майк из движущегося автомобиля в Льюиса. В результате Льюис- в коме в реанимации, а перед Брантом - дилемма,- либо промолчать и спасти старшего брата, либо все рассказать копам...Жанр: Боевик, Приключения, СемейныйРежиссер: Джон ГрутерсАктеры: Ребекка Ст. Джеймс, Биг Кенни Элфин, Эфквейк Келли, Тимоти ЛофингПеревод: ОтсутствуетПродолжительность: 01:52:05
+01. A hasty departure (6:29)
+02. The Inn of The Haunted Owl (4:48)
+03. Dreams in a brougham (3:40)
+04. Chichikov Bogd (4:19)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:45:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B07C238B92625E73A3EA5A662B434E9C32C9D96
+magnet:?xt=urn:btih:4F311ADC411F5960DBF7DAC80EC4E6062B1EA0DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,29 +164,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468094   (96703) от 15.03.2012
+###  Публикация: 1743262   (105441) от 15.08.2024
 
-[Wallpapers] Black Girls Desktop Wallpapers Pack 29
+Battle Lost - Into The Realms (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Black Girls Desktop Wallpapers Pack 29 
-Название:  Black Girls Desktop Wallpapers Pack 29 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 5154х3632
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Into The Realms 02:34
+02. Ascension's Call 04:39
+03. Last Warrior's Oath 04:00
+04. Fire In The Heart 04:25(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C3E763BD0B96036EA71C6A1C976313D34A80BA6
+magnet:?xt=urn:btih:F8D8683874889689FC8CCB9148FC5DA703A183C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,175 +193,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468189   (96698) от 15.03.2012
+###  Публикация: 1743122   (105440) от 15.08.2024
 
-Mozilla Thunderbird 10.0.3 Final (Extended Support Release) [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderbird - простая и удобная бесплатная программа для работы с электронной почтой от Mozilla. Программа поддерживает протоколы SMTP, POP3, IMAP и RSS. Имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, расширяется за счет дополнительных модулей и фильтрует рекламу, а так же нежелательную корреспонденцию. Интерфейс программы основан на технологии XUL, разработанной Mozilla Foundation, в результате чего интерфейс на всех платформах выглядит так же, как у приложений, разработанных для этой конкретной платформы. Интерфейс программы прост и удобен в использовании, поддерживает смену скинов. Во второй версии программы включено множество новых возможностей, помогающих вам лучше управляться с бурным потоком информации, устремляющимся в ваш почтовый ящик и быть в курсе последних событий.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468099   (96697) от 15.03.2012
-
-Майкл Гилберт | Бедняга Смоллбон [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название2010Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B830B8386CB1E3E017A9E0AF6D8319EF5697D6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467391   (96695) от 15.03.2012
-
-Zavod - Industrial City (2012) [MP3|192 кб/с]<Industrial Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96695.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Panzer (4:28)
- 2.Inhale (3:50)
- 3.Friends with death (2:48)
- 4.Into the night (3:32)
- 5.We rust (2:58)
- 6.Da ili njet (2:40)
- 7.Vanity Allstars (3:11)
- 8.Pripyat (3:48)
- 9.Storm (3:03)
- 10.Spee (3:48)(   Читать дальше...   )2012Жанр: Industrial MetalПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468004   (96694) от 15.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 9
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96694.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 9 
-Название:  Desktop Wallpapers Pack 9 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF26EE0DFEF81E55B6F8F3C4E15AD3CCBF11BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467829   (96693) от 15.03.2012
-
-Group-IB помогла пресечь деятельность компьютерных пиратов из Саратова
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Group-IB, занимающаяся расследованием ИТ-инцидентов и нарушений информационной безопасности, сообщила об оказании содействия сотрудникам специального подразделения МВД на режимных объектах в пресечении деятельности преступной группы, занимавшейся незаконным распространением в интернете нелицензионного программного обеспечения.Участие криминалистов Group-IB позволит сформировать доказательственную базу по фактам совершения противоправных деяний в сфере компьютерной информации — незаконной модификации части программного кода продукта.По данным Group-IB, компьютерные злоумышленники создали 10 интернет-ресурсов и, выдавая их за официальные сайты компании-разработчика, предлагали пользователям загрузить якобы лицензионную программу «Навител Навигатор». Однако было установлено, что программа изменена таким образом, что после скачивания могла осуществлять работу без лицензии и сертификата правообладателя. За год существования ресурсов модифицированное ПО было скопировано интернет-пользователями более 38 тыс. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468247   (96686) от 15.03.2012
-
-David "Fathead" Newman - Davey Blue (2001) [FLAC|Lossless]<Hard Bop, Mainstream jazz>
+Allan Wylco and the Voltanics - Time in Time Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cellar Groove (6:10)
-02. Cristo Redentor (6:48)
-03. For Stanley (5:33)
-04. A Child is Born (5:49)
-05. Black (5:34)
-06. Amandla (4:18)
-07. Davey Blue (13:00)
-08. Freedom Jazz Dance (6:26)2001Жанр: Hard Bop, Mainstream jazzПродолжительность: 00:53:39
+01. My Smile (4:06)
+02. Lies Don't Work (3:55)
+03. Until We Die (4:53)
+04. See You Again (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A0B0EAB965ABC682EE06FB50D4D39627A00CEC51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,400 +222,521 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466950   (96685) от 15.03.2012
+###  Публикация: 1743140   (105439) от 15.08.2024
 
-[EN] Четыре / Four (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96685.jpg" />
-</div>
-
-
-###  Подробнее
-
-План следующий: похитить любовника своей жены, увести его на заброшенный склад, причинить ему боль, попугать его. Но не делайте это сами. Для этой грязной работы наймите детектива. Просто? Нет ничего проще этого.Жанр: ТриллерРежиссер: Джон ЛангриджАктеры: Мартин Компстон, Крэйг Конуэй, Джордж Моррис, Шон Пертуи, Кирстон ВэрэйнгПеревод: ОтсутствуетПродолжительность: 01:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE22E0373C3C8F360BF93670712C3B7796BF89E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468191   (96681) от 15.03.2012
-
-Г.О. Балгин | Винтовка обр. 1891/30 г. [1940] [DJVU]
-
->>Разное (категория книг)
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия наглядных пособий - Боевые свойства и назначение винтовки: Общий вид винтовки, Части винтовки, Положение частей и механизмов до заряжания, Работа частей и механизмов при заряжании, Взаимодействие частей винтовки, Работа частей и механизмов при производстве выстрела, Разборка винтовки, Сборка винтовки.1940Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E27235049B618133775EF4E193E9A50A086D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468021   (96679) от 15.03.2012
-
-VA - 538 Dance Smash 2011 vol.2 (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Avicii - Street Dancer
-02 - Inna - Sun Is Up
-03 - The Partysquad & Reverse feat. Gers Adje & Jayh - Ik Ga Hard
-04 - Basto - Gregory's Theme
-05 - Clokx - Time Of My Life
-06 - R.I.O. - Like I Love You
-07 - Ian Carey feat .Snoop Dogg & Bobby Anthony - Last Night
-08 - Tiesto vs. Diplo feat. Busta Rhymes - C'Mon (Catch 'Em By Surprise)
-09 - La Fuente - Lost Without You
-10 - Armin Van Buuren feat. Laura V - Drowning(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECC8B50FBC7AB43106C5B8F7F87B3AD1D3A2D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467833   (96676) от 15.03.2012
-
-Сайт посольства России в Израиле взломан арабскими хакерами
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечером 12 марта группой, именующей себя "Армией хакеров" (TheHackersArmy), был взломан сайт посольства Российской Федерации в Израиле.На первой странице сайта russianembassy.org.il размещен текст о "преступлениях" Израиля, составители которого призывают оказать поддержку палестинскому народу. Фоном звучит антиизраильский рэп.По состоянию на утро вторника, 13 марта, работа сайта посольства РФ не восстановлена.На момент публикации данного сообщения, неизвестно в точности, какой ущерб нанесен. Через сайт посольства можно было получить доступ к консульской информации.Пресс-служба посольства заявляет, что хакерам не удалось получить доступ к базам данным посольства и консульства РФ в Израиле. По словам представителя посольства, эти базы находятся на российских серверах и не имели отношения к сайту russianembassy.org.il. "Взломали не нас, а израильского провайдера, который обеспечивал поддержку сайта посольства", – сообщил редакции NEWSru.co.il пресс-секретарь посольства РФ Антон Черменский.Так (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468036   (96675) от 15.03.2012
-
-VA - 538 Dance Smash 2011 vol.3 (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - LMFAO feat. Lauren Bennett & Goonrock  - Party Rock Anthem
-02 - Bingo Players - Cry (Just A Little)
-03 - Alexandra Stan  - Mr. Saxobeat
-04 - Snoop Dogg vs. David Guetta  - Sweat
-05 - Sander Van Doorn - Koko
-06 - Kate Ryan  - Lovelife
-07 - Swedish House Maffia - Save The World
-08 - Elena  - Disco Romancing
-09 - Martin Solveig feat. Kele  - Ready 2 Go
-10 - Ferry Corsten - Feel It(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F053E05630659E6D81C732502D005A38D1193CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467850   (96665) от 15.03.2012
-
-VA - Seasons of Seduction vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.L&M Project - Story (Original Mix)
-02.Prljavo Kazaliste - Korak po korak (VanDerSaint Remix)
-03.Lpk - Special ( Original Mix )
-04.Knife Party - Internet Friends
-05.The Moogs - Madhatter (Titanoz_Remix)
-06.Rihanna - We Found Love (DJ Newklear Mashup Extended Mix)
-07.Eddy Wata - Senorita (Ramy BlaZin Remix)
-08.Glee Cast - Last Christmas (Ramy BlaZin Remix)
-09.Felguk Vs. Dirtyloud - Nudge (Original Mix)
-10.Chuckie - Who Is Ready To Jump (Dada Life Remix)(   Читать дальше...   )2012Жанр: Electro-House, HouseПродолжительность: 02:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70667A5351983F635E4859C01A4A9891BFE80F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468270   (96664) от 15.03.2012
-
-VA - Зарубежные Звезды Радио Станций (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pitbull feat. Ne - Yo & Afrojack & Nayer - Give me everything
-002. Pyrotense - Take This (original mix)
-003. Sasha Lopez Feat. Broono & Ale Blake - Weekend (Radio Version)
-004. Ryan & Radu - Top Of The World (Radio Edit)
-005. Helfye - Sexe
-006. Offbeat Orchestra feat. Sunstroke Project - Epic sax
-007. Pitbull feat. Chris Brown - International love (UK Pop radio edit)
-008. Selena Gomez - Love You Like A Love Song live
-009. Picco - Mi Cafe (PH Electro Remix)
-010. Jack of Sound - Kaylees Nightmare (original mix)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D71C317A06B82C1928AE33300EFCBEB9AEB5E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468023   (96662) от 15.03.2012
-
-VA - GO GOA!!! ( Speed It Up Release 2 ) (2012) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96662.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность - 01:19:02
-
- 01. Mute - Doing His Magic (Static Movement Remix) [07:19]
- 02. Copycat - Experience [07:28]
- 03. Sideform - Chameleon [06:31]
- 04. Dropkick - Frog On [07:11]
- 05. Twina - Man Becomes What He Thinks About [06:34]
- 06. E-Clip - Chandra (ManMachine Remix) [07:39]
- 07. Mindwave & I-Drop - Stoli Drops [07:35](   Читать дальше...   )Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08CB628F1E6173D1D3C373E5AD69FA65600D5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468020   (96659) от 15.03.2012
-
-VA - Big Air Vol. 2 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3D Mode - New Dawn (Solaris Vibe Rmix) (8:49)
-02. Dualism - I Beg You (Mind Spin Remix) (8:46)
-03. Etic - The Pulse (7:28)
-04. Mental Broadcast & Minimal Criminal - Out of Range (9:24)
-05. Nitrodrop - Saw Great (8:37)
-06. Shanko - Slow Light (8:42)
-07. Sonic Sense - Future Shock (7:42)
-08. Soulscape - Up Side Down (9:14)
-09. Tectum - Harmonic Form (6:25)
-10. Zonka & Pakman & Subsistence - Outside Surface (8:01)Жанр: Psychedelic / ProgressiveПродолжительность: 01:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB177899AA773197268E6F077183848136E1542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466377   (96657) от 14.03.2012
-
-Программа / The Program (1993) DVD5
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм описывает игровой сезон университетской команды по американскому футболу ESU Timberwolves. Новый тренер команды - Sam Winters (James Caan), второй год подряд упускает шанс попасть в финал кубка университетской лиги. На него давят болельщики,пресса и жители городка, где тренируется команда. Следующий сезон не должен повториться так же неудачно. Но получиться ли это? Особенно если некоторые игроки, ключевых позиций, начинают злоупотреблять наркотиками, стероидами и алкоголем.Яркая и оторванная университетская жизнь мешает сосредоточиться на играх.Тренер проводит некоторую селекционную работу по набору новых талантливых игроков и это начинает давать свои плоды...Фильм насыщен очень красивыми игровыми моментами и драматическими событиями, как на поле, так и в жизни героев этой команды.Жанр: Драма, спортРежиссер: Дэвид С. Ворд / David S. WardАктеры: Джеймс Каан, Хелли Берри, Омар Эппс, Крейг Шеффер, Кристи СвонсонПеревод: Одноголосый закадровыйПродолжительность: 01:52:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467643   (96653) от 14.03.2012
-
-Эрл Стэнли Гарднер | Дело о секрете падчерицы [1994] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:1994Жанр: детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DD22FEDC5E5F2CB5941727975F5127CE2FE061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467951   (96651) от 14.03.2012
-
-Неудачники (1983) TVRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для детей. История благородного пса-спортсмена.Жанр: ДетскийРежиссер: Александр ДавыдовПродолжительность: 00:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2139B8314781CA2C7C97B82EDEC090C22DC850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467211   (96646) от 14.03.2012
-
-VA - Electro Swing IV mixed by Bart & Baker (2011) [FLAC|Lossless]<Nu Jazz, Swing, Modern Jazz>
+Lou Majaw - The Bluesman of Shillong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Zoowax - Nine To Five (3:35)
-02.Bart&Baker presents Nuno Endo - Christopher Columbus (Squirr.. (2:41)
-03.Lionel Hampton - It Don't Mean A Thing (If It.. (3:37)
-04.Goodluck - Hop On Hop Off (Pascal And P.. (3:19)
-05.Grand St. feat Philip Alexan.. - Joe Palooka (3:19)
-06.Kitten & The Hip - By My Side (Special Mix For .. (3:35)
-07.Tape Five - Tequila (Gardener Of delight.. (2:02)
-08.Lazy Flow - Mambo Fever (2:10)
-09.Biboulakis feat. Nina Zitlin - Is That Too Much To Ask ? (3:03)
-10.Enzo Siffredi feat. The Alls.. - Jungle Dancing (2:40)(   Читать дальше...   )2011Жанр: Nu Jazz, Swing, Modern JazzПродолжительность: 01:11:42
+01. Blues Man of Shillong (0:23)
+02. Come Home (4:44)
+03. I Had a Woman (4:20)
+04. You're Gonna Lose Me (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:14
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:525168C91A3C65D144CE67F42A1629F95AAFDA1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743125   (105438) от 15.08.2024
+
+Darrell Arnold - Portraits of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shinin' Moon (2:55)
+02. Backwater Blues (4:17)
+03. Big Road Blues (3:39)
+04. Devil Got My Woman (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73112AEE4EB9F17ED00F1F6884D8B643ADA667DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743123   (105437) от 15.08.2024
+
+Blind Lemon Pledge - Oh so Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Bill (3:04)
+02. Junkyard Dog (3:11)
+03. Oh so Good (2:10)
+04. How Can I Still Love You (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B2C8A5410E237111655B25C83898E809BBE925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743127   (105436) от 15.08.2024
+
+Dax Butler - Trouble in Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireman's Ball (4:03)
+02. Sweet Potato (4:21)
+03. Mary O'Connell (3:51)
+04. Blood Needs Spilling (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890DA25C487178AE0F191473EE444AABB97852C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743131   (105435) от 15.08.2024
+
+Elephant Gerald UK - Outcasts And Castaways (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painkiller (4:11)
+02. Sweet Wine (5:42)
+03. On A Quiet Afternoon (7:35)
+04. Manana Man (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13B0563100871E1FDCBE191D646F8CF4C19CA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743129   (105434) от 15.08.2024
+
+Early Fox - Free Bird (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mistery Girl (4:36)
+02. I'm Walking (2:44)
+03. A Change Has Gonna Come (3:53)
+04. Prisoner (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C312BDF43D576E57023DD959F6549744837EBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743253   (105433) от 15.08.2024
+
+Veil Of Eternity - Land of the Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis (04:45)
+02. Land Of The Shadows (05:02)
+03. White Crows (04:13)
+04. The Other Side (04:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36808CED4A94653970593E0966D20AD6078C08E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743142   (105432) от 15.08.2024
+
+Mark Atkinson - Three Stations East (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Little Girl (3:10)
+02. Crazy Me (3:54)
+03. It's Only A Girl (4:26)
+04. Three Stations East (3:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3159F199EE8C32F36FF9D60B53AB40699DC76DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743124   (105431) от 15.08.2024
+
+Chris Gibbons - Blues On The Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dustbowl (4:37)
+02. Blues On The Road (4:03)
+03. Close Your Eyes (4:28)
+04. Steamy Angels (5:20)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3D2AD3679D2131B2EFA62AE1C68ABFF10880A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743128   (105430) от 15.08.2024
+
+Doug Duffey and Badd - Ain't Goin' Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whirlpool (5:29)
+02. You Got What It Takes (5:06)
+03. The Wishing Game (6:09)
+04. Rock It All Night (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546DF65A4C587F80F1CE44A27CBAF9DFCC0563DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743316   (105429) от 15.08.2024
+
+Футбол. Суперкубок УЕФА 2024. Реал (Мадрид, Испания) - Аталанта (Бергамо, Италия) (14.08.2024) IPTV [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Суперкубок УЕФА 2024. Реал (Мадрид, Испания) - Аталанта (Бергамо, Италия) (14.08.2024)
+СУДЬЯ Шерер Сандро (Швейцария)
+Судья на линии 1: Де Алмейда Стефан (Швейцария)
+Судья на линии 2: Эрни Джонас (Швейцария)(   Читать дальше...   )Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русский, интершумСубтитры: отсутствуютПродолжительность: 01:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1D44CB56FB282482D7BA278D4A31EAB105660C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743276   (105428) от 15.08.2024
+
+Roulette - Now! (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Enough
+02. Keep On Dreaming
+03. Soldiers Of Love
+04. We Can Make It(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F046E29FF9803EC0340CD12BFC5DBC8EC16E649F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743145   (105427) от 15.08.2024
+
+Sarah Wright - Drive Outta Here (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heading Downhill (2:53)
+02. Devil in the Bottle (3:30)
+03. Oh Bobby Gene (3:31)
+04. Coffee Drinking Blues (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B36273EF202E6BA7D48FD4E18C181B7E81AD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743137   (105426) от 15.08.2024
+
+Kaliopi & The Blues Messengers - The Devil's Voodoo Curse (Festival Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calypso Blues (5:06)
+02. Gaslight Blues (4:11)
+03. Strollin' With Bones (2:46)
+04. Earthmover Blues (4:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A8752993C334CB5A6CBFA877836CB544EBE21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743168   (105425) от 15.08.2024
+
+Mangrove - Bridge to Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Prog/Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bridge to Fiction [00:10:45]
+02. Reflection [00:06:42]
+03. Stay [00:06:36]
+04. Chasing Something [00:03:43](   Читать дальше...   )Жанр: Symphonic Prog/Progressive RockПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90328648653CBBBEB75D489B09F6B01F6876FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743148   (105424) от 15.08.2024
+
+Ticket West - All Is Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buzzing (2:25)
+02. Don´t Judge Me (3:44)
+03. Head Over Heels (2:26)
+04. Hip Shakin´ Woman (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAC2C3DD463BA0F8A840D8CF65B0B845AA709D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743354   (105423) от 15.08.2024
+
+Voodoo Kiss - Feel The Curse (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel The Curse (4:05)
+02. Angel Demon (4:22)
+03. Spellbound by her Eyes (4:43)
+04. Dr. Evil (2:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1069286A7CDE578F5A86E389707E57707D8389B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743005   (105422) от 15.08.2024
+
+Eater - The Album (1977) Deluxe Edition, 2024, Cleopatra Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You [00:02:04]
+02. Public Toys [00:01:58]
+03. Room For One [00:01:42]
+04. Lock It Up [00:01:58](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2C4570AFDD2DE518E7375842E4881637DE610B
 ```
 
 https://mybot314.ru/tekegram_catalog/

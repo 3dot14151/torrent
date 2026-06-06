@@ -1,3 +1,61 @@
+###  Публикация: 1315131   (514907) от 18.07.2019
+
+VA - Blues! - The Best Of The Best Part I - Part V (2003) Unofficial Release [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Oscar Benton - Bensonhurst Blues
+02. Tony Joe White - The Guitr Don't Lie
+03. Joe Cocker - You Are So Beautiful(   Читать дальше...   )Жанр: Blues, Blues Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2634D8F32F34E6C087AFE3B033965BAEB856EA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242703   (513993) от 23.08.2018
+
+Big Willy - All In (2018) [MP3|320 Kbps] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somethin' New (05:29)
+02. All In (04:44)
+03. Spend My Days With You (05:19)
+04. So Bad At Being Good (04:20)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D257E7FFA642669471A5334059648084E936C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242705   (513115) от 24.08.2018
 
 Jimmy Lloyd Rea & The Switchmasters - Cruzin` For A Bloozin` (2007) [MP3|320 Kbps] <Rockin` Blues>
@@ -708,64 +766,6 @@ John Mayall - Find A Way To Care (2015) [MP3|320 кб/с]<Chicago Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B85E897BD14CEAFBC9315A3ED5B13EDAB7803A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936439   (496157) от 11.09.2015
-
-David Gogo - Vicksburg Call (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuts Me To The Bone (03:17)
-02. Fooling Myself (04:10)
-03. The Loner (03:53)
-04. There's A Hole (03:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D55DE19DDC022F6EDCBC21D687362A26491F458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243064   (495579) от 25.08.2018
-
-Blues Saraceno & Nineoneone - Wicked Gonna Come (2018) EP [MP3|320 Kbps] <Blues Rock, Garage Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked Gonna Come (03:29)
-02. Evil Got a Hold on Me (03:11)
-03. Good Man Down (03:50)
-04. The Devil Never Sleeps (03:12)(   Читать дальше...   )Жанр: Blues Rock, Garage RockПродолжительность: 00:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893D74F7BC4F8B8704F752FBDA7FDABD30F67D78
 ```
 
 https://mybot314.ru/tekegram_catalog/

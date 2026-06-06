@@ -1,3 +1,32 @@
+###  Публикация: 956963   (328413) от 16.11.2015
+
+Jeff Brown (Ex-Sweet) - 23 Years (2015) [MP3|320 кб/с]<Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy World
+02. 23 Years
+03. Casino Royale
+04. Contagious(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6924913D78CF0E204152BEF6B7995155FD67B52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957236   (327655) от 17.11.2015
 
 Days Of Jupiter - Secrets Brought To Life (2012) [MP3|320 кб/с]<Hard Rock>
@@ -728,35 +757,6 @@ Vanilla Fudge - Out Through The In Door Tribute To Led Zeppelin (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ADF6508E74E1369E37FF2EC707D47DEA2C03E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077421   (306196) от 28.11.2016
-
-Accept - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Stand The Night
-02. No Time To Lose
-03. Seawinds
-04. Amamos La Vida(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C800109462609500675C44D0948BDE1A8ADB6A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

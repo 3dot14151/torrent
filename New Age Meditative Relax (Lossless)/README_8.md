@@ -1,3 +1,32 @@
+###  Публикация: 1197875   (811881) от 09.01.2018
+
+Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildwood
+02. Wildwood Priestess
+03. Old Gods & Ancient Stones
+04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA32906844ED94D6BC997E48376485668F309F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118282   (811374) от 26.03.2017
 
 Ryan Farish - United (2017) [FLAC|Lossless|tracks] <Electronic, New Age, Downtempo>
@@ -713,35 +742,6 @@ Anaamaly - Fields of Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Medita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF09B49903541118B8A2DE5F5508EB244DB66C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275133   (791096) от 10.01.2019
-
-Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secrets of the Sea
-02. Reverence
-03. River of Dreams
-04. Distant Shores(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BDC8DCC0AFB527325C3A884523DE043A1C1AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

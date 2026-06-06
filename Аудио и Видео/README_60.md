@@ -1,3 +1,61 @@
+###  Публикация: 1506420   (800265) от 31.10.2021
+
+Chrizz Morisson - Magic Worlds (2021) [AAC|~326 Kbps] <Dance, House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrizz Morisson, Timi Kullai, Lightwarrior - Let's Get Up (Radio Mix) (4:47)
+02. Chrizz Morisson, Latisha Van Simon - Near Me (Cm Tropical Mix) (3:41)
+03. Chrizz Morisson, Timi Kullai - Here I Go (Radio Mix) (3:23)
+04. Chrizz Morisson, Latisha Van Simon - From Here on Up (Cm Tropical Mix) (3:20)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99C10E3E4DFC5C6B5B729300C57A0C641AB7A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506421   (800264) от 31.10.2021
+
+Chrizz Morisson - Universe (2021) [AAC|~330 Kbps] <Dance, House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrizz Morisson, Rick De Hey, Timi Kullai - Blue (Da Ba Dee) (Radio Mix) (3:40)
+02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai - Sugar (House Radio Mix) (3:23)
+03. Chrizz Morisson, Fio - Feel Free (Radio Mix) (3:49)
+04. Chrizz Morisson, Marko Skye - Calling of My Heart (Airplay Radio Mix) (3:44)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8380402504CB26E9EA68A536F3A08FB8CEEE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121402   (800259) от 02.04.2017
 
 Аисты / Storks (2016) BDRip [720p] ATV
@@ -664,64 +722,6 @@ VA - Mykonos Chillout Café (Feelings Del Mar) (2007) [AAC|~328 Kbps] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E5ACB5ABCA2A23FEE108FA65DF116647E5B8FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506645   (799535) от 01.11.2021
-
-October Noir - Fate, Wine, & Wisteria (2021) [AAC|~305 Kbps] <Gothic, Doom Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fate (0:50)
-02. Windows (6:48)
-03. Reverence (Make You Love) (6:41)
-04. Effigy (5:42)(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723086C68B23C567195FCFA379161438C049571F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506664   (799533) от 01.11.2021
-
-VA - In Love with Lounge, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillson, Marc Hartman - Smiling Faces (Original Mix) (4:09)
-02. Sami Sivananda - Temple Tunes (Original Mix) (6:46)
-03. Dreamhunter - Wolf in the Snow (Original Mix) (4:05)
-04. Artur Bayramgalin - Toronto Lights (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A9BEF548D0FBA5AA6FB13DE3E0D3091E43A425
 ```
 
 https://mybot314.ru/tekegram_catalog/

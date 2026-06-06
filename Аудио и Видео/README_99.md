@@ -1,3 +1,58 @@
+###  Публикация: 1527054   (737374) от 27.01.2022
+
+VA - The 90's (2022) [AAC|~335 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna - Vogue (Edit) (4:50)
+02. Alanis Morissette - Ironic (3:49)
+03. Diddy, 112, Faith Evans - I'll Be Missing You (5:07)
+04. The Goo Goo Dolls - Iris (4:50)(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D151BC92B2E1DA5B2A84EA2398B0279E419AE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787139   (737225) от 16.05.2014
+
+Академия вампиров / Vampire Academy (2014) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало кому известно, что в Америке, в самом сердце Монтаны, имеется настоящая Академия, где вампиры обучаются высокому искусству магии. И почти никто не знает, что в мире идут кровавые вампирские войны и расе мороев противостоит жестокое племя стригоев, вампиров, переступивших черту закона и не гнушающихся убийством. Даже стены Академии, святая святых науки, не слишком надежная защита от происков темных сил. Юная моройская принцесса Лисса и Роза, ее подруга и верный страж, однажды убеждаются в этом, оказавшись в эпицентре грозных событий.Жанр: Ужасы, фэнтези, боевик, комедия, детективПродюсер: Сьюзен Монтфорд, Дон Мерфи, Дипак НаярВ ролях: Зои Дойч, Люси Фрай, Данила Козловский, Доминик Шервуд, Сара Хайланд, Гэбриел Бирн, Сами Гэйл, Ольга Куриленко, Джоэли Ричардсон, Камерон МонахэнПеревод: Многоголосый (закадровый) (BaibaKo)Язык субтитров: Русский, АнглийскийПродолжительность: 01:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC04698124DBF38DF6E2DAC8B3EFA9A67E87ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527391   (736949) от 28.01.2022
 
 VA - Lounge Tales, Vol. 4 (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
@@ -677,64 +732,6 @@ VA - Sunrise Meditation, Vol. 07 (2021) [AAC|~330 Kbps] <Lounge, Lo-Fi, Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A53B0105C375AB849562D55302104E24D23090A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527569   (736445) от 29.01.2022
-
-VA - 3xA Music The Best of 2021 (2022) [AAC|~335 Kbps] <Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mazamitla Johnson - Imagination (Pepe Camil's Dream Remix) (7:17)
-02. Gashito - Centenary (7:48)
-03. VegaZ SL, Mr. Freeze (SL) - Parallel Thoughts (ZAHNA Remix) (8:31)
-04. Cryptic Realms - New Moon (Arken X Remix) (7:48)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1E81ADA8D99F3C7F4D1E814249EDCF35F4BA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527722   (736444) от 29.01.2022
-
-VA - Sunrise Meditation, Vol. 01 (2020) [AAC|~314 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass - Moon and Sun (Original Mix) (10:37)
-02. Slow World - Bhutan (Original Mix) (5:55)
-03. Jasmon - Fata Morgana (Original Mix) (3:14)
-04. Yantra Mantra - Raga Sundara (Original Mix) (4:07)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5510201D72C6753F4B7EE564672A98121AEADBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

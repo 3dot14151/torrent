@@ -1,3 +1,32 @@
+###  Публикация: 1314349   (519361) от 14.07.2019
+
+VA - Stevie Wonder Covers (2019) [MP3|320 Kbps] <Pop, Rock, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519361.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Red Hot Chili Peppers - Higher Ground (Remastered) (3:22)
+2.Blackstreet - Love's In Need (4:41)
+3.The Jackson 5 - Don't Know Why I Love You (3:49)
+4.Syreeta - I Love Every Little Thing About You (4:56)(   Читать дальше...   )Жанр: Pop, Rock, Funk, SoulПродолжительность: 01:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBABC268E5689FB3C2899FDD96A5A79880706339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241555   (519292) от 18.08.2018
 
 VA - Wearmada Ibiza Pool Party (Extended Versions) (2018) [MP3|320 Kbps] <House, ElectroHouse,Trance, Dance>
@@ -740,35 +769,6 @@ Modern Talking - The First Album & The Second Album (30th Anniversary Limited Sp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4528915B0D5C91BEF83663215FCDDA50E951A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932165   (508926) от 29.08.2015
-
-Halsey - BADLANDS (2015) Deluxe Edition [MP3|320 кб/с]<Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castle
- 02. Hold Me Down
- 03. New Americana
- 04. Drive(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE9F78EC8E546F194F9F7694699B6E279355564
 ```
 
 https://mybot314.ru/tekegram_catalog/

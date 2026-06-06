@@ -1,3 +1,32 @@
+###  Публикация: 1717020   (111222) от 20.04.2024
+
+VA - Red Nation (Native American Music) (2024) [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Copy Art - Ly-O-Lay A Le Loya [05:38]
+02. Tetouze - The New Shamans [03:07]
+03. Moonlight Benjamin - Wayo [04:38]
+04. Wakan Tanka - Reality [03:22](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 03:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6580757FDC86A1E769B2C0D7D0075DEB0A5F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722149   (109842) от 10.05.2024
 
 Hank Marvin - Compilation (2024) [MP3|320 Kbps] <Instrumental Guitar>
@@ -689,35 +718,6 @@ Sacred Spirit - Native Compilation (2024) [MP3|320 Kbps] <Native American, New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37DF23DB14A09991205DE2BDEBDEDE469AA322E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733235   (51497) от 30.06.2024
-
-VA - compilation  part 92 Relaxation (2024) [MP3|320 Kbps] <New Age, Relaxation>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frantz Amathy - Angelic Garden
-02. Frantz Amanty - C?ur D'etoile: Les Anges De Ton C?ur
-03. Logos - Connexion
-04. Michel Pepe, Logos - Horizons Eternels(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 08:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AF2D8A0F3E459EF74A69BBDF27C98EA1B6DB8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

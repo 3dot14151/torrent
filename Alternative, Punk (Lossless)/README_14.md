@@ -1,3 +1,61 @@
+###  Публикация: 1011211   (795444) от 29.04.2016
+
+Interpol - Our Love To Admire (2007) Deluxe Edition [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pioneer To The Falls  5:42
+02.  No I In Threesome  3:51
+03.  The Scale  3:25
+04.  The Heinrich Maneuver  3:29(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660FFC11A26D897D9674CE7C6AA1FA996C25D5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274234   (794172) от 06.01.2019
+
+Dylan Mondegreen - A Place in the Sun (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Place in the Sun (03:54)
+02. Don't Call Me (03:30)
+03. The Best Thing (03:29)
+04. Golden Days (02:48)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7B579CCE8ABF75558FB51EAF745BE52352E84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509420   (793969) от 13.11.2021
 
 Dave Gahan & Soulsavers - Imposter (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -687,64 +745,6 @@ Field Music - Open Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:476710516EAACEB44ECD96490954E20209149FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203226   (788665) от 01.02.2018
-
-Morrissey - Bona Drag (1990) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piccadilly Palare (03:27)
-02. Interesting Drug (03:28)
-03. November Spawned A Monster (05:25)
-04. Will Never Marry (02:22)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D992D201567AF582C2E5B2DBE1B226FFFA9F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203023   (788654) от 01.02.2018
-
-Tiny Moving Parts - Swell (2018) [FLAC|Lossless|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788654.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Applause
-2. Smooth It Out
-3. Feel Alive
-4. Caution(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF74D9E12EDC02DD3315268B96395C0A780F7A63
 ```
 
 https://mybot314.ru/tekegram_catalog/

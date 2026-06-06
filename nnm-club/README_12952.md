@@ -1,25 +1,25 @@
-###  Публикация: 925949   (537281) от 08.08.2015
+###  Публикация: 1238864   (543780) от 02.08.2018
 
-Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+Anosphere - 3 Studio Albums (2007-2011) CD [MP3|320 Kbps] <Electronic, Synth-pop, Spacesynth>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Positively [03:34]
-02. Lover Man (Oh, Where Can You Be) [04:45]
-03. Let's Get It All Together [07:10]
-04. Easy For You To Say [04:39](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:48:15
+Список альбомов:
+2007 - Field Of Mutants
+2007 - Timetraveller
+2011 - One And All(   Читать дальше...   )Жанр: Electronic, Synth-pop, SpacesynthПродолжительность: 03:30:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C48A7B01FF2A616D114E4B05980862E81CD9B50F
+magnet:?xt=urn:btih:6D222FA0153BA91B30D7ADA4A1A56EF8B8508FDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,27 +27,552 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 925075   (537280) от 08.08.2015
+###  Публикация: 1238897   (543779) от 02.08.2018
 
-The Clamps - Nerves (2015) [MP3|320 кб/с]<Drum & Bass>
+Saåad (Saaad) - Deep​/​Float (2014) Hands In The Dark [FLAC|Lossless|WEB-DL|tracks] <Experimental, Drone, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valley Of Quartz   (05:33)
+ 02. Alone In The Light (05:51)
+ 03. Giant Mouth (06:54)
+ 04. I Will Always Disappoint You (06:08)(   Читать дальше...   )Жанр: Experimental, Drone, AmbientПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E63C0F0324C15DA13F7E78C374F1AADE185072A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238930   (543778) от 02.08.2018
+
+Обои - Desktop Wallpapers Full HD. Part (251) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7A591D1CAB6BD3BD1A4CB3F35CF072C0BF3AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238984   (543777) от 02.08.2018
+
+Torch Browser 65.0.0.1599 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torch Browser - браузер на платформе Chromium с расширенными возможностями: прямо из браузера можно будет скачать файл с торрента, сохранить видео, ускорить загрузку файлов, поделиться ссылками и т.д.
+Кроме этого, в Torch Browser встроены функции безопасности, призванные защитить пользовательские данные, а также обеспечить приватность деятельности в интернете.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D3678705562C71DEB1A79BB41BAC8C7C13CB7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238791   (543776) от 02.08.2018
+
+Илья Стогов | Ключи от Петербурга. От Гумилева до Гребенщикова за тысячу шагов (2018) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Илья Стогов открывает для нас свой Петербург – город удивительных легенд, непризнанных поэтов, отчаянных рок-н-ролльщиков и звезд подпольной культуры.Жанр: Биографии и мемуары, Культурология, ПутеводителиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15833CC2B409C214605C7F13FD9C7EF0A429777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238882   (543775) от 02.08.2018
+
+Подшивка журналов | Электронная техника. Серия 1. СВЧ-техника (2017) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543775.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Электронная техника. СВЧ-техника» – Тематическая направленность журнала - квантовая и серхвысокочастотная электроника. В нем освещаются теоретические и практические вопросы развития СВЧ-техники, разработки твердотельных и электровакуумных приборов и устройств квантовой и СВЧ-электроники, технологии их изготовление и применения в различных областях науки и техникиЖанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C660B645D7908297C7A6ECA7FE2D0A6AFBF55F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238928   (543774) от 02.08.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 321 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543774.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281A176C0B4ED77A003B39E390CF1F17879A888B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238892   (543773) от 02.08.2018
+
+Наринэ Абгарян | С неба упали три яблока (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543773.jpg" />
+</div>
+
+
+###  Подробнее
+
+История одной маленькой деревни, затерянной высоко в горах, и её немногочисленных обитателей, каждый из которых немножко чудак, немножко ворчун и в каждом из которых таятся настоящие сокровища духа. От автора: «Бабушка говорила – ближе всех к небесам старики и дети. Старики потому, что им скоро уходить, а дети потому, что недавно пришли. Первые уже догадываются, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF2C06C9FF594A661E01564C4F6246D6E9B199E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238942   (543772) от 02.08.2018
+
+VA - Top Of The Pops: Love (3CD) (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543772.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Elton John - Your Song 4:00
+02. UB40 - Can't Help Falling In Love 3:26
+03. Aswad - Don't Turn Around 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 03:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E2956F9FF25FA02AF3B21C72E6252B26AF4EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238943   (543771) от 02.08.2018
+
+Картинки - Wallpaper pack - Dubai (UAE) [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка обоев на тему город Дубай (ОАЭ)Формат: JPG, PNGРазрешение файлов: 1920x1080-11116x4447
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645558EA55D711BFDAA6A2C1412509E5251EEFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239025   (543770) от 02.08.2018
+
+Игорь Прокопенко | Русские булки. Великая сила еды (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игорь Прокопенко в своей новой книге обращается к неизвестным страницам русской истории во всех её аспектах – от культуры до рациона наших предков. Почему то, что сейчас считается изысканными деликатесами, в Древней Руси было блюдами рядовой трапезы?
+
+Что ищут американские олигархи в Сибири? Станет ли Россия зоной экологического благоденствия в погибающем мире?Жанр: Общая история, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B93FC27267C0FFC15907F6139FDA55B5CAF0774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238925   (543768) от 02.08.2018
+
+Майя Лунде | История пчел (2018) [FB2]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман норвежки Майи Лунде – антиутопия, скрещенная с семейной сагой.
+1852-й год, Англия. Любитель-естествоиспытатель Уильям Сэведж, отягощенный большой семьей и денежными затруднениями, впадает в депрессию, потому что отказался от мечты своей юности – занятий наукой. Вынырнув из душевной трясины, он решает изобрести новый улей, который прославит его имя и даст достаток (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Анастасия НаумоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C526AB7B15EC4411E87E4E837E278421345584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238875   (543767) от 02.08.2018
+
+Carbon Copy Cloner 5.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner –  утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E3288CCEA1BD4434F35BA1F3F6A3E17837CBF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238997   (543766) от 02.08.2018
+
+VA - Sounds Of The Eighties The Rolling Stone Collection 1982-1983 (1995) Time Life Music [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Time Life Music - является подразделением огромного холдинга, который в свою очередь является создателем и прямым продавцом известнейших книг, музыки, DVD и мультимедийных продуктов. В настоящее время фокус компании - музыка и видео (поскольку книжное подразделение закрылось в 2003 году).
+Первый успешный опыт Time Life по изданию рок-музыки случился в 1986 году, (   Читать дальше...   )01. Talking Heads - Burning Down The House  (4:04)
+02. David Bowie - Let's Dance  (4:11)
+03. Culture Club - Do You Really Want To Hurt Me  (4:25)
+04. English Beat - I Confess  (4:34)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F892FFD6EB21FC86A0121197869977863FDBBB7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049415   (543765) от 05.09.2016
+
+Logic System - History of Logic System (2003) CD Compilations [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logic System - это японский музыкальный проект начала 80-х от Hideki Matsutake. Начав в 70-х годах в качестве помощника  Isao Tomita,  работая  программистом и модульным оператором синтезаторов в "Yellow Magic Orchestra" (YMO), причем так и не стал членом команды из-за одновременной работы над несколькими своими альбомами и дальнейшими гастролями с огромной (   Читать дальше...   )01. Intro (0:45)
+02. Domino Dance (4:18)
+03. Covulsion Of Nature (3:02)
+04. Talk Back (4:15)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F64F048DDB7E84407B3B728C326ECCDB2921F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049410   (543764) от 05.09.2016
+
+Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music Vol.2 (1989) [WavPack|Lossless|image + .cue] <Ethno, Chinese Traditional Music>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543764.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Plum Blossom Melody (7:52)
+2. Sound Of The Nature (6:05)
+3. Song Of The Lotus (7:38)
+4. Phoenix Spreading His Tail (3:39)(   Читать дальше...   )Жанр: Ethno, Chinese Traditional MusicПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7850F5F526B73F14B6AF36341C9537C6E32E6C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048627   (543762) от 05.09.2016
+
+Льюис Пэджетт| Все тенали бороговы (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игрушки из будущего становятся причиной исчезновения двоих детей в прошлом, а также влияют на написание Кэрролом «Алисы в Зазеркалье».
+На основе рассказа также в 2007 году снят фильм, русский перевод названия "Последняя Мимзи вселенной", режиссер Роберт Шэй.Жанр: ФантастикаПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729D471918F4E9FE141BF3076FE4D5D904A788BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049613   (543761) от 05.09.2016
+
+Megapack for iWork 2015 v2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Megapack for iWork: Шаблоны для Pages, Numbers и Keynote можно использовать для дома и офиса. Пакет, содержит творческие проекты, темы и шаблоны для последних редакции Pages, Numbers и Keynote.
+
+• Pages. От простых писем и приглашений до бюллетеней, брошюр, и отчетов. Megapack for iWork поможет вам создать документы в полном объеме в течение нескольких минут.
+Таблицы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 июля 2016Разработчик: Nick MaskillПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4DD458CABD7A34FB73B8C868ACACC500BD0AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049382   (543760) от 05.09.2016
+
+VA - Extended Version & Remix, Vol. 5 The Sound of Italo Disco (2016) [MP3|320 Kbps] <Disco,Dance,Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change - Paradise (Extended DJ Mix) (06:54)
+02. B. B. & Q. Band - On the Beat (87 Bronx Remix) (07:00)
+03. Firefly - Love Is Gonna Be on Your Side (U. S. Remix) (07:08)
+04. Kano - I'm Ready (12" Version) (07:18)(   Читать дальше...   )Жанр: Disco,Dance,Italo DiscoПродолжительность: 03:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EACF0B6931FA57CE29A84CEAB8BF21B14E6B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049546   (543758) от 05.09.2016
+
+ReGen - KeyCode 1.5.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543758.jpg" />
+</div>
+
+
+###  Подробнее
+
+ReGen - KeyCode - это программа для определения кода клавиш. Показывает код клавиши, ASCII и brCode (код символа для браузера), сразу же переводя их в двоичную и шестнадцатиричную систему счисления. Кроме того, программа поддерживает работу с буфером обмена, тем самым помогая быстро скопировать код.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F988281728274BBC3E69C6D35D0E28696C70421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049574   (543755) от 05.09.2016
+
+VA - Hardstyle The Ultimate Collection Vol.3 (2016) [MP3|320 Kbps] <Hardstyle, Jumpstyle, Newstyle Gabber>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nerves (Original Mix)
-02. Future Frontier (Original Mix)
-03. Strains (Original Mix)Жанр: Drum & BassПродолжительность: 00:18:53
+01. Mekanikal & Michael Phase  -  The Jumpoff  2:57
+02. Max Enforcer & Frontliner  -  WKND  4:00
+03. D.E.Q  -  Ceres  2:40
+04. Art Frequency  -  Solidarity  2:53(   Читать дальше...   )Жанр: Hardstyle, Jumpstyle, Newstyle GabberПродолжительность: 04:56:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0D394BAC3317A5C5D81412A67683A5B429E5916
+magnet:?xt=urn:btih:416DC9AC22FBB2B0621F9F892F1B4CD68D95B366
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +580,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 925527   (537279) от 08.08.2015
+###  Публикация: 1049556   (543754) от 05.09.2016
 
-DJ Nike Twist - TranceWave 120 @ GTI Radio (30.07.2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
+Da Gudda Jazz - Легенда (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
 
->>Архив торрентов
->>Архив Музыки
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Paul Rigel - Good Morning (Mhammed El Alami Remix) (Alter Ego)
-2. Active Limbic System - We Live In Your Basement (Original Mix) (Monster Force)
-3. Ultimate - Reach For The Sky (Original Mix) (Infrasonic Pure)
-4. Sunlight Project - Limelights (Original Mix) (AEZ)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:01:52
+01. Элвис
+02. Кобейн
+03. Гагарин
+04. Андерсон(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD877E57D77161037C8A6683630BB99B411724B3
+magnet:?xt=urn:btih:F25E46336CB7CE976DDCCBD4AFE456130CA2FA1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,25 +609,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 925959   (537278) от 08.08.2015
+###  Публикация: 1049531   (543752) от 05.09.2016
 
-Военная программа Александра Сладкова (08.08.2015) SATRip
+Cassius - Ibifornia (2016) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Missing (feat. Ryan Tedder)
+02. Love Parade (feat. Mike D.)
+03. Action (feat. Cat Power & Mike D.)
+04. Go Up (feat. Cat Power & Pharrell Williams)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EFFE89B18C4E8DB41B12AAE1DCAF8E1344070D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049627   (543751) от 05.09.2016
+
+Битва за соль. Всемирная история (2012) SATRip
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основе программы авторский рассказ с характеристикой ситуации, в которой оказались герои программы. Каждая программа включает в себя истории о людях в военной форме со всеми их достоинствами, недостатками, победами и поражениями. Уникальный архив, собранный за многие годы автором программы Александром Сладковым, позволяет прослеживать истории героев программы на (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:17:17
+В средние века алхимики часто называли соль "квинт эссенцией". Отсюда и произошло выражение "квинтэссенция", которое означает нечто самое главное, самое существенное - СОЛЬ. С древнейших времен соли приписывались разнообразные свойства - от волшебных, магических, религиозных и священных до оздоровительных и животворящих. Откуда пошли многочисленные (   Читать дальше...   )Телекомпания: Россия, Россия-1Жанр: ДокументальныйПродолжительность: 01:07:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25B42C88AAFEF38C433AB3EDCDF21BB689DCAE36
+magnet:?xt=urn:btih:D71D772BFE93D6D2BF404471EB7CCF71EA6FC168
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 924944   (537277) от 08.08.2015
+###  Публикация: 1311233   (543744) от 28.06.2019
 
-Lysithea - Realms (2015) [MP3|320 кб/с]<Doom Metal>
+Cachorro Grande - Baixo Augusta (2012) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock, Rock & Roll>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hyperborea (07:20)
-02. The Cosmic Eye (08:33)
-03. Ghosting (10:10)
-04. Tomb Of The Somnambulist (09:47)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:59:41
+01. Não Entendo, Não Aguento (4:18)
+ 02. Difícil de Segurar (2:46)
+ 03. Tudo Vai Mudar (3:00)
+ 04. Baixo Augusta (4:22)(   Читать дальше...   )Жанр: Pop Rock, Alternative Rock, Rock & RollПродолжительность: 00:42:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82565105C3842FA1DD5277D2F6E99A6D1B0B8BF6
+magnet:?xt=urn:btih:78EE7C4A8B484304EC77EAC50A0558D3C1245188
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,599 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 925943   (537276) от 08.08.2015
+###  Публикация: 1311207   (543743) от 28.06.2019
 
-The Pentones - Don't Leave Nothin' Behind (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delta Blues (03:24)
-02. Jodie (05:34)
-03. Sunday Funny (04:57)
-04. End Of The World (05:28)(   Читать дальше...   )Жанр: Blues Rock,  Louisiana BluesПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D707F046EA8D02C2F840369831D8222D00DF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925854   (537275) от 08.08.2015
-
-Bob Baldwin - MelloWonder, Songs In The Key Of Stevie (2015) [FLAC|image+.cue]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Real Thing/Keeping It Real (Featuring Chieli Minucci/Ragan Whiteside) (5:30)
-02. Creepin' (5:19)
-03. Don't You Worry 'bout A Thing (Featuring Chieli Minucci) (5:13)
-04. That Girl (Featuring U-Nam) (5:57)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AFB94C955019A3695634CDA2D2B8A88C5B588D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925884   (537274) от 08.08.2015
-
-The Grass Roots - Leaving It All Behind (1969) [MP3|320 кб/с]<Rock>
+Night Moves - Can You Really Find Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm Living For You Girl
-02. Back To Dreamin' Again
-03. Out Of This Woirld
-04. Melinda, Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:33
+01. Mexico
+02. Recollections
+03. Keep Me In Mind
+04. Strands Align(   Читать дальше...   )Жанр: Indie, RockПродолжительность: 00:40:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E60D5C7B561CF9D9FD99798D0905C43BE58EB71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925610   (537273) от 08.08.2015
-
-Анатолий Гладилин | Секрет Жени Сидорова (1975) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая повесть-сказка, в которой смешались реальная жизнь и самые невероятные происшествия. Началось все с того, что пятиклассник пионер Сидоров получил возможность путешествовать на волшебной тележке («машина времени») в различные исторические эпохи.Жанр: Детская проза, фантастикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1506D75DEEB03713A272DDC312BDE6D78D6700D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925840   (537272) от 08.08.2015
-
-Wendy Rich - Driver (2015) [MP3|320 кб/с]<Country, Blues Soul, Americana>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always a Woman (04:30)
-02. Brand New Addiction (03:47)
-03. Want Me (03:56)
-04. Driver (03:08)(   Читать дальше...   )Жанр: Country, Blues Soul, AmericanaПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578937F5B6519954BA4FF178B1900E3F322391C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925754   (537271) от 08.08.2015
-
-Владимир Волжский - Зона-сводная сестра (2002) [FLAC|image+.cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые ночи пермских лагерей
-02. Однолюб
-03. Суды по беспределу
-04. Заброшенный дом(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF88AF88D4B0436550BBAB6C9C93F58A0FA744C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925857   (537270) от 08.08.2015
-
-Jiro Inagaki - Dock of My Mind (2015) [FLAC|tracks+.cue]<Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dock of My Mind (4:16)
-02. Afternoon (4:26)
-03. Barefoot Girl (3:43)
-04. Colourful Winds (3:27)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD3C9C46D898D53775066207EC7DD5702ADBA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926021   (537268) от 08.08.2015
-
-Горизонты атома (01.08.2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петербургские атомщики из Радиевого института имени Хлопина прославились на всю Россию. На линии по производству медицинских изотопных препаратов они решили установить устройство собственной разработки, которое не только ускоряет работу, но и экономит огромные деньги, ведь отечественное изобретение в 24 раза дешевле импортных аналогов.Телекомпания: Россия 24Жанр: ДокументальныйПродолжительность: 00:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7329A3604768D4E30A4CC9423CB53B6A303D6D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925705   (537267) от 08.08.2015
-
-VA - Best Of Chill Lounge (2015) [MP3|320 кб/с]<Lounge, Chill Out, Chill House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj-Chart - Wish (03:44)
-02. Eddy Chrome - In Love (Double Deep More Love Mix) (05:37)
-03. Privat Projekt Feat. Maysha - Sunshine (05:22)
-04. Dj-Chart - Get In Mood (04:22)(   Читать дальше...   )Производство: IH Music ProductionsЖанр: Lounge, Chill Out, Chill HouseПродолжительность: 05:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7C389C2298F507CAB535581914B91E57F8BC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925901   (537266) от 08.08.2015
-
-Пётр Биргер | На сто лет старше (2013) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как жили петербуржцы сто лет назад и как живут сейчас.Жанр: ИсторияПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A2EF44233EB230E38BAB3118B71EE38250516C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154910   (537245) от 01.08.2017
-
-Cj Stereogun - Top & New (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cj Stereogun - Autumn Wave (Original Mix) 08:06
-02. Cj Stereogun - Cassiopeia (Original Mix) 07:02
-03. Cj Stereogun - Dolphin Pond (Original Mix) 08:27
-04. Cj Stereogun - Ice Planet (Uplifting Trance Mix 2017) 06:04(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1114AD0FB4323D9B491D034B6EF0814CD9C6B793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155006   (537244) от 01.08.2017
-
-Футбол. РФПЛ. Чемпионат России 2017-2018. 3-й тур. Спартак (Москва) — Краснодар (Краснодар) (31.07.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537244.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 июля 2017 года, понедельник. 19:30 МСК
-РФПЛ. Чемпионат России 2017 - 2018. 3-й тур
-Спартак (Москва) — Краснодар (Краснодар)
-Стадион: Открытие Арена (Москва, Россия), 34208 зрителей (75 % при вместимости 45360)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A519DCF2105F4A332EEC475FD9044C69D25451EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155044   (537243) от 01.08.2017
-
-Mind Odyssey - Time To Change It (2009) Japan 1st Press, 2009, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding And Ruling (3:25)
-02. Enemy Daggers (3:57)
-03. I Want It All (4:38)
-04. Face In The Rain (3:53)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15ECB9AE0D4A74FF6BC2EA2F1A7FF8651991BAC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154792   (537242) от 01.08.2017
-
-Wolverine - Machina Viva (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537242.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Bedlam Overture (14:40)
-2. Machina (05:17)
-3. Pile Of Ash (04:18)
-4. Our Last Goodbye (07:44)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE59F1472E2D7ADD24DE944B6EB419D298C48D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155040   (537240) от 01.08.2017
-
-Mind Odyssey - Nailed To The Shade (1998) Japan 1st Press, 1999, Victor [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture - Ascending To Heaven (1:27)
-02. Nailed To The Shade (4:30)
-03. In The Dark (4:07)
-04. Gone (5:22)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFBABF94C2F6D83288BE7933C387E8704CD2C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155043   (537239) от 01.08.2017
-
-Mind Odyssey - Signs (1999) Japan 1st Press [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fountain Of Music (1:33)
-02. Men Of No Return (5:26)
-03. Golden Age (5:55)
-04. In The Picture (7:31)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9992D95FFB712D6A3658E0734FE2AAE6E20E9D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154221   (537238) от 01.08.2017
-
-Monster Energy NASCAR Cup Series 2017. 19-й Этап. Overton's 301 (16.07.2017) HDTVRip [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537238.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 июля 2017 года
-Monster Energy NASCAR Cup Series 2017 является 69-м сезоном профессиональных гонок автомобилей в США и 46-м сезоном современной эпохи NASCAR Cup Series.
-19-й Этап. New Hampshire - Overton's 301. Лаудон (штат Нью-Хэмпшир, США)
-Дистанция: 318.458 миль (512.508 км). 301 кругов, круг - 1,058 мили (1,703 км)(   Читать дальше...   )Телекомпания: NBCSNЖанр: СпортЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые)Продолжительность: 03:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8796D36F331CEF2FCBECE5BA95954621C9B1FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155084   (537237) от 01.08.2017
-
-VA - Ambient Chill Playlist: 14 Chilled Ambient and Downtempo Tracks (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Custom 7 - Breath Unwind
-02. Bella Element - Forest Rain
-03. Nils Hahn - La sua bellezza - Custom 7 Remix
-04. Joefish - Altered State(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574021B5E8F117EDB1FABCCA1BB19C1245E3A7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154984   (537236) от 01.08.2017
-
-VA - Rooftop Dinner, Vol. 1 (Finest Lounge and Nu Jazz Tunes) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Bianchi - Goodnight 03:16
-02. Artur Bayramgalin - Over The Clouds 05:27
-03. Otamoo - Recap 2 05:51
-04. Driewad - Django 04:18(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263D56237C57DAAE7050A6EEA4FB6045C3B0EDAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154973   (537235) от 01.08.2017
-
-Darkwater - Calling The Earth To Witness (2007) [APE|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537235.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2534167 (00:32)
-2. All Eyes On Me (08:48)
-3. Again (09:01)
-4. Habit (12:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A874329D163657851B11DF067F9CD424946660DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154858   (537234) от 01.08.2017
-
-VA - Uplifting Trance Sessions Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Distant World - Make Trance Not War (Original Mix)  7:43
-02.  Alexander Dyomin - In My Memoirs (Original Mix)  5:54
-03.  T4L & Mariano Ballejos - Paradise (Original Mix)  6:44
-04.  Daisuke Matsushima - Legacy (Abide Remix)  5:57(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CDA62E00C78089BCFB0F290AFC2E3650FEF64E
+magnet:?xt=urn:btih:D6DA52F33EE95C9A046D6A09A800417B964C4AB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

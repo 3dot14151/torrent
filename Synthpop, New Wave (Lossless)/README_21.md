@@ -1,3 +1,90 @@
+###  Публикация: 1571467   (239967) от 22.08.2022
+
+Space - Deeper Zone (1980) 1996, PolyGram [FLAC|Lossless|image + .cue] <Electro, Synthpop, Instrumental, Space Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeper Zone (7:16)
+02. Inner Voices (3:32)
+03. Space Media (3:29)
+04. Mixed Up (5:44)(   Читать дальше...   )Жанр: Electro, Synthpop, Instrumental, Space RockПродолжительность: 00:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB6B80C0520F9E27AD53A95CEB0258A18E4205F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635243   (239569) от 27.05.2023
+
+Public Domain Resource - AntiGravity (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1000 Letters From Iwo Jima
+02. Obsession
+03. Dunes
+04. A.N.A.(   Читать дальше...   )Жанр: Synth-pop, ElectroПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B08629F5C636F99EFDF5C545085B7F6345815FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623933   (238281) от 03.04.2023
+
+ЧеширSky - Allсезон (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Утопаyou [00:02:59]
+02. Горизонт [00:03:02]
+03. Loveтайм [00:02:54]
+04. Нашроман [00:03:51](   Читать дальше...   )Жанр: New Wave, ElectronicПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14578CBF4431486812FE1CF4F6E91716C3C718C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639777   (236710) от 15.06.2023
 
 Sorry Girls - Bravo! (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, 80s>
@@ -658,93 +745,6 @@ Depeche Mode - Violator (1990) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB20B99354ADE22BD0231E461606AF2DEC537A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342587   (222597) от 03.12.2019
-
-Kalax - III (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, 80s>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 86' (3:50)
- 02. Let Go (feat. Anton Vic) (4:50)
- 03. Dream (5:05)
- 04. Not Alone (feat. Player One) (5:17)(   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave, 80sПродолжительность: 01:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C37E31EC276D08F97FAB7F5F0954CA3E4CEBB2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585321   (222529) от 21.10.2022
-
-2raumwohnung - Club Mix Collection (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electro House, Indie Dance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wir Werden Sehen (Solomun Vox Remix) (7:17)
- 02. Das Ist Nicht Das Ende Baby (Westbam/ML Re-Rub) (5:25)
- 03. Bei Dir Bin Ich Schön (Ian Pooley Remix) (6:20)
- 04. Mir Kann Nichts Passieren (Glove Grand Disco Remix Edit) (4:37)(   Читать дальше...   )Жанр: Synthpop, Electro House, Indie DanceПродолжительность: 02:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B2181B4B940E9AC705390C583D1BAF337AB8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651657   (221181) от 07.08.2023
-
-Philtron - None (1997) [FLAC|Lossless|image + .cue] <Synth-Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 No One To Blame 4:39
-02 Nowhere Girl
-04:09
-03 Higher 4:17(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB87AE7ACE22A23865667AF8831B956C8DA6B09
 ```
 
 https://mybot314.ru/tekegram_catalog/

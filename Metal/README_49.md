@@ -1,3 +1,32 @@
+###  Публикация: 1294358   (629982) от 07.04.2019
+
+Silver Bullet - Mooncult (2019) [MP3|320 Kbps] <Power Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629982.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - 1590 Edinburgh (Intro) (2:05)
+ 2 - She Holds the Greatest Promise (5:06)
+ 3 - Forever Lost (4:45)
+ 4 - Maiden, Mother and Crone (4:47)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E582FC9C7D283F4E180372257576F194C9FEB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909112   (628580) от 17.06.2015
 
 Dew-Scented - Intermination (2015) [MP3|320 кб/с]<Death/Thrash Metal>
@@ -717,35 +746,6 @@ Demon Lung - A Dracula (2015) [MP3|320 кб/с]<Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91DB848B160AEDEC99AE8440A708E6AA8087D12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910005   (624213) от 19.06.2015
-
-Telergy - Hypatia (2015) [MP3|320 кб/с]<Epic / Symphonic / Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scene, No. 1
-02. Astronomer
-03. Scene, No. 2
-04. Philosopher(   Читать дальше...   )Жанр: Epic / Symphonic / Progressive MetalПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D621941F7D8D803D5D85AFDD4B609C4BF1C104D
 ```
 
 https://mybot314.ru/tekegram_catalog/

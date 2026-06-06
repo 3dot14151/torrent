@@ -1,3 +1,90 @@
+###  Публикация: 1194247   (155805) от 25.12.2017
+
+Titiyo - Come Along (2001) [MP3|320 Kbps] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Along (03:43)
+02. 1989 (04:07)
+03. Love Has Left Your Eye (03:57)
+04. My Heart Won (03:27)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1432CADE764041A28A9C6512DC5E3E986164A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270481   (155766) от 20.12.2018
+
+VA – Best Of Christmas (2017) [MP3|320 Kbps] <Pop, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Wonderful Dream (Holidays Are Coming) (Radio Version)-Melanie Thornton
+ 02.O Holy Night-Frances
+ 03.December Song (I Dreamed Of Christmas)-George Michael
+ 04.Mistletoe-Colbie Caillat(   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 02:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D96B245F2DCFB4E287A8F77899B584B60A4693A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194102   (155742) от 25.12.2017
+
+Titiyo - Titiyo (1990) [MP3|320 Kbps] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Body Says Yes (04:07)
+02. After the Rain (03:48)
+03. Flowers (03:53)
+04. Man in the Moon (04:16)(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2738E4ADD325E8FB4DD67A3D15835FFDC128AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194412   (155593) от 25.12.2017
 
 Елена Войнаровская (Flёur) - Ночь тиха (2017) EP [MP3|320 Kbps] <Pop, Indie, Cardiowave>
@@ -658,93 +745,6 @@ VA - Hit News Vol. 8 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F4169A66D92628507588FA9101FD99099A6346D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271413   (150289) от 23.12.2018
-
-Don Amore - Memories Of Dreams (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Only Want You (Intro) 03:00
-2. Long Ago 07:09
-3. Don't Leave Me Tonight 06:05
-4. In Your Eyes 06:31(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B59028EF8806DC9C48B30E3C6A5BA6D32AC332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677473   (150284) от 18.11.2023
-
-VA - NOW That's What I Call 40 Years (2023) Vol. 1-4, 12 CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Britney Spears - ...Baby One More Time [3:32]
-02. Steps - Tragedy [4:31]
-03. Eiffel 65 - Blue (Da Ba Dee) [3:40]
-04. Gabrielle - Rise [3:40](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 15:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE5DEE5B7F056E0ED706212A8DED799E7A9DC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271439   (150276) от 23.12.2018
-
-Jessie J - This Christmas Day (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Comin’ to Town
-02. Man With The Bag
-03. Rockin’ Around the Christmas Tree
-04. Jingle Bell Rock(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6273FEC8D63DB1F9D5723E91AA104324D0B37DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

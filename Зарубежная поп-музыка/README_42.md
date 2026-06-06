@@ -1,3 +1,32 @@
+###  Публикация: 1235111   (564072) от 09.07.2018
+
+VA - Acoustic Love Songs (2018) [MP3|320 Kbps] <Pop, Folk, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabrielle Aplin - The Power of Love
+02. Tyler Hilton - Missing You (Acoustic Version)
+03. America - I Need You
+04. Orleans - Dance with Me(   Читать дальше...   )Жанр: Pop, Folk, Pop RockПродолжительность: 01:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FA8E110E66CCA9EB1E5717AD9B42784618C580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152844   (563299) от 24.07.2017
 
 Rosebud - Discoballs (A Tribute To Pink Floyd) (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
@@ -716,35 +745,6 @@ VA - Ballerstyle - Mallorca Hits 2019 (Best of Mallorcastyle Schlager für die D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94989DE02296D860219243ADB4F0ACF39F8E33AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308630   (553777) от 15.06.2019
-
-VA - Schlager-die Hits des Sommers (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553777.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Beatrice Egli - Terra Australia
-02. Kerstin Ott - Regenbogenfarben (Bassflow Remix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0D998AF44C492ACBE27D0649738A5D5E3C6913
 ```
 
 https://mybot314.ru/tekegram_catalog/

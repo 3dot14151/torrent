@@ -1,3 +1,32 @@
+###  Публикация: 255570   (960908) от 20.01.2014
+
+Волшебная свирель 3 CD - Мелодии в тишине, Мечты, мечты..., Звуки небес. (2006) [MP3|320 kbps]<Classical, relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born free
+02. Early Morning Rain
+03. The French Waltz
+04. Don't fall in love with a dreamer(   Читать дальше...   )Жанр: Classical, relaxПродолжительность: 03:18:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979595   (959885) от 26.01.2016
 
 David Wahler - Secret Dream (2012) [MP3|320 кб/с] <New Age, Meditative>
@@ -720,35 +749,6 @@ Messiah Project - (2 альбома) (2012-2013) [MP3|320 кб/с]<Enigmatic,New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91FA69BDED22330654311DAA8AFAA26244423D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987845   (922733) от 19.02.2016
-
-Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uptown (03:58)
-02. Clouds of Linen (03:57)
-03. Panorama (04:18)
-04. Peyote (04:34)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640E117891F9AE17A709BEA750120CEFABF78BCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

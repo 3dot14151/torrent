@@ -1,3 +1,32 @@
+###  Публикация: 1178006   (360495) от 26.10.2017
+
+Blutengel - Black (2017) [MP3|320 Kbps] <Darkwave, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black
+02. Komm zu mir!
+03. There's No Place
+04. Seele(   Читать дальше...   )Жанр: Darkwave, Synth-popПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37560B0AFD99C26FDD33FA7760BC226E5DA104BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576870   (350175) от 21.09.2022
 
 Contagion - Omnibus (2011) [MP3|320 Kbps] <EBM, Industrial, Rock>
@@ -722,35 +751,6 @@ Sopor Aeternus & The Ensemble Of Shadows - ALONE AT SAM’s - An Evening with...
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:771725E92F1EA3199EC4D4BD3918339AD7FE016F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277469   (157995) от 20.12.2020
-
-Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industrial Metal, Dubstep, Drum & Bass, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157995.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013 - Reqviem v1.0 (EP)
-2013 - Reqviem v1.5 (EP)
-2014 - Rave The Reqviem (Limited Edition)
-2015 - Remix The Reqviem(   Читать дальше...   )Жанр: Industrial Metal, Dubstep, Drum & Bass, IndustrialПродолжительность: 05:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92E2CF481115BF209B27F5E513CE3512CEDA9DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

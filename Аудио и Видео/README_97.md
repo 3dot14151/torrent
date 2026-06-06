@@ -1,3 +1,61 @@
+###  Публикация: 1526323   (738485) от 24.01.2022
+
+Lamuzgueule - Electro Swing Best of, Pt. 1 (2021) [AAC|~339 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamuzgueule, Dimaa - Prohibition (4:08)
+02. Lamuzgueule, Lyre le temps - French Kiss (3:10)
+03. Triple Lutz (3:51)
+04. Lamuzgueule, Thomas Faure (Electro Deluxe), Syd - Black Swan (4:42)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9C6F55BFB3329C5AC3E98B0A0C0B76BE753ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526332   (738484) от 24.01.2022
+
+Swing Republic - Midnight Calling (2012) [AAC|~327 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing Republic, Karina Kappel - Fall (3:19)
+02. Swing Republic, Karina Kappel - Mama (3:20)
+03. Swing Republic, Karina Kappel - Midnight Calling (3:44)
+04. Swing Republic, Karina Kappel - Sugar Bubble (3:37)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12081AADE31163EEB9B423EE92C6598E590BBB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526336   (738482) от 24.01.2022
 
 Swing Republic - The Best of Swing Republic (2018) [AAC|~321 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
@@ -663,64 +721,6 @@ VA - Cozy Lounge Grooves (2022) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80C41DB42B62449062829F77AD69D3A29072ADE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526960   (737843) от 26.01.2022
-
-VA - Subway Soundz Best Of 2021 (2022) [AAC|~322 Kbps] <Jump Up, Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebel Culture - Scanners (3:42)
-02. Tomoyoshi, A to C - Avant Garde (4:03)
-03. Slipz - Hurt (Kendrick Remix) (3:39)
-04. Master Error, Amplify, BlckHry - Think About It (4:24)(   Читать дальше...   )Жанр: Jump Up, Drum & BassПродолжительность: 02:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B23CBD75B89D2EE2D4F1D2FC2B23FB115D68D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526952   (737839) от 26.01.2022
-
-VA - FGX (10th Years Anniversary) (2021) [AAC|~337 Kbps] <Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andre Sobota - Oscillate (6:30)
-02. Holbrook, Skykeeper - Ursa Minor (6:38)
-03. Stan Kolev - Listen (Extended Mix) (7:07)
-04. Max Freegrant, Miss Monique - Stranger Things (Extended Mix) (6:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEF9A9B10722723C5EB89F23A2C73B42B0401A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

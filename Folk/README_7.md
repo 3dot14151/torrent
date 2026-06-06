@@ -224,6 +224,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214334   (271777) от 30.11.2018
+
+Iron Horse - Fade to Bluegrass: The Bluegrass Tribute to Metallica 1-2 (2003, 2006) [MP3|192 кб/с]<Bluegrass>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_271777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master of Puppets - 04:53
+02. The Thing That Should Not Be - 04:40
+03. Memory Remains - 03:28
+04. Creeping Death - 03:54(   Читать дальше...   )Жанр: BluegrassПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAC0C01FC634932478A3FEED8ACF86BC110D96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499255   (270685) от 01.12.2018
 
 Геннадий Заволокин - Играй, Гармонь! - 12 альбомов (1994 - 2002) [MP3|224 кб/с]<Folk>
@@ -734,37 +763,6 @@ Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85008F1DD00A0DA3C38DBE9D3C1697E53E98C429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491661   (246380) от 03.05.2012
-
-Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk, Blues, Alternative Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tri-State Blues (03:04)
-02. In The Shadows Of The Slaughterhouse (03:39)
-03. Drinkin' At The Crowbar (03:20)
-04. 3 String Guitar (03:52)
-05. Down Down Down (04:13)
-06. My Love's Shotgun (03:20)2004-2012Жанр: Dark Folk, Blues, Alternative RockПродолжительность: 00:21:29
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

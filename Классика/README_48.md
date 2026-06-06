@@ -1,3 +1,263 @@
+###  Публикация: 589725   (147865) от 15.12.2012
+
+Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, Мстислав Ростропович - Rachmaninov & Glinka Songs (1976/2006) [FLAC|Lossless]<Опера, вокал>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Памяти Галины Павловны Вишневской и Мстислава Леопольдовича Ростропович1. Rachmaninov - 'Noc pecal'na' (The Night is mournful), op.26 no.12 (1906)
+ 2. Rachmaninov - 'Ne poi, krasavica' (Oh, never sing to me again), op.4 np.4 (1890?)
+ 3. Rachmaninov - 'Muzyka' (Music), op.34 no.8 (1912)
+ 4. Rachmaninov - 'Vesennaja voda' (Spring Waters), op.14 no.11 (1896)(   Читать дальше...   )Жанр: Опера, вокалПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D682CB6716ADEF6604A405AEF3B8F254683E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519178   (146960) от 25.12.2021
+
+VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Loveday Academy Of St Martin In The Fields Sir Neville Marriner - Concerto for Violin and Strings in F minor, Op.8, No.4, R.297 L'inverno 1. Allegro non molto (3:21)
+02. Alan Loveday Academy Of St Martin In The Fields Sir Neville Marriner - Concerto for Violin and Strings in F minor, Op.8, No.4, R.297 L'inverno 2. Largo (2:19)
+03. Alan Loveday Academy Of (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7458F4F8C871F04C4F9F40296ECEF02243B67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271184   (146896) от 25.12.2018
+
+Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adeste Fideles
+02. Ave Maria
+03. Away In A Manger
+04. The First Noel(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC91F61D47127A3060545C0625D1D210DF820BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739745   (143847) от 29.12.2013
+
+Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergolese (2013) [FLAC 2.0|24/88.2|WEB-DL]<Avant-Garde Jazz, Classical Crossover>
+
+>>Классика
+>>Классика (HD Audio)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ogne pena cchiù spietata (5:58)
+02. Amen / Fac Ut Portem (11:20)
+03. Sinfonia for violoncello (10:03)
+04. Chi disse ca la femmena (4:43)(   Читать дальше...   )Жанр: Avant-Garde Jazz, Classical CrossoverПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4928259673135ED39DCBCBEDAF0A4D04118A775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435521   (143787) от 28.12.2020
+
+Bond - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Contemporary Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143787.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Can't Wait - Vocal Mix (3:51)
+2. Panthera (3:42)
+3. Zadok the Priestess (2:38)
+4. Come Home (3:15)(   Читать дальше...   )Жанр: Classical Crossover, Contemporary ClassicalПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82AE081B6C13CCBCD9DBA0CCDA649DE13CBDB321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969912   (143438) от 29.12.2015
+
+Schubert: Symphony no.8 'Unfinished' - Schumann: Symphony no.4 (Karl Bohm & Orchestra) (1999) [FLAC|Lossless|image+.cue] <Classical, Romantic Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143438.jpg" />
+</div>
+
+
+###  Подробнее
+
+(Schubert) Rosamunde *
+01. Andante (11:55)
+Symphony no.8 in B minor, D.759 "Unfinished" **
+02. Allegro moderato (12:58)(   Читать дальше...   )Жанр: Classical, Romantic Period, SymphonyПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D9819C3FA547B94B67A2956FB6B8B440F3A9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520159   (143259) от 27.12.2021
+
+Andre Rieu - Happy Together (2021) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143259.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Semper Fidelis
+2. You Are My Sunshine
+3. Waves Of The Danube, ARV
+4. Happy Together(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C652F79415293745E6B2AAEC004BC89471D291A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969903   (143117) от 29.12.2015
+
+J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossless|image+.cue] <Classical, Chamber Music, Recitals, Baroque Period, Toccata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toccata for keyboard in F sharp minor, BWV 910 (BC L146) (11:25)
+02. Toccata for keyboard in C minor, BWV 911 (BC L142) (13:13)
+03. Toccata for keyboard in D major, BWV 912 (BC L143) (11:50)
+04. Toccata for keyboard in D minor, BWV 913 (BC L144) (14:26)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Baroque Period, ToccataПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969954   (143100) от 29.12.2015
+
+The Baroque Christmas Album - Various Artists (2005) [APE|Lossless] <Classical, Baroque Period, Renaissance Period, Concerto, Chanukkah, Cantata, Sacred Music, Mass, Motet, Hymn, Oratorio, Carol ...
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Johann Sebastian Bach (1685 - 1750)
+"Nun komm, der Heiden Heiland", BWV 62
+01. Chorus "Nun komm, der Heiden Heiland" (04:31)
+Marc-Antoine Charpentier (1634 - 1704)(   Читать дальше...   )Жанр: Classical, Baroque Period, Renaissance Period, Concerto, Chanukkah, Cantata, Sacred Music, Mass, Motet, Hymn, Oratorio, Carol, Chorale, Concerto Grosso, Pastorale, Kyrie, NoelПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E5B55FDFE6BEA9C8B0AEF3258C0770C11B370B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087180   (142484) от 29.12.2016
 
 Andreas Scholl - Kantate: German Baroque Cantatas (1998) Harmonia Mundi France [FLAC|Lossless|image + .cue] <German Baroque Cantatas>
@@ -523,276 +783,6 @@ Concerto Grosso no. 1 (1976-77)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594868   (133043) от 27.12.2012
-
-VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC|Lossless]<Classical, Chamber, Waltz, Polka, Galop, Landler>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, Chamber Music/Recitals, Renaissance Period, Waltz, Operetta, Polka, Galop, Landler, MedleyПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F174617FDF56C2ADA8D468376E56408DA812A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594900   (132546) от 28.12.2012
-
-The Three Tenors - The Three Tenors Christmas ( L Album di Natale ) (2000) [FLAC|Lossless]<Classical Songs>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Domingo, Pavarotti - Cantique De Noel [03:55]
-02. Domingo, Pavarotti - Adeste Fideles [02:44]
-03. Domingo, Pavarotti - Ave Maria, Dolce Maria [02:46]
-04. Domingo, Pavarotti - Wiegenlied I [02:04]
-05. The Three Tenors - Oh Tannenbaum [01:59]
-06. Pavarotti - Tu Scendi Dalle Stelle [02:14]
-07. Pavarotti - Amazing Grace [03:38]
-08. Pavarotti - White Christmas [02:49]
-09. Pavarotti - Dormi, O Bambino [03:22]
-10. The Three Tenors - Silent Night [05:30](   Читать дальше...   )Жанр: Classical SongsПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744AEC9F01F81C02E896E299D81E3AB3FDCADC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594912   (132534) от 28.12.2012
-
-Placido Domingo - Christmas With Placido Domingo (1981) [FLAC|Lossless]<Classical Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A  Medley of Christmas Carols [05:21]
-02. O Joyful Children [02:44]
-03. La Virgen Lava Panales [02:30]
-04. Once Again, It's Christmas Time This Year [02:50]
-05. White Christmas [02:53]
-06. I'll Be Home for Christmas [02:57]
-07. Mary's Boy Child [02:32]
-08. Cantique de Noel (O Holy Night) [03:59]
-09. I Heard the Bells on Christmas Day [02:37]
-10. Silent Night [03:46]Жанр: Classical VocalПродолжительность: 00:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42F9C948D5B70B50778E99AFAF48D29C4F85E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682341   (131821) от 06.12.2023
-
-Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131821.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-(1)-(3) Sonata I in A minor
-(4)-(6) Sonata II in A flat major(   Читать дальше...   )Жанр: Classical, FortepianoПродолжительность: 01:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53021E948485FD6A416FD948FC6E36777B87ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596594   (131408) от 30.12.2012
-
-Sviatoslav Richter - Tchaikovsky Recital (1993) [FLAC|Lossless]<Classical, Romantic Period, Recital>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, RecitalПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D913DAAA53CCD2E5A79F4750266D8AB96B5F2B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596221   (131303) от 30.12.2012
-
-Vladimir Horowitz - Horowitz Plays Clementi, Piano Sonatas (1989) [FLAC|Lossless]<Classical, Sonatas, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Sonatas, PianoПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2C11C34014257C7AAAE72334F980B2F04FA63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596196   (131220) от 30.12.2012
-
-Elisabeth Schwarzkopf - Opera Arias (1990) [FLAC|Lossless]<Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mozart: Le Nozze Di Figaro    (04:08)
-02. Mozart: Cosi fan tutte    (09:20)
-03. Mozart: Don giovanni    (06:25)
-04. Verdi: Messa da requiem    (14:18)
-05. Humperdinck: Hansel und gretel    (06:01)
-06. Lehar: Die Lustige Witwe    (05:47)
-07. J.Strauss II: Die fledermaus    (04:46)
-08. Puccini: Turandot    (02:31)
-09. R.Strauss: Ariande auf Naxos (06:47)
-10. R.Strauss: Der Rosenkavalier    (03:43)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D40DDB97DF1FA8A0BC138605F0B488AF9BEA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689546   (123960) от 07.01.2024
-
-VA - The Rapsody Overture: Hip Hop Meets Classic (1997) [FLAC|Lossless|image + .cue] <Electronic, Hip Hop, Pop, Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rapsody - Intro [1:17]
-02. Xzibit - E Lucean Le Stelle [3:54]
-03. LL Cool J - Dear Mallika [4:08]
-04. Reprise - E Lucean Le Stelle [1:49](   Читать дальше...   )Жанр: Electronic, Hip Hop, Pop, ClassicalПродолжительность: 49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765C02618C9E497F1083B3303D798A18FFBC7DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690461   (123814) от 08.01.2024
-
-Robin Meloy Goldsby - Dearest Things - The Piano Room Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlings in a Silver Sky (3:00)
-02. Echo in Winter (2:52)
-03. Indigo Twilight (3:21)
-04. Almost There (4:14)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B03E59766421D8054EE2F52A91599FC24603DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

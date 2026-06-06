@@ -1,3 +1,32 @@
+###  Публикация: 1045623   (556912) от 25.08.2016
+
+Aythar - The God Particle (2016) [MP3|320 Kbps] <Ambient, Space>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sirens Of Titan (10:46)
+02. The God Particle (8:20)
+03. Return to the Moon (7:57)
+04. REM Phase (5:37)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EBD6B49E82CE980015DFFB160AEDB361C9BE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046007   (556910) от 25.08.2016
 
 Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
@@ -737,35 +766,6 @@ VA - Om Yoga Vol. 1, 2: Modern Music for Vinyasa/Flow  (2011-2013) 2CD [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15572B960A42992C5BCA1D5090973378793C35B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312403   (530708) от 05.07.2019
-
-Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Responsorios (6:19)
-02. Graduale (6:38)
-03. Cosmos (4:51)
-04. Aleluia (4:18)(   Читать дальше...   )Жанр: New Age, Enigmatic, Eurodance, AmbientПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

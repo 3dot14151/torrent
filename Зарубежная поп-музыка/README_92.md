@@ -1,3 +1,119 @@
+###  Публикация: 1730806   (53000) от 17.06.2024
+
+VA - DJ Hits Vol. 58 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Decade - Is This A Dream (Radio Edit)
+02. Love Station - Love Come Rescue Me (Love Station 7inch Edit)
+03. Bombayblue - Wonderwall (Bombay Mix)
+04. DC Tools - Take My Heart (Radio Version)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69747A698E9A38B7E569C7468F8D14412FFC0EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731199   (52781) от 19.06.2024
+
+VA - DJ Hits Vol. 70 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Jack - Soldier, Soldier
+02. Whigfield - Sexy Eyes
+03. Sqeezer - Blue Jeans
+04. Blue System - Only With You(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CECAEB2D9AAB608EAC2B4D4DBE708AF30015CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732429   (52022) от 25.06.2024
+
+VA - DJ Hits Vol. 103 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bizz Nizz feat. Geoge Arrendell - DABADABIABOO
+02. Beat Society - Feel The Beat
+03. Rama - Light My Fire
+04. Paolo Ferrari & Andrea Giuditta - The Sun In The Night E.P.(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEF2CFA88187CEAC3E572DA70282B24F27ED582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732903   (51793) от 27.06.2024
+
+VA - 80er - 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Nail - Love Don't Live Here Anymore
+02. Peter Schilling - Major Tom (Single Version)
+03. Tina Turner - What's Love Got to Do with It
+04. Heinz Rudolf Kunze - Dein ist mein ganzes Herz (2008 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B99F5B1C6A456F896EAEBA05CA024C113F9A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733433   (51602) от 29.06.2024
 
 VA - DJ Hits Vol. 122 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -628,122 +744,6 @@ VA - DJ Hits Vol. 5858 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:771C202828B17AD6007252E825EA80DF3B0135A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750817   (42748) от 22.09.2024
-
-VA - 70s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abba - Dancing Queen
-02. Lynyrd Skynyrd - Sweet Home Alabama
-03. John Travolta - You're The One That I Want (From “Grease”)
-04. Gloria Gaynor - I Will Survive (Single Version)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755A6663C398F68E9A1CF558DFE5D778B4166E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750969   (42729) от 22.09.2024
-
-VA - Mega-Mix Dance Hits Vol. 1 (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Acid, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hithouse - Jack To The Sound Of The Underground (Big Mix)
-02. Capella - Helyom Halib (Euro-Acid Mix)
-03. 2 U Hi! - Go 'Head (Fat Mix)
-04. Hithouse - Move Your Feet (Acid Mix)(   Читать дальше...   )Жанр: Electronic, Acid, Synth-popПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3599E4D55D21AB8E269305C7EDA46F6C130F75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750807   (42727) от 22.09.2024
-
-VA - DJ Hits Platinum 97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter - The Age of Love
-02. Bellini - Samba De Janeiro
-03. Tic Tac Toe - Mr. Wichtig
-04. Chilli & Carrapicho - Tic, Tic, Tac(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131DCCC8532867B3478A228FDF69BB23993DF9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750950   (42718) от 22.09.2024
-
-Cher - Forever Fan (2024) [MP3|320 Kbps] <Pop-Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believe (3:59)
-02. If I Could Turn Back Time (4:12)
-03. Walking In Memphis (3:56)
-04. Song for the Lonely (3:21)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 01:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59CF1D2F4E7C6EB51F3D4FF32A4B70290B4738E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1274793   (792073) от 08.01.2019
+
+Daft Punk - This Is Daft Punk (2019) [MP3|320 Kbps] <Electronic, Pop, Disco, Funk>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 One More Time
+02 Get Lucky (Feat. Pharrell Williams, Nile Rodgers)
+03 Harder, Better, Faster, Stronger
+04 Instant Crush (Feat. Julian Casablancas)(   Читать дальше...   )Жанр: Electronic, Pop, Disco, FunkПродолжительность: 02:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524A7E939344440B3F6AAE2DA85D6A65598183E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201601   (791982) от 25.01.2018
+
+Boris Brejcha - Best of (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Minimal, Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Gum [8:56]
+02. Welcome Stranger [9:07]
+03. Monster In The Box [7:15]
+04. Die Lustgrotte [7:07](   Читать дальше...   )Жанр: Minimal, Techno, Tech HouseПродолжительность: 05:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3D503535E1A898E96E57770EB87CBEDF7B21F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274897   (791690) от 09.01.2019
+
+VA - Epic Future House (2019) [MP3|320 Kbps] <Electro House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791690.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cache - Commander (Phoenix)
+002. Data Punk - Hellsclub (Original Mix)
+003. Kacper Kirtz - Chrome
+004. Ant. Shumak - For a Long Time There Is No Snow(   Читать дальше...   )Жанр: Electro House, EDMПродолжительность: 14:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A2B37C106E037C5A85B151092932DAACE84717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201869   (791634) от 26.01.2018
 
 VA - Lady Night (2018) [MP3|225-320 Kbps] <Chillout, Lounge, Balearic>
@@ -658,93 +745,6 @@ VA - Funky Disco House: Soulful Extended Mix (2020) [MP3|320 Kbps] <Funky, Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:625D6B75830BCED13663669B20A9BD90E8DD6EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388069   (790083) от 04.06.2020
-
-VA - Beatport Electro House: Sound Pack #97 (2020) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790083.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Emotion - Sweet Memories
-002. Ruben De Ronde - Here With Me
-003. Exportera - Carbian (Extended Mix)
-004. Edifon - Backbeat(   Читать дальше...   )Жанр: HouseПродолжительность: 12:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B774360FD701F092EF17AAB2224D8220399AF1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388070   (790071) от 04.06.2020
-
-VA - Beatport Tech House: Electro Sound Pack #98 (2020) [MP3|320 Kbps] <Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Theo Villoni - Mix It Up (Original Mix)
-002. Woshi - Bass Asylum
-003. Grieche - Untitled
-004. Matt Keyl - Where Is Jack!(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 10:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5A84C98890BDA4854EBE8EDEF6686E168E85D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275654   (789907) от 12.01.2019
-
-VA - High DuB Voltage (2019) [MP3|320 Kbps] <Dubstep, Drum and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kiite - One (Original Mix)
-002. Kung - Lifelike
-003. Aesthetics - Questions
-004. Document One - Reaching Out(   Читать дальше...   )Жанр: Dubstep, Drum and BassПродолжительность: 08:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12760CE1578FF6EA2608288FF453E5E8BD4D45E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

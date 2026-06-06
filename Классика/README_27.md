@@ -1,3 +1,174 @@
+###  Публикация: 1041000   (583261) от 08.08.2016
+
+Musica Pacifica - Fire Beneath My Fingers (2008) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Allegro    02:23
+02. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Largo    01:38
+03. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Presto    02:18
+04. Tartini Concerto in A Major - Allegro    07:27(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AA4CA545D2CF4DB1D09EE4222C61569E2602D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358029   (582590) от 05.07.2011
+
+Рахманинов - Полное собрание оркестровых сочинений [5CD] (2007) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 05:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4301B09C1211776E84F5031A6F77BC7B28C932BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041589   (581289) от 10.08.2016
+
+Franz Joseph Haydn - Complete String Quartets (The Aeolian String Quartet) (1997) 22CD Box Set [MP3|320 Kbps] <Classical, Quartet>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581289.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+  1. String Quartet In E-Flat Major, Op. 0: I. Presto
+  2. String Quartet In E-Flat Major, Op. 0: II. Menuetto
+  3. String Quartet In E-Flat Major, Op. 0: III. Adagio(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE8E02C52053960488942CB960164434F37E342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920299   (580122) от 22.07.2015
+
+Grieg - Lyric Pieces (Balzs Szokolay) Vol.1 (1995) [FLAC|image +.cue]<Classical, Romantic Period, Orchestral, Symphonic, Suite, Character Piece, Waltz, March, Impromptu, Elegy>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halling Op.38-4 (00:49)
+02. Melodie Op.38-3 (01:43)
+03. Halling Op.47-4 (01:16)
+04. Canon Op.38-8 (04:33)(   Читать дальше...   )Жанр: Classical, Romantic Period, Orchestral,Symphonic, Suite, Character Piece, Waltz, March, Impromptu, ElegyПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D483F20D3A3F601B5B70D46D5A3ACCD75C6E0B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042462   (578075) от 13.08.2016
+
+Trevor Pinnock, English Concert - Antonio Vivaldi: Six Flute Concertos, Op.10 (1988) [FLAC|Lossless|tracks] <Classical, Baroque>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Concerto No.1 in F major "La tempesta di mare", RV 433 - I. Allegro  02:54
+02.  Concerto No.1 in F major "La tempesta di mare", RV 433 - II. Largo  01:48
+03.  Concerto No.1 in F major "La tempesta di mare", RV 433 - III. Presto  02:06
+04.  Concerto No.2 in G minor "La notte", RV 439 - I. Largo  02:02(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7E334A156F1FC66B22693A0CBF309D15B4A17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920808   (577342) от 24.07.2015
+
+Torelli - The Original Brandenburg Concertos (Kah-Ming Ng & Charivari Agrable) (2009) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Baroque Period, Sonata, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerti musicali (12), for strings & continuo, Op. 6
+
+01.Concerto No.1 in G major- Presto - Adagio (01:50)
+02. Concerto No.1 in G major- Allegro (01:12)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Baroque Period, Sonata, ConcertoПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7ACE765E2F5E9E39451301B266829098911F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527313   (576744) от 26.07.2012
 
 Italian Concertos For Four Violins - Reinhard Goebel & Cologne Musica Antiqua: Torelli, Mossi, Valentini, Locatelli, Leo (1992) [FLAC|Lossless]<Classical, baroque period>
@@ -149,6 +320,40 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362863   (570852) от 13.07.2011
+
+VA - Музыкотерапия. Заикание (2011) [MP3|320 kbps]<Classical, Relax>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_570852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моцарт - Азбука - Хор Ленинградского радио и телевидения дирижёр Григорий Сандлер
+02. Моцарт - Rondo in C Major, K. 617 - оркестр 'Времена года'
+03. Моцарт - Serenade No. 10 in B Major 'Gran Partita', K. 361- Theme With - оркестр 'Времена года'
+04. Моцарт - Рондо (Tempo di Menuetto) из концерта для флейты №1 G, K. 313 - Берлинский филармонический оркестр, дир.Герберт фон Караян
+05. Моцарт - Пастиччо Концерт №2 (2 -по сонате Шоберта) -А.Любимов и Камерный оркестр п-у Л.Маркиза
+06. Моцарт - Рондо D-dur - Академический камерный оркестр 'Mozarteum'
+07. Моцарт - Allegro из сонаты №15 K. 545 - Берлинский филармонический оркестр, дир.Герберт фон Караян
+08. Моцарт - Romance. Andante из Маленькой ночной серенады, KV 525 - Камерный состав симфонического оркестра МГФ, дир. Игорь Ойстрах
+09. Моцарт- Sinfonie in D 'The Peasant's Wedding'- 5. Finale- Molot Allegro - оркестр 'Времена года'Жанр: Classical, RelaxПродолжительность: 01:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAC5343B0393900108041CD9864D9E69786A2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 224416   (570610) от 05.08.2010
 
 Richard Wagner / Friedmann Dressler: The Symphonic Ring (2009) [FLAC 2.0 192/24 |tracks (WEB DL)]<Classical>
@@ -197,6 +402,41 @@ Symphony in E flat major, Op.6 No.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCA55CF9A1CC12C3FE39D2EC7740CA6090B3E432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 363234   (568724) от 14.07.2011
+
+VA - Музыкотерапия. Бессонница (2011) [MP3|320 kbps]<Classical, Relax>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_568724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дебюсси - Лунный свет - Вальтер Гизекинг — фортепиано
+02. Брамс - Колыбельная - Хор Ленинградского радио и телевидения, дирижер Г.Сандлер
+03. Григ Э. - Пер Гюнт. Утро - Амстердамский симфонический оркестр, дир. Питер Штерн
+04. Чайковский - Каприччио - Виктория Постникова - фортепиано
+05. Сибелиус - Грустный вальс, оп. 44. - Берлинский филармонический оркестр, дир. Г.фон Караян
+06. Чайковский - Вечерние грезы - Виктория Постникова - фортепиано
+07. Глюк - Мелодия - Марина Ворожцова, флейта и Гос. академ.симфон. оркестр СССР, дир. Е.Светланов
+08. Чайковский - Осенняя песня из цикла «Времена года» - Валерий Камышов - фортепиано
+09. Шуман - Грезы - Вера Горностаева, фортепиано
+10. Чайковский - Листок из альбома - Виктория Постникова - фортепиано(   Читать дальше...)Жанр: Classical, RelaxПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE5756B9EE91B82F96C9EAA08343EE7A4F71FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,247 +768,6 @@ Mikhail Gnesin - Russian Futurism (Vol.4)(Konstantin Krimets & Russian Philarmon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEBFADFD8F32DCD7500103EEEBDD75FF20E00446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959996   (561794) от 10.07.2018
-
-Шопен - Гении классической музыки (2012) [MP3|320 кб/с]<Classical>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вальс ми бемоль мажор, соч.18 (Большой блестящий вальс)
-02. Этюд до диез минор, соч.10 н.4
-03. Вальс ля бемоль мажор, соч.42 (Большой вальс)
-04. Соната для фортепиано н.2 си бемоль минор, соч.35, Похоронный марш. Lento(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C007CB39F851794E3F37BD7B091CE08430C580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556120   (561512) от 08.06.2022
-
-Leif Ove Andsnes, Mahler Chamber Orchestra - Mozart Momentum 1786: Piano Concertos Nos.23 & 24, Piano Quartet No.2, Piano Trio No.3 (2022) 2xCD [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561512.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-[1]-[3] Piano Concerto No. 23 in A major, K. 488
-[4] Recitative and Aria (Rondo): Ch'io mi scordi di te? ... Non temer, amato bene, K. 505
-[5]-[7] Piano Quartet No.2 in E flat major, K. 493Жанр: ClassicalПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED756C23C9199A885C339CA0EB8DEFD7476023A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556079   (561511) от 08.06.2022
-
-Anne-Sophie Mutter, Herbert Von Karajan, Wiener Philharmoniker - The Four Seasons (1984) Remasterd, 1998, Holland [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antonio Vivaldi - Violin Concerto in E major “The Four Seasons”, op. 8 no. 1-4:
-
-"La primavera"
-01. I. Allegro (3:18)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16D1103FE17AD1C1F8AD41650CC891E850D11F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044787   (560998) от 22.08.2016
-
-Lindsey Stirling - Brave Enough (2016) [MP3|320 Kbps] <Classical Crossover, Pop, Electronic, Dubstep, Violin>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Girls
-02. Brave Enough (feat. Christina Perri)
-03. The Arena
-04. The Phoenix(   Читать дальше...   )Жанр: Classical Crossover, Pop, Electronic, Dubstep, ViolinПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BB44661C6FEFB296BFEAFBFE94895E65CE8600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924080   (560656) от 02.08.2015
-
-Nova Era - Fortissimo (2014) [MP3|320 кб/с]<Classical crossover, New Age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viva Vivaldi (After Vivaldi Concertos Rv 242 Allegro - Rv356 Allegro - Rv454 Allegro)
-02. White
-03. Telemann and Vivaldi Concerto Medley Viola Concerto, TWV 51G9 La Stravaganza, Op. 4
-04. Masquerade(   Читать дальше...   )Жанр: Classical crossover, New AgeПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECA22FC002449F6837BAF7CEF95E8BCF893A390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530174   (560435) от 03.08.2012
-
-Sergei Prokofiev - The complete piano sonatas 3 (1991) [FLAC|Lossless]<classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560435.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Piano Sonata No. 7 in B flat major, Op. 83: 1. Allegro inquieto
-2.	Piano Sonata No. 7 in B flat major, Op. 83: 2. Andante caloroso
-3.	Piano Sonata No. 7 in B flat major, Op. 83: 3. Precipitato
-4.	Piano Sonata No. 8 in B flat major, Op. 84: 1. Andante dolce
-5.	Piano Sonata No. 8 in B flat major, Op. 84: 2. Andante sognando
-6.	Piano Sonata No. 8 in B flat major, Op. 84: 3. Vivace
-7.	Piano Sonata No. 9 in C major, Op. 103: 1. Allegretto
-8.	Piano Sonata No. 9 in C major, Op. 103: 2. Allegro strepitoso
-9.	Piano Sonata No. 9 in C major, Op. 103: 3. Andante tranquillo
-10.	Piano Sonata No. 9 in C major, Op. 103: 4. Allegro con brio ma non prestoЖанр: classicalПродолжительность: 1:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7512CE6551AF5C0EDD726636D32B178499F88EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 88968   (559077) от 26.07.2017
-
-Сборник классической музыки - Золотые Хиты Классики  (2008) [MP3|192-224 kbps  ]<классика>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_559077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: классикаПродолжительность: 07:13:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531096   (558486) от 04.08.2012
-
-The Beatles Symphonic Orchestra - 3 CD (1999) [MP3|320 кб/с]<Classical, Symphonic, Cover version>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558486.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All You Need Is Love (3:57)
- 2. Hello, Goodbye (2:49)
- 3. Fool On The Hill (3:54)
- 4. Get Back (3:14)
- 5. Penny Lane (3:05)
- 6. Magical Mystery Tour (3:35)
- 7. Strawberry Fields Forever (4:02)
- 8. Good Morning Good Morning (3:04)
- 9. I Should Have Known Better (4:16)
- 10. Ticket To Ride (3:15)Жанр: Classical, Symphonic, Cover versionПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6AB2A1802B936C18344BDEAEF7D5436150773C
 ```
 
 https://mybot314.ru/tekegram_catalog/

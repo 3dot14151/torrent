@@ -1,25 +1,31 @@
-###  Публикация: 1804649   (65561) от 01.07.2025
+###  Публикация: 441971   (72305) от 26.01.2012
 
-Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+VA - The Best Of Alternative (1998) [MP3|320 kbps]<Alternative>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_72305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Funk In The Jungle (Dub Mix) (3:35)
-02.  Free In The Jungle (3:58)
-03.  Energizer (3:14)
-04.  Esotick (4:20)(   Читать дальше...   )Жанр: FunkПродолжительность: 02:28:35
+01. Prodigy - Smack My Bitch Up - 4:48
+02. Hurricane #1 - Step Into My World - 4:00
+03. Natalie Imbuglia - Torn - 4:05
+04. Bates - Independent Love Songs - 3:12
+05. Oasis - All Around The World - 6:55
+06. The Verve - The Drugs Don't Work - 4:43
+07. Chumbawamba - Tubthumping - 3:25
+08. Sugar Ray - Fly - 4:05
+09. Offspring - I Choose - 3:55
+10. Sheryl Crow - A Change Would Do You Good - 3:48(   Читать дальше...   )1998Жанр: AlternativeПродолжительность: 01:13:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF37D8D4985453E47EE1F780CE1F3B13A00903A1
+magnet:?xt=urn:btih:632D7D1EB23D06D8811DC09DBD455597F214FDE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804769   (65560) от 01.07.2025
+###  Публикация: 441854   (72283) от 26.01.2012
 
-Lane 8 - Summer 2025 Mixtape (2025-06-18) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+VA - Stolen Moments: Red Hot + Cool (1994) [MP3|320 kbps]<Hip-Hop, Acid Jazz>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dead Bandit - One Eyed
-02. ID - ID
-03. ID - ID
-04. Rebel Of Sleep - Distant Thoughts(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 03:02:16
+01. Donald Byrd with Guru + Ronny Jordan — Time Is Moving On
+02. MC Solaar + Ron Carter — Un Ange En Danger
+03. Michael Franti / Spearhead — Positive
+04. Me’Shell NdegéOcello featuring Herbie Hancock — Nocturnal Sunshine
+05. Digable Planets with Lester Bowie + Wah Wah Watson — Flyin’ High In The Brooklyn Sky
+06. United Future Organization (UFO) — Stolen Moments
+07. The Pharcyde — The Rubbers Song
+08. The Roots + Roy Ayers — Proceed II
+09. Incognito + Carleen Anderson with Ramsey Lewis — Trouble Don’t Last Always
+10. Groove Collective + Bernie Worrell — Rent Strike (DJ Smash Remix)(   Читать дальше...   )1994Жанр: Hip-Hop, Acid JazzПродолжительность: 01:39:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB4E8C548FDE8979E4B4B8BA97517B09C10C265
+magnet:?xt=urn:btih:3D245F064F3AD12F8AF59FBF54A435436B595D09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +68,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804766   (65559) от 01.07.2025
+###  Публикация: 441856   (72273) от 25.01.2012
 
-Keef Baker - K (2024) [FLAC|Lossless|Web-DL|tracks] <IDM, Synthwave, Techno>
+Настоящий медвежонок (1977) TVRip
 
->>Electronic
->>IDM (Lossless)
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flecks (06:24)
-02. Two Dimensional Time (11:04)
-03. Foxglove (05:07)
-04. Dangerman (04:41)(   Читать дальше...   )Жанр: IDM, Synthwave, TechnoПродолжительность: 00:48:34
+Жанр: Детский, КукольныйРежиссер: Анатолий КирикПродолжительность: 00:09:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:715D0D70F28537D79EC7E06294C53AE6F5623091
+magnet:?xt=urn:btih:BC3C545A4CBF80F331735FA37FB1463C67224214
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,201 +94,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804694   (65558) от 01.07.2025
+###  Публикация: 441072   (72266) от 25.01.2012
 
-The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65558.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Conspire To Deceive
-A2 - Detonate
-A3 - Our Channel To The Darkness
-A4 - Cruel Perception(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD292E51446BC457B6406BE58E909B68EBD66DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804726   (65557) от 01.07.2025
-
-Иван Гончаров | Мильон терзаний (2018) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
-Студия «МедиаКнига» представляет аудиокнигу русского писателя Ивана Александровича Гончарова «Мильон терзаний». Книга прочитана популярным артистом Михаилом Росляковым.
-Известный критический этюд И.А. Гончарова, посвященный (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: МедиаКнигаПродолжительность: 01:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8B4CE02FC8FC323D8DB20BF36DE3E544ABBA17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804652   (65556) от 01.07.2025
-
-VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Mister Funk - Beat Stuff (3:24)
-02.  Afro Dub - 7 Free To Travel (3:20)
-03.  Afro Dub - Afro Funk Beach (3:12)
-04.  Afro Dub - First Night (3:30)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22A451008E7D16D5D50DF850725F359323869F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804746   (65555) от 01.07.2025
-
-Putridity - Morbid Ataraxia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brutal Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prenatal Obituary [00:02:06]
-02. Mors Mater Nostra [00:03:38]
-03. In Disgust They Shine [00:02:38]
-04. Adipocere Retribution [00:03:19](   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C10DE9411C8D27DCE23E2F47C0C1E8337A1ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804700   (65554) от 01.07.2025
-
-Иван Гончаров | Другой (2025) [MP3, Андрей Толубеев и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
-Роман «Обломов» – повествование о человеке, который, не прельщаясь ни фортуной, ни карьерой, «залёг в берлогу». Чем больше вчитываешься в «Обломова» сегодня, тем меньше раздражает и возмущает его любовь к дивану и (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6998693DEFF1608F1AC4D472DC395688E978ABDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804739   (65553) от 01.07.2025
-
-Exsequor - Death From Above (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death From Above [00:04:19]
-02. They Watched [00:05:00]
-03. Your Truth [00:04:04]
-04. Nothing’s Certain [00:04:11](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD30CDD295EA51AADEC6FDC8ECC5B0EC12D366D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804866   (65552) от 02.07.2025
-
-Burnt By Hatred - Myth Or Mortal (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+Babylon Zoo - King Kong Groover (1998) [MP3|320 kbps]<Pop/Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_72266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - Decadence [1:59]
-2 - Within Reach [4:58]
-3 - A Paths Deceit [6:13]
-4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
+01. All The Money's Gone - 03:47
+02. Manhattan Martian - 06:02
+03. Honaloochie Boogie - 03:29
+04. Honeymoon in Space - 04:54
+05. Stereo Superstar - 03:40
+06. Chrome Invader - 05:04
+07. Bikini Machine - 03:56
+08. Are You a Boy or a Girl? - 05:06
+09. Hey Man - 05:34
+10. Aroma Girl - 06:591998Жанр: Pop/RockПродолжительность: 01:20:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD1414104290D0F2F1A180DD9B3F88FCCA7B621B
+magnet:?xt=urn:btih:900E7CD74541BA637AE0E5FF006C49C1390BF930
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804848   (65551) от 02.07.2025
+###  Публикация: 441645   (72264) от 25.01.2012
 
-MYR - Helvegen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Metal>
+[EN] Под прицелом / Pressed (2011) DVDRip
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - December Coma [7:42]
-02 - In Perpetum [5:05]
-03 - Brennt [4:30]
-04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
+Парочка угонщиков машин, Джэсси и Сэм обнаруживают кое-что на заднем сидении автомобиля, что может круто изменить их жизнь. Брайан, не знакомый Джэсси и Сэму, заключает коммерческую сделку, которая поможет ему снова забраться на вершину одной из крупнейших инвестиционных фирм.Жанр: Триллер, КриминалРежиссер: Джастин ДоннеллиАктеры: Люк Госс, Тайлер Джонстон, Майкл Эклунд, Джеффри Баллард, Крэйг СтаньеттаПеревод: ОтсутствуетПродолжительность: 01:40:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9BA121A3996F8FA965B5551E48B0AF0008B97D2
+magnet:?xt=urn:btih:2992070BD2AB481EAFEA2F614BF74FC639AD41FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804863   (65550) от 02.07.2025
+###  Публикация: 441679   (72257) от 25.01.2012
 
-Burnt By Hatred - Myth Or Mortal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+[EN] Лодочник / The Watermen (2011) [H.264] DVDRip
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - Decadence [1:59]
-2 - Within Reach [4:58]
-3 - A Paths Deceit [6:13]
-4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
+Клан лодочников захватывает команду спортивных рыбаков, которым придется побороться за свои жизни...Жанр: Ужасы, ТриллерРежиссер: Мэтт Л. ЛокхартАктеры: Джейсон Мьюз, Ричард Риле, Флойд Абель, Блэйкли БаннеллПеревод: ОтсутствуетПродолжительность: 01:34:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCA34B252AEE7558606C2D37659DC0C9C6D8FC93
+magnet:?xt=urn:btih:3DBE2C1433518A49676C83EF93810557B1B2EC18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +181,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804855   (65549) от 02.07.2025
+###  Публикация: 441629   (72242) от 25.01.2012
 
-MYR - Helvegen (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Metal>
+Сурганова и Оркестр  (23.01.2012) В программе LIVEнь.<Rock> TvRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Театр и Музыкальное видео
+>>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - December Coma [7:42]
-02 - In Perpetum [5:05]
-03 - Brennt [4:30]
-04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
+Светлана Сурганова и оркестр в прямом эфире телеканала Дождь в программе Михаила Козырева LIVEнь. Программа транслировалась 23 января 2012 года.01.	Далеко
+02.	Мураками
+03.	Неужели не я
+04.	Интервью(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FBAC7EA9696E70C471ED1B5AB01BFDB8625CC86
+magnet:?xt=urn:btih:250CC12CA75F6AE20673F4ED7E42DD41262C1FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805042   (65548) от 03.07.2025
+###  Публикация: 441728   (72237) от 25.01.2012
 
-Blues Against The Machine - Blues Against The Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Дмитрий Федотов | Аберрация [2011] [FB2]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Hold On Stay Strong (4:32)
-02.  I Ain't Got No Money (2:45)
-03.  I'm The One To Blame (4:58)
-04.  It Is Causing Me Pain (7:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
+Из глубин космоса к Земле летит Гость — гигантский астероид. Расчеты показывают, что столкновение неизбежно. Ученые предлагают необычный способ спасения: перевод планеты в параллельное пространство с помощью уникального устройства — генератора римановой метрики. Однако осуществление проекта неожиданно наталкивается на мощное противодействие неземных сил, и в результате происходит аберрация — многократное дублирование земной реальности. Причем времени, чтобы исправить фатальную ошибку, у людей почти нет!..2011Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:558CCDF83D061C412FEDA372EDF14557419CF9E3
+magnet:?xt=urn:btih:995A3CC1BBAB60D5B72E08D748134A90A5A5B51D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805061   (65547) от 03.07.2025
+###  Публикация: 441771   (72192) от 25.01.2012
 
-Jump Back - Misunderstood (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+На воде (1986) DVDRip
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  I'll Move On (4:33)
-02.  Evil Might Win (3:41)
-03.  Can I Play the Blues? (4:35)
-04.  The Sting (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
+Жанр: ДетскийРежиссер: Леонид КаюковПродолжительность: 00:07:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C93F59DDAC5501DA77E7CF860F8AFECCF8FC63EE
+magnet:?xt=urn:btih:A23F2C34532D20CB81F427CD1EFEF192DC8D2863
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +262,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804892   (65546) от 03.07.2025
+###  Публикация: 441402   (72188) от 25.01.2012
 
-Rusty Sharks - Long way to freedom (2025) [MP3|320 Kbps] <Rockabilly, Psychobilly>
+VA - Red Hot + Blue: A Tribute to Cole Porter (1990) [MP3|320 kbps]<Pop, Rock, Indie>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72188.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.  - Maniac [00:03:26]
-2.  - Psychobilly Town [00:03:22]
-3.  - Walking Dead [00:02:01]
-4.  - Bored with Your Tattoos [00:03:03](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:29:56
+01. Neneh Cherry — I’ve Got You Under My Skin
+02. The Neville Brothers — In the Still of the Night
+03. Sinéad O’Connor — You Do Something to Me
+04. Salif Keita — Begin the Beguine
+05. Fine Young Cannibals — Love for Sale
+06. Debbie Harry + Iggy Pop — Well, Did You Evah!
+07. The Pogues + Kirsty MacColl — Miss Otis Regrets / Just One of Those Things
+08. David Byrne — Don’t Fence Me In
+09. Tom Waits — It’s All Right with Me
+10. Annie Lennox — Ev’ry Time We Say Goodbye(   Читать дальше...   )1990Жанр: Pop, Rock, IndieПродолжительность: 01:18:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F98C7E78326FFE6BF48318E609817B05B7297351
+magnet:?xt=urn:btih:F324884EBA72D172D23C0D0D4A37DE26C9D1CE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +297,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804901   (65545) от 03.07.2025
+###  Публикация: 440943   (72168) от 24.01.2012
 
-Rusty Sharks - Sexy Demons (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
+Заяц, который любил давать советы (1988) DVDRip [Реставрация]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lock, Stock & Two Smoking Barrels [00:03:40]
-02. One Day in Prison [00:03:45]
-03. Who's Your Neighbour? [00:03:45]
-04. Love Me Deadly [00:04:49](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:32:19
+Жанр: Детский, Рисованная анимацияРежиссер: Иван ДавыдовПерсонажи: заяц,сороконожка,рыба,волк,щукаПродолжительность: 0:08:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4A0011A0F97B98C411B96FA7BC4A222B80FA2EF
+magnet:?xt=urn:btih:67A1D717AAE1EEBD9BA5AD8167F1D4D2598A2EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +323,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805000   (65544) от 03.07.2025
+###  Публикация: 441356   (72142) от 24.01.2012
 
-Лауд - Электрическая Музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance>
+Александр Клюквин | Сказка о самой сильной силе (2011) [MP3, Александр Клюквин]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Side A [00:00:36]
-02. Воздуха нет [00:02:17]
-03. In the Dark [00:02:46]
-04. 123 [00:02:29](   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:19:03
+Актёр Малого театра, народный артист России Александр Клюквин представляет свою новую пьесу «Сказка о самой сильной силе».
+
+В некотором царстве, в некотором государстве, во время празднования дня рождения прекрасной царевны из под земли появляется Черный Идолище. Он берет в заложники Царя и в обмен на его освобождение требует доставить ему "вещь, нужнейшую на (   Читать дальше...   )Жанр: Сказка
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:977520269F247B963147D78FE785F3D315D6E434
+magnet:?xt=urn:btih:A7C72203E103439FC3694928ADD5988E931816AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +351,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805037   (65543) от 03.07.2025
+###  Публикация: 441622   (72138) от 24.01.2012
 
-VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
+Libera - The Christmas Album (2011) [MP3|320 kbps]<Детские песни, Хоровое пение, chorus, сlassical>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Lo Greco Bros - Folk Song Bass (4:46)
-02.  Joe Allotta - Leave Me Alone (2:43)
-03.  Tallulah Rose - Friends (4:16)
-04.  Pomante - Dancing Feet (3:54)(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 01:22:49
+01. Joy To The World
+02. Still, Still, Still
+03. Carol Of The Bells
+04. Veni, Veni, Emmanuel(   Читать дальше...   )Жанр: Детские песни, Хоровое пение, chorus, сlassicalПродолжительность: 01:00:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
+magnet:?xt=urn:btih:7312FC8F02A2BDFF887302AF6500BA681E2E8181
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +380,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805058   (65542) от 03.07.2025
+###  Публикация: 441630   (72132) от 24.01.2012
 
-John Haydock - Back to the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Петр Тесленко - Королевство доброты (2010) [MP3|192 kbps]<Детские песни>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  That Train Don't Go There Anymore (4:23)
-02.  Angel Drifting North (4:27)
-03.  We Fell into the Fire (4:15)
-04.  It's Getting Dark out There (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:26
+1. Сказка
+2. Февраль
+3. Обезьянка
+4. Горы(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:39:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8727B733E9BEF6C4A8237344FF343E31D44AB405
+magnet:?xt=urn:btih:D4A7E96B90A9A9C64882E2B118623805A7BFF58F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,165 +409,321 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805034   (65541) от 03.07.2025
+###  Публикация: 440421   (72115) от 24.01.2012
 
-VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - Fluid (6:34)
-02.  Funk Mediterraneo - Tribe Secret (4:10)
-03.  Vito Lalinga (Vi Mode Inc. Project) - Afro Bahia (5:24)
-04.  Yuri Piccolotto - Save Our Souls (6:29)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEA927C96E19089DF7FAE824190396718C480FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804921   (65540) от 03.07.2025
-
-Neil Young And The Chrome Hearts - Talkin to the Trees (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, Roots Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Family Life [2:50]
-02 - Dark Mirage [5:40]
-03 - First Fire of Winter [4:44]
-04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Rock, Country Rock, Roots Rock, Folk RockПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7E49D9F876A4CCA5870B1CF6BCC7446A2D3ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805032   (65539) от 03.07.2025
-
-Фрэнсис Элиза Ходжсон Бёрнетт | Как стать леди (2024) [MP3, Ирина Булекова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмили Фокс-Ситон родилась в знатной, но обедневшей семье. Она получила хорошее образование, но в Лондоне конца XIX века не так много возможностей его применить. Эмили вынуждена ютиться в тесной комнатушке и работать компаньонкой более успешных высокородных дам. О хорошей партии девушка не может и мечтать…
-Однако ее работодательница, умная, эгоистичная и острая на (   Читать дальше...   )Жанр: зарубежная классика, психологическая проза, социальная драмаПеревод: Светлана СелифоноваИздательство: АСТПродолжительность: 09:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5A199756F020C3204656C93C4A8A936B835C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804908   (65538) от 03.07.2025
-
-Щенки - Hоль один (2025) [MP3|320 Kbps] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я люблю до конца [00:03:22]
-02 - Ни тебя ни меня [00:02:38]
-03 - Рвется внутри [00:03:16]
-04 - Губная помада [00:02:31](   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AE8D2A0848D2C30412782C838DD278AC4B804D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805039   (65537) от 03.07.2025
-
-Папанинцы (1938) WEBRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65537.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1937 году при помощи самолёта в районе Северного полюса была организована первая научно-исследовательская дрейфующая станция «Северный полюс-1» (СП-1) под руководством Ивана Папанина. Участники экспедиции гидробиолог Петр Ширшов, геофизик Евгений Федоров, радист Эрнст Кренкель и руководитель Иван Папанин в течение девяти месяцев вели научные наблюдения на станции. (   Читать дальше...   )Производство: СССР / Московская и Ленинградская студии кинохроникиЖанр: документальный, природа, историяРежиссер: Яков Посельский, Ирина ВенжерЯзык озвучки: русскийСубтитры: в некоторых эпизодах поясняющие интертитры (русский)Продолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C852FA3C32395C3036EA00DBD94AC917894540BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804944   (65536) от 03.07.2025
-
-Военно-полевой роман (1983) DVD5
+Дети как дети (1978) TVRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (DVD)
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1944 год. Скромный, очень застенчивый и неприметный солдат Саша влюблен в гордую, неприступную красавицу Любу, медсестру, но она крутит роман с комдивом. Для Саши она - романтический идеал. Но война закончилась, и он забыл свою тайную любовь. Жизнь Саши сложилась на редкость счастливо. Послевоеннная московская улица. В продавщице пирожков, потертой бабе с вульгарным (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: Драма, мелодрамаРежиссер: Петр ТодоровскийАктеры: Николай Бурляев, Наталья Андрейченко, Инна Чурикова, Катя Юдина, Виктор Проскурин, Зиновий Гердт, Елена Козелькова, Всеволод Шиловский, Александр Мартынов, Наталья ЧенчикСубтитры: отсутствуютПродолжительность: 01:26:45
+Игорь Владимирович и Вера разошлись несколько лет назад. У него новая семья: жена Таня и приёмный сын Дима. А Вера по-прежнему живет с дочерью Олей и матерью.
+У взрослых не ладятся отношения. Оля и Дима - ровесники. Вера не против контактов дочери с отцом, но не желает, чтобы Оля общалась с Димой. Однако дети познакомились и подружились...Жанр: МелодрамаРежиссер: Аян ШахмалиеваАктеры: Никита Михайловский (Сергеев), Маргарита Сергеечева, Александр Калягин, Анатолий Кузнецов, Ада Роговцева, Любовь Соколова, Маргарита ТереховаПродолжительность: 01:09:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5F6E2922E5B289D52771E0FD07EF158DE172A64
+magnet:?xt=urn:btih:9BCF4CF1813291DC210F8D666A1EE69C998C0137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441509   (72114) от 24.01.2012
+
+Четвертый (1972) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский журналист волей обстоятельств поставлен перед выбором: предать огласке преступные планы сторонников войны, рискуя при этом лишиться всех жизненных благ, которых он добился за последние годы, или отступить. «Четвёртый» — фильм, снятый советским режиссёром Александром Столпером по одноимённой пьесе Константина Симонова, датируемой 1961-м годом. В начале (   Читать дальше...   )Жанр: ДрамаРежиссер: Александр СтолперАктеры: Владимир Высоцкий, Маргарита Терехова, Сергей Шакуров, Александр Кайдановский, Сергей Сазонтьев, Юрий Соломин, Татьяна Васильева, Марис Лиепа, Армен Джигарханян, Юозас Будрайтис, Михай Волонтир, Лев Дуров, Лев Круглый, Леонид Кулагин, Зинаида СлавинаПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7359C3B55B760218F1FCA6D13DF2829704FAA326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441412   (72105) от 24.01.2012
+
+Ray Charles - Singular Genius: The Complete ABC Singles (2011) 5CD [MP3|320 kbps]<Blues, Jazz Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Baby (I Love Her Yes I Do) (3:04)
+02. Who You Gonna Love (2:04)
+03. Sticks And Stones (2:17)
+04. Worried Life Blues (3:10)(   Читать дальше...   )Жанр: Blues, Jazz Blues, Soul
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C0765B3098ED89444A9E8CD2167C40CE475994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440764   (72041) от 23.01.2012
+
+Люби меня сегодня / Love Me Tonight (1932) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический мюзикл 30-х.
+Портной Морис, надеясь получить деньги за выполненный заказ с заказчика — виконта Жилберта де Варезе, отправляется в замок его дяди, надеясь найти там должника. Виконт обещает оплатить долг в течение нескольких дней и по воле случая представляет Мориса как барона.
+В замке Морис знакомится с Жанеттой, красивой, но одинокой принцессой, и влюбляется (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: Мюзикл, мелодрама, комедияРежиссер: Рубен МамулянАктеры: Морис Шевалье, Джанетт МакДональд, Чарльз Рагглз, Чарльз Баттерворф, Мирна Лой, С. Обри СмитПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9417285A9D13D90EAE98772A8B5B0053B1F84BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438771   (72034) от 23.01.2012
+
+Дело N 306 (1956) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческий фильм о работниках советской милиции, которые в простом уличном происшествии города Москвы
+сумели разгадать действия агентов иностранной разведки. На одной из московских улиц легковой машиной сбита пожилая
+женщина, а затем и постовой милиционер, пытавшийся задержать машину. У тяжело раненой женщины никаких документов не
+обнаружено, постовой милиционер (   Читать дальше...   )Жанр: ДетективРежиссер: Анатолий РыбаковАктеры: Борис Битюков, Марк Бернес, Татьяна Пилецкая, Константин Нассонов, Ада Войцик, Максим Штраух, Людмила   Шагалова, Евгений Весник, Валентина Токарская, Евгений Тетерин, Н.Хощанов, Софья Фадеева, Владимир Ратомский,   Анастасия Зуева, Виктор КолпаковПродолжительность: 01:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4B170D68292304BE51ADFC37E1615C205C82E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441159   (72030) от 23.01.2012
+
+Журнал | XXL [Россия] №2 (февраль 2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72030.jpg" />
+</div>
+
+
+###  Подробнее
+
+XXL – информационно-развлекательный журнал с мужским характером для современных мужчин с активной жизненной позицией. Самые свежие и интересные новости авто, моды, эротика, статьи о сексе и многое другое для современных мужчин!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5C3B119EFB9617A66B481415CF4B8DC46CB0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440405   (72029) от 23.01.2012
+
+Пять невест (2011) [H.264] BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: КомедияРежиссер: Карен ОганесянФормат: MKVПродолжительность: 01:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EE71978214C9330CAA193BB2AE9CEF96040C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440775   (72027) от 23.01.2012
+
+Красные башмачки (1986) TVRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72027.jpg" />
+</div>
+
+
+###  Подробнее
+
+О приключениях маленькой девочки Марийки в волшебном лесу.Производство: Украинская студия телефильмовЖанр: Детский, сказкаРежиссер: Борис НебиеридзеАктеры: Настя Гиренкова, Леонид Кулагин, Раиса Недашковская, Анна Исайкина, Нонна Терентьева, Игорь Дмитриев, Валентин Макаров, Антонина Лефтий, Владимир СтавицкийПродолжительность: 01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A0613892A5379E390807D716E173D779319902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440937   (72025) от 23.01.2012
+
+1942. Крушение Лаконии / The Sinking of the Laconia (2010) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72025.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 сентября 1942 года в южноатлантических водах произошла масштабнейшая катастрофа, сопоставимая с крушением легендарного «Титаника». Немецкая подводная лодка U-156 торпедировала британский круизный лайнер «Лакония». К своему удивлению, немцы обнаружили на борту стремительно уходящей под воду «Лаконии» более тысячи итальянских военнопленных солдат-союзников. Всего (   Читать дальше...   )Производство: Германия, Великобритания .Жанр: Драма, история.Режиссер: Уве Янсон / Uwe Janson.Актеры: Эндрю Бачан, Брайан Кокс, Кен Дюкен, Линдсэй Дункан, Томас Кречманн, Франка Потенте, Морвен Кристи, Джоди Бальфур, Николас Барнс, Киаран МакМенамин.Перевод: Профессиональный (многоголосый закадровый)Субтитры: РусскиеПродолжительность: 02:58:02.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438929   (72024) от 23.01.2012
+
+Эдгар Вальтер | Мастера советской карикатуры [1987] [PDF, DjVu]
+
+>>Разное (категория книг)
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_72024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогой читатель!
+Перед тобой альбом карикатур Эдгара Вальтера. Думаю, если ты просмотрел его, может быть, улыбнулся и захотел еще раз-другой взглянуть на какую-нибудь забавную картинку, у тебя могли возникнуть вопросы к художнику. Проснулся интерес к его личности. Не так ли? Одним словом, захотелось с ним встретиться. Лицом к лицу. Я предлагаю тебе свое посредничество. Потому что знаю его лучше, чем он сам, еще с мальчишеских лет, да еще и по совместной работе на Парнасе сатиры и юмора. От него самого ты все равно исчерпывающих ответов не получишь, ибо, несмотря на расцвет своих творческих сил (Вальтер родился в Таллине 21 сентября 1929 года), он застенчив, как ребенок, и скуп на слова, как глубокий старец. О себе самом от него не услышишь и словечка. Он презирает почести, может быть, потому, что судьба не искушала его ими. А возможно, потому, что он сам от них всегда скрывается, уходя в свое творчество. Искусство — вот для него высшая почесть. Только во имя искусства согласен он рассказывать о себе и своем отношении (   Читать дальше...   )Формат: PDF, DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CAA1D2DE652F5D48F9C73FCD8DBAC001428F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440586   (72020) от 23.01.2012
+
+Что скрывает ложь / Trespass (2011) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальная семейная пара: успешный бизнесмен, торгующий бриллиантами, и его очаровательная жена-дизайнер. Но когда в их роскошный дом придут незваные гости и нависнет смертельная угроза, наружу вылезут измена и ложь.Жанр: Триллер, Драма, КриминалРежиссер: Джоэл ШумахерПродюсер: Рене Бессон, Боаз Дэвидсон, Дэнни ДимбортАктеры: Николас Кейдж, Николь Кидман, Бен Мендельсон, Лиана Либерато, Кэм ЖигандеПеревод: ДублированныйПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440841   (72009) от 23.01.2012
+
+VKMusic 4.29.1 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для загрузки на компьютер аудио и видео файлов размещенных на таких популярных ресурсах, как ВКонтакте, Mail.ru, YouTube, RuTube, video.bigmir.net, video.google.com, video.eurosport.ru, smotri.com, 1tv.ru, a1tv.ru, games-tv.ru, corbina.tv, intv.ru и tnt-tv.ru. Помимо скачивания VKMusic позволяет просмотреть информацию об исполнителе, текст песен, а также найти похожих исполнителей. Авторизации не требуется.Название программы: VKMusicЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1391486   (781001) от 20.06.2020
+
+VA - Beatport Deep House: Electro Sound Pack #107 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781001.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Frank Rain - Deep Vertigo
+002. Velvet House - This Is A Supernova
+003. Frank Fusto - A Passion To Explain
+004. Armand Gucci - Syncrodance(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 07:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6524532C8FA97C87E413FEED273B46867481C1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207357   (780864) от 17.02.2018
+
+VA - Record Super Chart #524 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+02.  Maruv & Boosin  -  Drunk Groove (Kolya Funk & Mephisto Radio Mix)  3:43
+03.  GSPR  -  With You  4:17
+04.  Vanotek feat. Eneli  -  Back To Me (DJ Mexx & DVJ Karimov Radio Remix)  3:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC13BBA0B8D12DA42A32B1D9531EA4F66E2A1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207089   (780810) от 17.02.2018
+
+VA - Vocal Trance Collestion Vol. 8 (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Lynn - Put You Together Again
+02. Javah - One By One (Dima Krasnik Radio Edit)
+03. Standerwick & Haliene - Deep End (Club Mix)
+04. Paul Oakenfold feat. Amba Shepherd - Love Escape(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601FEEB9DBDCE15856F2488111FD9B1A4D7C4DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207451   (780611) от 18.02.2018
 
 VA - Express Train (2018) [MP3|320 Kbps] <House, Techno, Electro>
@@ -658,93 +745,6 @@ VA - Club Dance Ambience Vol.136 (2018) [MP3|320 Kbps] <Club House, Vocal House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEF6C500CCB214154742A791783503C4B1163E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209646   (779263) от 27.02.2018
-
-VA - Deep House Collection vol.159 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Снова вместе (Vadim Adamov & Hardphol Remix) 3:50
-02. A&G, Northmark feat. Gabrielle Ross - Run With Me (A&G, NorthmaAeris Remix REMASTERED 2k18) 4:56
-03. A-Mase & Sharliz - My Love (Deep Radio Mix) 3:29
-04. A-Mase feat. Rave CHannel - Just Be (Deep Radio Mix) 3:48(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049270735CF86475E944CBF356F6943279F1B831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209643   (779251) от 27.02.2018
-
-VA - Melodic Vocal Trance: Beautiful Radio Edit (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779251.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Ana Criado  -  Vulnerable (Denis Kenzo Edit)  4:17
-002.  Giuseppe Ottaviani feat. Kyler Eng  -  Firefly (Omnia Remix)  3:32
-003.  Allen Watts  -  Break Without The Pain (Original Mix)  6:06
-004.  Raz Nitzan feat. Maria Nayler  -  Nothing Breaks Like A Heart (Radio Edit)  4:20(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 08:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E90A49DF6D53A6605631217932A5ACECA9C062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209440   (779218) от 27.02.2018
-
-VA - Need For Speed Vol.12 (2018) [MP3|320 Kbps] <House, Hands Up, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jens O.  -  Day After Day (Extended Mix)  3:45
-02.  Imagine Dragons  -  Whatever It Takes (Andy Light & Ramirez Remix)  3:21
-03.  Ha-Ash feat. Abraham Mateo  -  30 De Febrero (Ghostly Raverz! Bootleg Edit)  3:49
-04.  DJ Gollum & DJ Cap  -  Oxymorons 2018 (Extended Mix)  5:00(   Читать дальше...   )Жанр: House, Hands Up, DanceПродолжительность: 05:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A6341D00FDAD4F6EBEBEC90D0E2DF01389229D
 ```
 
 https://mybot314.ru/tekegram_catalog/

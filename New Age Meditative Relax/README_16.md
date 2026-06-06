@@ -1,3 +1,32 @@
+###  Публикация: 1312403   (530708) от 05.07.2019
+
+Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Responsorios (6:19)
+02. Graduale (6:38)
+03. Cosmos (4:51)
+04. Aleluia (4:18)(   Читать дальше...   )Жанр: New Age, Enigmatic, Eurodance, AmbientПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 368373   (529491) от 27.07.2011
 
 Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
@@ -748,35 +777,6 @@ Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Eth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C8FF75E4A7C0F4876FAAD28F839CC36F6DCE057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933868   (504510) от 03.09.2015
-
-Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Within
-02. Dusty Rider
-03. Crying
-04. Fun Fare(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA5421C642447A572A56612B12FF4EAFDCF7BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

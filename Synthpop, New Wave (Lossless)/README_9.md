@@ -1,3 +1,61 @@
+###  Публикация: 1130297   (716418) от 01.05.2017
+
+Frecvens - A New Day (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Higher (1:31)
+ 02/10. Merci (2:58)
+ 03/10. What Do You Need (4:00)
+ 04/10. Time to Stay (3:47)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F684E1CB0ED5672BD90F64796FFC85377CBDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400827   (715023) от 07.08.2020
+
+Washed Out - Purple Noon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Late (4:12)
+ 02. Face Up (4:09)
+ 03. Time to Walk Away (4:16)
+ 04. Paralyzed (3:21)(   Читать дальше...   )Жанр: Electronic, Indie Pop, ChillwaveПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00FDD4882AA554F26E3EA0DEF8A4C8E745282B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991089   (714511) от 01.03.2019
 
 CHVRCHES - 4 Альбома, 3 EP, 2 Сингла (2013-2018) [FLAC|tracks|Lossless]<Synthpop, Indietronica>
@@ -686,64 +744,6 @@ Kobra Force - Nomads (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A625BB8EF3B6505DCCE9EF1F8D75A93FBDD5EA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290217   (680119) от 19.03.2019
-
-Alphaville - Forever Young (2019) 3CD Super Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Synthpop, New-Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680119.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Original Album Remastered:
-01. A Victory Of Love (Remaster) (04:17)
-02. Summer In Berlin (Remaster) (04:46)
-03. Big In Japan (Remaster) (04:44)(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 03:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3F27E44C78ED13D294FF572AD2A04DA473DEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135850   (677002) от 21.05.2017
-
-Faderhead - Anima In Machina (2016) Limited Edition, Compilation [FLAC|Lossless|image + .cue] <Synthpop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Gravity (October Reanimation) (4:41)
- 02. Annie Can't Read In The Dark (4:27)
- 03. Baby Firefly (October Reanimation) (3:47)
- 04. Shame (October Reanimation) (4:49)(   Читать дальше...   )Жанр: Synthpop, EBMПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B9E063F2E85E3E947592EFED5FC0BA1F8A7248
 ```
 
 https://mybot314.ru/tekegram_catalog/

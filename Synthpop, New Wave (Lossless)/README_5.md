@@ -1,3 +1,61 @@
+###  Публикация: 1098485   (908597) от 30.01.2017
+
+Animotion - Obsession - The Best Of Animotion (1996) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock, Synthpop, 80s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obsession (5:37)
+ 02. Let Him Go (4:28)
+ 03. I Want You (4:38)
+ 04. I Engineer (4:15)(   Читать дальше...   )Жанр: Pop-Rock, Synthpop, 80sПродолжительность: 01:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E273AC7B3CA1233048A79ED55BC3E38A77BAECFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100038   (900965) от 03.02.2017
+
+Dance With The Dead - B-Sides: Volume 1 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Out (2:36)
+ 02. Banshee (5:25)
+ 03. That House (4:46)
+ 04. Stoic (3:40)(   Читать дальше...   )Жанр: Synthwave, RockПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E9964E0FF00A9C85F7AF4973E5C6E63F9CC186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991391   (900611) от 02.03.2016
 
 Depeche Mode - Some Great Reward (1984) remastered 2006, collectors edition, CD+DVD [FLAC|Lossless|image + .cue] <New Vawe,  Synth-pop>
@@ -689,64 +747,6 @@ Mark Hartman - Synthesizer Instrumental Popsongs (1993) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55436FA27EE1C8A80E9A289C58960C0DDCEF8691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377620   (851891) от 22.04.2020
-
-Mark Hartman - Synthesizer Classics (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene (3:49)
-02. Hymne (2:40)
-03. Vienna (4:02)
-04. I'll Find My Way Home (3:44)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C135FA967D4C0A3E6C679C265AA4B0B3F2C2BFF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377621   (851890) от 22.04.2020
-
-Mark Hartman - Synthesizer Themes (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From Miami Vice (2:23)
-02. Chariots Of Fire (3:42)
-03. Dune (3:49)
-04. Theme From Rainman (3:25)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948EA70AFF9F8A20297D8DCC64C4201A721EF98D
 ```
 
 https://mybot314.ru/tekegram_catalog/

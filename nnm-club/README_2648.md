@@ -1,26 +1,22 @@
-###  Публикация: 599386   (999432) от 06.01.2013
+###  Публикация: 1488309   (1002328) от 10.08.2021
 
-[Wallpapers] Compilation of anime Pack 6
+Журнал | Auto Express [UK] №29 (июль 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Compilation of anime Pack 6
-Название: Compilation of anime Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Auto Express — еженедельный британский автомобильный журнал, издаваемый Dennis Publishing с 1988 года. Единственный еженедельный конкурент популярного издания Autocar. Сотрудничает с немецким журналом Auto Bild и французским Auto Plus. В 2011 году являлся самым продаваемым автомобильным журналом в Великобритании.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:707989E3C14D64CFD51743484D3FA589045A52CA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599428   (999431) от 06.01.2013
+###  Публикация: 1488304   (1002327) от 10.08.2021
 
-Фотография - Фотограф Anna Bodnar
+Журнал | Auto Express [UK] №27 (июль 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Anna BodnarРазрешение файлов: ~ 800x800
+Auto Express — еженедельный британский автомобильный журнал, издаваемый Dennis Publishing с 1988 года. Единственный еженедельный конкурент популярного издания Autocar. Сотрудничает с немецким журналом Auto Bild и французским Auto Plus. В 2011 году являлся самым продаваемым автомобильным журналом в Великобритании.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D74910BDFB314D0396031F0F1EBAFC15AD8ADE0
+magnet:?xt=urn:btih:05E56D1CCDEC4375E732AD0687B751797C8F9129
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,34 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598136   (999429) от 06.01.2013
+###  Публикация: 1488316   (1002326) от 10.08.2021
 
-Kaizen - Любим делать красиво (2011) [MP3|320 кб/с]<Alternative>
+Журнал | Auto Express [UK] №23 (июнь 2021) [PDF] [En]
 
->>Архив торрентов
->>Архив Музыки
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Любим делать красиво (4:27)
-02. Поколение Пох*й (3:36)
-03. Саломея (3:15)
-04. Я люблю с тобой молчать (3:35)
-05. Все Мы Гоним (3:07)
-06. По слогам (3:35)
-07. Web-Dr'Ocher (3:39)
-08. Шаг За Край (3:45)
-09. Шум inc (2:29)
-10. Dolphin (5:14)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:34
+Auto Express — еженедельный британский автомобильный журнал, издаваемый Dennis Publishing с 1988 года. Единственный еженедельный конкурент популярного издания Autocar. Сотрудничает с немецким журналом Auto Bild и французским Auto Plus. В 2011 году являлся самым продаваемым автомобильным журналом в Великобритании.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68541AB594C2588717CC0E6141DEB5937D01B958
+magnet:?xt=urn:btih:D6449D7E479D5E5CA1BA66D94582C1B772C7745E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -89,33 +76,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599198   (999428) от 06.01.2013
+###  Публикация: 1488319   (1002325) от 10.08.2021
 
-Sothis - De Opresso Liber (2008) [WavPack|Lossless]<Symphonic Black Metal>
+Журнал | Auto Express [UK] №31 (август 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auto Express — еженедельный британский автомобильный журнал, издаваемый Dennis Publishing с 1988 года. Единственный еженедельный конкурент популярного издания Autocar. Сотрудничает с немецким журналом Auto Bild и французским Auto Plus. В 2011 году являлся самым продаваемым автомобильным журналом в Великобритании.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F13022927A0638E6B160C42612E103AC41D1C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488176   (1002324) от 10.08.2021
+
+Posthum - Like Wildfire (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Of Night And Silence [03:57]
-02. De Opresso Liber [05:30]
-03. Beneath A Black Sky [05:49]
-04. Lunar Descent [04:49]
-05. Obsidian Throne [05:30]
-06. Defiance [06:55]
-07. The Cold Disconnection [04:20]
-08. Lair Of The Benighted  [05:29]
-09. Perpetual [05:58]Жанр: Symphonic Black MetalПродолжительность: 00:48:21
+01. 	The Ravens Are Flying Low 	07:24
+02. 	Knight and Death 		05:20
+03. 	Like Wildfire 			03:55
+04. 	Defenders of Purity 		07:39(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:25
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:3BBE41BD67598CFCB20A4CB3384A8550C9A9F727
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -123,214 +131,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599161   (999424) от 06.01.2013
+###  Публикация: 1488175   (1002323) от 10.08.2021
 
-Aeternitas - Requiem (2000) [WavPack|Lossless]<Gothic Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introitus [03:29]
-02. Kyrie [01:53]
-03. Graduale [04:12]
-04. Tractus [03:13]
-05. Sequenz - Dies Irae [04:38]
-06. Sequenz - Mors Stupedit [05:54]
-07. Sequenz - Rex Tremendae [02:59]
-08. Sequenz - Confutatis [04:45]
-09. Sequenz - Lacrymosa [03:24]
-10. Offertorium [04:29](   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599670   (999416) от 06.01.2013
-
-[Wallpapers] Car wallpapers (06.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999416.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Car wallpapers (06.01.13)
-Название: Car wallpapers (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8557FCCAD1B0EE814702E4DA48AAD21A459ED4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599388   (999415) от 06.01.2013
-
-[Wallpapers] A selection of beautiful girls Pack 16
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F561B7002D26EE37C2277B8D549FD52B99DF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599165   (999413) от 06.01.2013
-
-Robert Monroe - Tales Of Power (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypnosis
-02. Sonora Trip
-03. Magic World
-04. Night Walking
-05. The Power of Silence
-06. Mescalito
-07. Welcome To Astral World
-08. Unreal
-09. Salvia Dream
-10. Tales of Power(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C3D161E7E0EA5EE6F55DC2F661E02C0747CE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599442   (999411) от 06.01.2013
-
-VA - Paradise Islands (Mykonos Beach - Chillhouse Lounge Edition) (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monodeluxe - Look At Me Again
-02. H&H Soulsurvivors - Brazil
-03. Larse - Close Eyed Dancer
-04. Alex Douche - Stories (feat. Martin Landa)
-05. Deejay Lesa - Waves
-06. Neo Mind - Your Eyes (Original Mix)
-07. Sharon Phillips - Touch Me (Kenny Blake's Uplifting Remix)
-08. Paolo Madzone Zampetti - A2s
-09. Fast Vision Soul - Babatunde
-10. Demie - Alone in the Sunset(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B6A0C3DFC6F85BC2BFEC64F2D0DCFB85B9BA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599410   (999410) от 06.01.2013
-
-Фотография - Фотограф Daria Endresen
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Daria Endresen
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CE11FA1A28BAAD6AC021C9EC981E2AB44CDB34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599135   (999409) от 06.01.2013
-
-Coffin Texts - The Tomb of Infinite Ritual (2012) [FLAC|Lossless]<Death Metal>
+Ov Shadows - I Djävulens Avbild (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Atum (Into the Divine Sphere) 00:54
-02 To Manifest 05:54
-03 Final Transformation 04:47
-04 The Sacred Eye 06:43
-05 Divination 08:01
-06 Throne of Genocide 06:04
-07 Dieties of the Prime Evil Chaos 05:21Жанр: Death MetalПродолжительность: 00:37:47
+01. 	The Ravens Are Flying Low 	07:24
+02. 	Knight and Death 		05:20
+03. 	Like Wildfire 			03:55
+04. 	Defenders of Purity 		07:39(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7D0FE3E828601D69580BD2BAC6E4DE0F0A7495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488243   (1002322) от 10.08.2021
+
+Fell Fyre - Devastation And The Dauntless (2020) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return of the Horsemen (04:30)
+02. Blades in the Night (02:05)
+03. Rl'yeh's Cradle (03:24)
+04. Over the Side (03:25)(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DE65371D3CA5F128B75382BEECAF7F3785446E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488241   (1002321) от 10.08.2021
+
+Fell Fyre - Tyranny and Triumph (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horsemen Forever (05:11)
+02. Dead Man's Curse (04:16)
+03. Necropolis (03:04)
+04. Vengeful Warrior (02:56)(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18CF5A0570E84CD3696A0275137C9746180CDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488252   (1002320) от 10.08.2021
+
+Ben Webster & Don Byas - Giants Of Tenor Sax (1944 - 1945) 1988, Commodore [APE|Lossless|image + .cue] <Swing>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep [3:34]
+02. Memories Of You [3:47]
+03. Linger Awhile [3:12]
+04. Just A Riff [4:03](   Читать дальше...   )Жанр: SwingПродолжительность: 00:42:34
 
 ## Скачать торент
 ```bash
@@ -342,29 +247,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599664   (999408) от 06.01.2013
+###  Публикация: 1488174   (1002319) от 10.08.2021
 
-[Wallpapers] World of Animals (06.01.13)
+Lorn - Towards the Abyss of Disease (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] World of Animals (06.01.13)
-Название: World of Animals (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 4200х2800
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+01. 	Towards the Abyss of Disease 			04:33
+02. 	Watching the Landscapes of Silent Nothing 	08:37
+03. 	Trolls. Hordes. Axes. 				08:02
+04. 	Through Artery of Ice 				07:29(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB32A28C65C02DFDA71AA1898CD784EA7FF4E624
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,34 +276,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599258   (999406) от 06.01.2013
+###  Публикация: 1488349   (1002318) от 10.08.2021
 
-Don Felder - Road To Forever (2012) [MP3|320 кб/с]<Classic Rock>
+Орлан - Башкирский Караван / Башкирские Легенды 2CD (2014) [FLAC|Lossless|image + .cue] <Jazz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002318.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Башкирский Караван (Олег Киреев) - 7:53
+2. Интерлюдия 1 (Олег Киреев) - 2:30
+3. Татарский Танец (O. Kireyev*) - 7:46
+4. Салават (Рустем Галиуллин) - 8:38(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28839FBA2FDEC717FBA97612FB31F3DD403FE8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488328   (1002317) от 10.08.2021
+
+Александр Куприн | Куст сирени (2021) [MP3, Светлана Репина]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того, чтобы муж сдал главный экзамен и получил образование, жена продаёт свои драгоценности и обманывает профессора.Жанр: Классика, РассказПродолжительность: 00:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F621D016A961A62A0A4542ADD2DAF40ACD0E9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488326   (1002316) от 10.08.2021
+
+Обед на скорую руку / The Extra-Quick Lunch (1918) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не надоели мультики с комиксными персонажами? Нет? Вот и замечательно. :) Тогда ещё одна парочка - Матт и Джефф. И парочка весьма известная. И как положено таким персонажам, вечно попадают в разные истории. В этом сюжете приятели организовали ресторан с ускоренным обслуживанием - блюда доставляются на столы прямо с кухни с помощью различных приспособлений. Ведь на (   Читать дальше...   )Производство: США, Bud Fisher Film CorporationЖанр: Рисованная анимация, ДетскийРежиссер: Чарльз Р. Бауэрс, Бад ФишерПеревод: Немой с интертитрамиСубтитры: Французские интертитры, английские - hardsub, русские отдельным файломПродолжительность: 00:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B2D6631DC3E512B196043C080E22B5503FA74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488092   (1002315) от 10.08.2021
+
+Crazy keys - Crazy keys (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live with me (00:03:20)
+02. When we given shut! (00:03:23)
+03. Kill my soul (00:03:11)
+04. Close you eyes (00:05:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488217   (1002314) от 10.08.2021
+
+Skype 8.75.0.134 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC4392B78083C7FA82A9E8C191C109C1F8D8050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488177   (1002313) от 10.08.2021
+
+Revel in Flesh - The Hour of the Avenger (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Fall From The Grace Of Love (3:44)
-02.  Girls In Black (3:36)
-03.  Wash Away (4:16)
-04.  I Believe In You (3:56)
-05.  You Don't Have Me (3:45)
-06.  Money (4:09)
-07.  Someday (4:10)
-08.  Heal Me (7:21)
-09.  Over You (4:06)
-10.  Road To Forever (4:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:52:23
+01. 	The Hour of the Avenger 	03:26
+02. 	My Trial 			03:20
+03. 	Blood Oath 			04:59
+04. 	The Nihilistic Nothingness 	03:31(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D23A721D4A75EF2F81AB79BB4F0098095ED83DA8
+magnet:?xt=urn:btih:3788C5D7603ECAE6C8B0589072BEE681AFE8E316
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,29 +441,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599382   (999405) от 06.01.2013
+###  Публикация: 1488306   (1002312) от 10.08.2021
 
-[Wallpapers] Art collection (06.01.13)
+Zorbonauts - Tall Tails (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, HardRock, ProgRock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Art collection (06.01.13)
-Название: Art collection (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+«Zorbonauts» - это новое юмористическое название группы Deckchair Poets,
+под которым сейчас укрывается более серьезная музыкальная линейка, основанная
+на талантах Джеффа Даунса (Yes), Ника Д'Вирджилио (Big Big Train),
+Олли Ханнифана (Synaesthesia), Дейва Мероса (Spock’s Beard) и Линдена Уильямса (Jerusalem).(   Читать дальше...   )01 Midnight Steamer (5:22)
+02 She Came Like A Bat From Hell (4:52)
+03 Beyond The Grave (6:11)
+04 I See The Light (4:20)(   Читать дальше...   )Жанр: Rock, HardRock, ProgRockПродолжительность: 00:55:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C282D38980A37BAAB71B899518087C27DF9DFCAD
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -437,34 +473,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598651   (999404) от 06.01.2013
+###  Публикация: 1488323   (1002311) от 10.08.2021
 
-Gehenna - 10 альбомов (1994 - 2012) Дискография [MP3|CBR:320, VBR:~280]<Atmospheric Black Metal, Death Black Metal>
+Астрид Линдгрен | Братья Львиное Сердце (2021) [MP3, Алла Човжик]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказочная повесть о судьбе двух братьев, об их необычайном путешествии в волшебную страну, где с ними происходят самые разные события и где они учатся отваге, мужеству, любви и доброте. За книгу «Братья Львиное Сердце» Астрид Линдгрен была удостоена литературной премии Януша Корчака.Жанр: Детская повестьПродолжительность: 04:41:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488096   (1002310) от 10.08.2021
+
+Crazy keys - Mystical (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Норвежская блэк металлическая группа. В начале играла очень спокойный, мелодичный и мрачный атмосферный метал (до 1996 года, включительно), более тяготеющий к жанру Dark metal, а не к типичным представителям атмосферного блэка.
-Позже был переходный период к дэт-блэку, который, с альбома 2000 - Murder, приобрёл очень жёсткое, дэт-блэковое, даже, скорее, трешевое звучание.
-Поначалу лирика была посвящена средневековой мистики, черной магии и жизненному пути во тьме и среди зла. Позже она приобрела явный сатанинский и современный апокалипсический окрас, чаще всего присущий обычному блэк/дэт металлу, и несколько утратила свою первоначальную красоту.1 Grenade Prayer.mp3
-2 Death to Them All.mp3
-3 New Blood.mp3
-4 Flames of the Pit.mp3
-5 Silence the Earth.mp3
-6 Werewolf.mp3
-7 Abattoir.mp3
-8 Pallbearer.mp3Жанр: Death Black Metal (Trash metal)Продолжительность: 00:36:48
+01. Living In Sin 05:00
+02. The Eye Of The Storm 05:13
+03. Wild Side 04:20
+04. Strong For Love 04:20(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38C9DB7C8C7499CE4D5FCF45FF7482350489573C
+magnet:?xt=urn:btih:382BE46DEFDB0BE727E7873CEB99D48898C68ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,25 +528,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599438   (999402) от 06.01.2013
+###  Публикация: 1488179   (1002309) от 10.08.2021
 
-Фотография - Фотограф Michael G. Magin
+Полина Морте | Мёртвое море (2021) [MP3, Анастасия Полякова]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Michael G. Magin
+Современный детектив с элементами триллера, повествует о серийных преступлениях, происходящих в небольшом приморском городке. Главная героиня, следователь Александра Савельева расследует загадочные, похожие на ритуальные убийства молодых девушек. Вся следственная команда находится в напряжении: неужели они столкнулись с серийным убийцей? Он слишком умен, чтобы оставлять (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:00:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22BB094D67A0A9CA4A491CAC37AD0E44F95E1A0E
+magnet:?xt=urn:btih:D6DD4B8EC767B26A73C4CAA030082C633C088972
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -498,25 +554,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599415   (999401) от 06.01.2013
+###  Публикация: 1488189   (1002308) от 10.08.2021
 
-Фотография - Фотограф Norbert Bares
+Свято-Елисаветинский монастырь (изд.) | Икона. Смысл. Символика. Почитание (2019) [PDF, DJVU]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Norbert Bares
+Смысл иконы, её особый язык, техника написания, отличие истинного иконопочитания - обо всём этом, безусловно, нужно знать каждому православному человеку. Особенно важны эти знания на первых порах воцерковления, когда в чувстве и сознании верующего закладывается основание для всей последующей жизни во Христе.
+
+В этой небольшой книге кратко и доступно передано учение (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D31D9420C6A4891C2898AA5706679124B851F35B
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -524,25 +582,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599417   (999399) от 06.01.2013
+###  Публикация: 1488300   (1002307) от 10.08.2021
 
-Wide Wallpapers - cities - Paris (06.01.13) [Wallpapers]
+Zorbonauts - The Unobserved Beaver (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, HardRock, ProgRock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+«Zorbonauts» - это новое юмористическое название группы Deckchair Poets,
+под которым сейчас укрывается более серьезная музыкальная линейка, основанная
+на талантах Джеффа Даунса (Yes), Ника Д'Вирджилио (Big Big Train),
+Олли Ханнифана (Synaesthesia), Дейва Мероса (Spock’s Beard) и Линдена Уильямса (Jerusalem).(   Читать дальше...   )01 Don't Give A Monkeys (4:00)
+02 Over The Chasm (4:47)
+03 Mississippi Summer (3:25)
+04 Shangri-La (4:30)(   Читать дальше...   )Жанр: Rock, HardRock, ProgRockПродолжительность: 00:46:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F8C46E704CEDB959B9E92AAA80880D405E945FB
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,25 +614,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599411   (999397) от 06.01.2013
+###  Публикация: 1488193   (1002305) от 10.08.2021
 
-Фотография - Фотограф Andreas Kock
+Urusei Yatsura Movie 3: Remember My Love | Those Obnoxious Aliens: Remember My Love | Несносные пришельцы: Помни мою любовь (фильм #3) [1985, Movie] BDRip 1036p raw
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Andreas Kock
+Все помнят начало сказки о "спящей красавице"? Как оказывается, не пригласить на празднование рождения ребенка одну старую, но влиятельную особу - большая ошибка, с большими последствиями. Увы, но подобной ошибки не избежали и родители Лам. Вот только как откликнется подобная ошибка на судьбе главной героини UY? А тем временем в городе Томобики открывается (   Читать дальше...   )Производство: Kitty Films / キティ・フィルムЖанр: приключения, комедия, романтикаРежиссер: Ямадзаки КадзуоПеревод: Владимир ШабунинЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 90 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD92E1DF4735B9C991EFD1424E4B30EFF7CFE155
+magnet:?xt=urn:btih:5D26FFEAAE27B907B6B872461F4A6952D6DD18E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,25 +640,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599436   (999394) от 06.01.2013
+###  Публикация: 1488308   (1002304) от 10.08.2021
 
-Фотография - Фотограф Christian Kettiger
+Сержант / The Sergeant (1910) DVDRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Christian Kettiger
+История, рассказанная в этом фильме, произошла в Йосемитской долине. Уэстли, дочь полковника Гордона, единственная кому удавалось смягчать суровый нрав её отца, любила совершать по утрам конные поездки в сопровождении сержанта Адамса, которому полковник поручил присматривать за своей дочерью. Дружеские отношения между молодыми людьми постепенно перерастают в любовь. (   Читать дальше...   )Производство: США, Selig Polyscope CompanyЖанр: Драма, вестерн, короткометражный, немое киноРежиссер: Френсис БоггсАктеры: Хобарт Босворт, Айва Шепард, Том Санчи, Фрэнк Кларк, Арт ЭкордПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:15:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09AED8D1A744C7BAAB4E7BD2C71C2E59A09EFC5A
+magnet:?xt=urn:btih:40810A64E336EC7FE6E09D14CBDD2E65F9FD321E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,25 +666,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599545   (999393) от 06.01.2013
+###  Публикация: 1488194   (1002303) от 10.08.2021
 
-Ростислав Плятт | Ростислав Плятт. Без эпилога [2000] [DJVU]
+Urusei Yatsura Movie 4: Lum the Forever | Those Obnoxious Aliens: Lum the Forever | Несносные пришельцы: Лам навсегда (фильм #4) [1986, Movie] BDRip 1036p raw
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Много блестящих ролей сыграл в театре и кино Ростислав Янович Плятт. Зрители разных поколений помнят его в спектаклях «Дни нашей жизни», «Нора», «Госпожа министерша», «Бунт женщин», «Леший», «Шторм», «Милый лжец», «Дальше - тишина», в фильмах «Подкилыш», «Весна», «Семнадцать мгновений весны» и др. Актер рассказывает о своей многолетней работе на московских сценах - в Театре-студии под руководством Ю. Завадского, в Театре имени Моссовета. О режиссере Ю. Завадском, актерах В. Марецкой, Н. Мордвинове, О. Абдулове, Ф. Раневской, Л. Орловой. В портретную галерею входят видные деятели советской и зарубежной культуры - А. Попов, М. Ромм, К. Симонов, Ч. Чаплин.Формат: DJVU
+Что есть реальность? Индуисты говорят, что это "сны Брахмы". А могут ли сниться сны городу Томобики?
+В имении клана Мэндо состарилось 300-летнее дерево. Но не простое дерево, а Таро-сакура - хранитель рода Мэндо. Его нужно заменить, а, стало быть, срубить. Это хороший повод снять кино на тему древнего предания рода Мэндо. Но так ли уж безобидна эта затея? (   Читать дальше...   )Производство: Kitty Films / キティ・フィルムЖанр: приключения, комедия, романтикаРежиссер: Ямадзаки КадзуоПеревод: Владимир ШабунинЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 95 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4FC4289EB7F16D70C8C0FA91B911CC85513F54E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,144 +693,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599418   (999392) от 06.01.2013
+###  Публикация: 1488196   (1002302) от 10.08.2021
 
-Wide Wallpapers - waterfalls (06.01.13) [Wallpapers]
+Urusei Yatsura Movie 5: Kanketsu Hen | Those Obnoxious Aliens: The Final Chapter | Несносные пришельцы: Последняя глава (фильм #5) [1988, Movie] BDRip 1036p raw
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Из черного-черного космоса к Земле приближается черный-черный космический корабль. В черной рубке стоит незнакомец в черном и смотрит на медальон. А в медальоне изображение Лам… Такое, вот, грозное начало у фильма The Final Chapter. Фильм действительно задумывался, как последняя глава, завершающая весь цикл историй Urusei Yatsura. Как и положено последней главе, (   Читать дальше...   )Производство: Kitty Films / キティ・フィルムЖанр: приключения, комедия, романтикаРежиссер: Дэдзаки СатосиПеревод: Владимир ШабунинЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 85 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93837390EB06CD24529D45C2A054A3C5855D8631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598780   (999391) от 06.01.2013
-
-VA - Pure Trance Bliss (2013) [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juventa - 405 (Original Mix)
-02. Jaco - Malaysia (Original Mix)
-03. Temple One - Aquamarine (Original Mix)
-04. LTN - Never Let Me Go (Anhken Sunset Remix)
-05. Jan Martin - Exemption (The Madison Remix)
-06. Jjoo - One Night In Seoul (Original Mix)
-07. Juventa & Answer42 - Like These Eyes (Answer42 Remix)
-08. Audien - Keep This Memory (Johan Malmgren Remix)
-09. Estiva & Tania Zygar - Death Of Me (Original Mix)
-10. Juventa - Roadtest (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F56C526884BC8E642D04C3AEB39444750E50B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599385   (999390) от 06.01.2013
-
-[Wallpapers] Abstract Wallpapers (06.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999390.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Abstract Wallpapers (06.01.13)
-Название: Abstract Wallpapers (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5BD0B05920B929B6ECF48E6F358B931E29420A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599577   (999387) от 06.01.2013
-
-Вячеслав Шпаковский, Светлана Шпаковская | Бронетехника гражданской войны в Испании 1936–1939 гг. [1999] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о танках и бронеавтомобилях, примененных в ходе гражданской войны в Испании 1936–1939 гг. — первой «пробы сил» ведущих европейских держав перед Второй мировой войной. Рассмотрены особенности боевого применения бронетехники воюющими сторонами, вопросы противотанковой обороны, а также организации, униформы, знаках различия танковых формирований. (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B63D4F626EF2E82F2C4A45FDFB59BCC56E4D75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599520   (999384) от 06.01.2013
-
-Dismantled - Whole Wide World (EP)(2012) [MP3|320 kbps] <EBM , Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole Wide World (05:03)
-02. Whole Wide World (Instrumental) (05:22)
-03. DiseaseЖанр: EBM , IndustrialПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC2C90EA5D7C6ED00C04B4D39F36C33B04EDEC3
+magnet:?xt=urn:btih:EF20335C78794DF385E15058707E7E5815DB910E
 ```
 
 https://mybot314.ru/tekegram_catalog/

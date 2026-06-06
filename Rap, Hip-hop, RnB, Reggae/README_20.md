@@ -1,3 +1,90 @@
+###  Публикация: 1244274   (483877) от 31.08.2018
+
+Beastie Boys - Licensed to Ill (1986) 1999, Def Jam Recordings [FLAC|Lossless|tracks + .cue] <Hip Hop, Boom Bap, Punk>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhymin & Stealin (4:08)
+ 02. The New Style (4:36)
+ 03. She's Crafty (3:35)
+ 04. Posse In Effect (2:26)(   Читать дальше...   )Жанр: Hip Hop, Boom Bap, PunkПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8078EDA39A4B12FEC0E5B0FDE78FA79A91429187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244228   (483755) от 31.08.2018
+
+Eminem - Kamikaze (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ringer (05:37)
+02. Greatest (03:46)
+03. Lucky You (Feat. Joyner Lucas) (04:04)
+04. Paul (Skit) (With Paul Rosenberg) (00:35)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C11C202A30A054949A88FF60BC8E1649A23719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056448   (481280) от 25.09.2016
+
+ATL - Карма x Кома (2016) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бисер
+02 - Пока молодой
+03 - Фильтр
+04 - Тоннель(   Читать дальше...   )Жанр: RapПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878B1CA311DC5FA7D8D0E9FCA726B1BA4AE1768B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056790   (479394) от 26.09.2016
 
 The Maytals - The Best Of The Maytals (2016) 2CD, Compilation [MP3|320 Kbps] <Reggae>
@@ -655,93 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B01ACEF434E56C9348363E5B7D28EB2466426B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411475   (427345) от 25.09.2020
-
-Хаски - Хошхоног (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [03:33]
-02. Шаг влево, шаг вправо [02:33]
-03. Никогда-нибудь [02:25]
-04. Люцифер [02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F199BFC78A6FEC2A2FFCC7D5C71A6208FD9116A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324254   (427331) от 08.09.2019
-
-The Dualers - Palm Trees and 80 Degrees (2019) [MP3|320 Kbps] <Funk, Ska, Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got to Do Better Than That (03:54)
-02. Dancin till the Sun Comes Up (04:06)
-03. It's a Wonderful Life (04:30)
-04. Spend Some Time (04:08)(   Читать дальше...   )Жанр: Funk, Ska, ReggaeПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976FD33CB0405BBD7E04A137CD20CB43D35A5B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946247   (427304) от 13.10.2015
-
-Nekby - Алхимия (2015) [MP3|320 кб/с]<Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алхимия 03:13
-02. Стрелки 03:57
-03. Пятое Тело 03:09
-04. Фрэнк Андервуд 02:55(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA15F01AA581C2CFEA6738477C44417F3C4E4468
 ```
 
 https://mybot314.ru/tekegram_catalog/

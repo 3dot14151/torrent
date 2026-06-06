@@ -1,3 +1,61 @@
+###  Публикация: 1172556   (150170) от 24.12.2020
+
+Shinnobu - 8 альбомов (2017-2020) [MP3|320 Kbps] <Enigmatic, Electronic, New Age>
+
+>>След.
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemurian Dreams
+02. Akashic
+03. Beloved Angels
+04. Heal Me(   Читать дальше...   )Жанр: Enigmatic, Electronic, New AgeПродолжительность: 04:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C6364FBE9A25764D8925F1413A53D9F015C64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969212   (148968) от 26.12.2015
+
+Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Dew (08:32)
+02. Transformation Part 1 (07:26)
+03. Cathedral of Trees (07:10)
+04. Wanderer (09:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0865C08EBF727F0518B7E6C110E9EF18EF06B65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086700   (148344) от 26.12.2016
 
 David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, World>
@@ -728,64 +786,6 @@ VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784719   (69538) от 12.03.2025
-
-Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origination (Original Mix) (3:52)
-02. Token of Love (Original Mix) (4:49)
-03. Try to Understand This (Original Mix) (3:34)
-04. My Morning (Original Mix) (4:16)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784720   (69537) от 12.03.2025
-
-Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams Of Peace (4:44)
-02. Like In The Water (3:38)
-03. Regret (3:16)
-04. Conversation With Echo (4:41)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AFE46D1FD01058DA764F1B135DAD6FD2635642
 ```
 
 https://mybot314.ru/tekegram_catalog/

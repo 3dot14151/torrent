@@ -1,3 +1,148 @@
+###  Публикация: 1378424   (846289) от 25.04.2020
+
+The Sweet - 100% The Sweet (2020) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chop Chop
+02. Sweet F.A.
+03. Action
+04. Spotlight(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 04:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6188FB8644A97FEE1B7012CA134A382BC35E75F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111991   (844789) от 07.03.2017
+
+VA - Fall Of Medusa: Hard Classic Rock 90s (2017) [MP3|320 Kbps] <Classic Hard Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844789.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AC/DC - Hail Caesar 05:15
+002. Ozzy Osbourne - See You On The Other Side 06:11
+003. Deftones - Root 03:42
+004. Rammstein - Seemann 04:49(   Читать дальше...   )Жанр: Classic Hard Rock, Metal, AlternativeПродолжительность: 10:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9878B98256C8B7F4B0D1656F00886D9881296765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378704   (844641) от 26.04.2020
+
+George Harrison - 100% George Harrison (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singing Om (2014 Mix)
+02. Do You Want To Know A Secret (Remastered 2009)
+03. While My Guitar Gently Weeps (Live From Madison Square Garden, New York, U.S.A, 1971 / 2009 Mix)
+04. Beautiful Girl (2004 Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 04:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C34AAF2FD5E5B4DEC14547E46F61B2CBA059B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795070   (844470) от 02.04.2016
+
+VA - Heavy Gaming Vol.01 - 18 (2014-2015) [MP3|128-320 кб/с]<Rock/Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Klepacki - Hell March (Command & Conquer Red Alert) [00:06:22]
+02. C. PortwinT. StasicaF. Love - Instability (Hunter The Reckoning) [00:02:32]
+03. Yoshihiro Sato - High Powered Drivin (Cyber Org) [00:04:27]
+04. Pentakill - Last Whisper (League Of Legends) [00:03:37](   Читать дальше...   )Жанр: Rock/MetalПродолжительность: 17:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A142F9F0D1E4F3CF6CD02048DC5B7931D2FF8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500005   (844425) от 04.10.2021
+
+Jimi Hendrix - Guitar King (2021)(2CD Compilation) [MP3|320 Kbps] <Rock, Hard Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolly Dagger
+02. Earth Blues
+03. Spanish Castle Magic
+04. Can You See Me(   Читать дальше...   )Жанр: Rock, Hard Rock, BluesПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE556F90E9E12836D5E84E9297E34FC7B1E8B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378707   (844404) от 26.04.2020
 
 The Beatles - 100% Beatles Solo (2020) [MP3|320 Kbps] <Rock>
@@ -597,151 +742,6 @@ VA - I Love Music! - Gothic Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Gothic M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C54B6F0A4CDBD4294DC5068009DD2B57F4F767B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114264   (833416) от 14.03.2017
-
-VA - I Love Music! - Extreme Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833416.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 40 Watt Sun - Another Room 11:55
-002. A Sun Traverse - The Autumn Of Fall 6:18
-003. Ailment - Dogma 12:51
-004. Bathsheba - Ain Soph 5:42(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 17:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35BA0EEC27D892E7E1571705CA2A1D8599D20F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114262   (833414) от 14.03.2017
-
-VA - I Love Music! - Alternative Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3 Pill Morning - The Hunted 3:25
-002. 4Drive - Rain 3:59
-003. Acceptance - Come Closer 3:35
-004. Acronycal - Tonights The Night 3:54(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 06:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00013AE185E8FE98F18526A6E5E464C2AC38895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114258   (833408) от 14.03.2017
-
-VA - I Love Music! - Indie & Soft Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Rock, Acoustic, Psychedelic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833408.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Against the Current - Young & Relentless 3:22
-002. Amber Arcades - Turning Light 6:55
-003. Amber Run - Dark Bloom 4:22
-004. Amber Run - Island 3:55(   Читать дальше...   )Жанр: Rock, Acoustic, Psychedelic RockПродолжительность: 10:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738380AF168D7C393C21B5BC04C9EA7253F702FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114259   (833146) от 14.03.2017
-
-VA - I Love Music! - Hard Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833146.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angels Or Kings - On The Corner Of Love And Lost 4:38
-002. Black Hole Raven - Song For The Lost 4:04
-003. Black Paisley - It Ain't Over 4:21
-004. Black Star Riders - Letting Go Of Me 3:45(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 06:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DD2EA2CE987A2843908088305CD7C4B2CD4E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380358   (833036) от 03.05.2020
-
-Quiet Riot - 100% Quiet Riot (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metal Health (Bang Your Head)
-02. The Pump (Album Version)
-03. In the Blood
-04. Cum on Feel the Noize(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF087D3FFF2A82709AE91C1C171CF41720F05094
 ```
 
 https://mybot314.ru/tekegram_catalog/

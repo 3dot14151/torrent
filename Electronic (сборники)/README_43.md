@@ -1,3 +1,90 @@
+###  Публикация: 1003797   (841909) от 04.04.2016
+
+VA - Happy Feeling Vol.1 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dark Devil - Radio Signal (Original Mix) (feat. DJ Solar Riskov) 03:34
+02 Dave Silence - Infinitely Happy (Original Mix) 04:53
+03 Quantum Duxe - Sunwalker (Original Mix) 05:17
+04 Alex Drow - Inception (Original Mix) 04:45(   Читать дальше...   )Жанр: House, Progressive, Trance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2953D7B9EEA4CD1C095801B14EE81237DEE9B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003689   (841908) от 04.04.2016
+
+VA - DJ Pitkin Special Mix 22 (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SNBRN feat. Nate Dogg - Gangsta Walk (Extended Mix) 4:20
+02. De La Soul - All Good (Wolfgang Lohr & Wonkers Remix) 3:49
+03. The Knocks & Matthew Koma - I Wish (East & Young Remix) 2:47
+04. Manufactured Superstars feat. Danni Rouge - Great Escape (Richard Grey Remix) 2:50(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA954B9B35D30AC7FB256A8954DD5F6E6C774FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003927   (841902) от 04.04.2016
+
+VA - Party Anthems №1. The World Biggest Dance & Club Hits (2016) [MP3|320кб/с] <House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841902.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Acero Mc & Hotfunkboys With Dj Tilo Feat. Sarah Riveira - Ke Lo Ke (Radio Edit) 03:25
+002. Akami And Funkybeat - Skirts (Radio Edit) 02:50
+003. Alessandro Ambrosio - Don't Srach Too Much (Original Mix) 04:04
+004. Alex Kenji - When I Feel (Original Mix) 04:52(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 09:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD8D2CC52FE57F7B1AE02DB15BC86CFB7DA2F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003742   (841899) от 04.04.2016
 
 VA - Dance Club Vol.2 (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -658,93 +745,6 @@ VA - Beatport Electo House: Sound Pack #354 (2021) [MP3|320 Kbps] <Electro House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7EBEB86403C665BF216D1D821130168E4A60C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501129   (838127) от 08.10.2021
-
-VA - Beatport Drum And Bass: Electro Sound Pack #353 (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838127.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angry Fly - Maze
-002. Nappy Soldier & Screamarts - Seize The Capital
-003. Technimatic - Lightwave
-004. Secret Structures - We Step In Shadows(   Читать дальше...   )Жанр: Drum And Bass, Bassline, Electro BassПродолжительность: 12:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E494DE3E339C7DB0BF0FED2D14609480098B00AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501120   (838126) от 08.10.2021
-
-VA - Beatport Deep House: Electro Sound Pack #352 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838126.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Carerra & Tavares - Tydlose
-002. Sanzy - Roadtrips To Bangsar
-003. Inessa - Bedouin Spirit
-004. Toblas - On The Beach(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563620F5EE81F4E1118D32A0334B2E6D6064E95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501143   (838125) от 08.10.2021
-
-VA - EDM Nation: October Dance Mixes (2021) [MP3|320 Kbps] <EDM, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838125.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sam Collins feat. Oniva - Something About You
-002. Br1an - We Just People
-003. Faul & Wad vs. Pnau - Changes
-004. DJ Jamx - Keep It That Way(   Читать дальше...   )Жанр: EDM, Club, DanceПродолжительность: 07:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5594CACB16B1B03C275F2F30791922499AD088EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1849945   (1054347) от 28.01.2026
+
+VA - Russian Rock 2025 (2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054347.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:58]. 001-Инкогнито - Январь
+[2:46]. 002-Диана Арбенина - Вот и я
+[4:10]. 003-7Б - Я люблю её
+[3:53]. 004-Сурганова и Оркестр - Здравствуй(   Читать дальше...   )Жанр: rockПродолжительность: 07:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5ABBCE5D6FBA8A8C138F10FBC0B57C9423FED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848913   (1053202) от 19.01.2026
+
+VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053202.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:32] . 001-Би-2 - Я двигаюсь дальше
+[4:21] . 002-7б - Тост
+[3:00] . 003-Ночные снайперы - Дом стеной
+[3:13] . 004-Серьга - Батарейки сели(   Читать дальше...   )Жанр: rockПродолжительность: 9:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BF763C56CEA043F952F4ED880BA486857483E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848219   (1052783) от 16.01.2026
+
+VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Møxes - Carry Me Through the Night
+02 - Wicked Wenches - Love Won’t Be Rushed
+03 - Møxes - Shadows of Goodbye (1 Versions)
+04 - Wicked Wenches - Burn to Feel(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C374FAFA8FB917394C54944160C9146BDA6089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847645   (1052261) от 13.01.2026
+
+VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Møxes - Because You Stayed
+02 - Wicked Wenches - Wild Over You
+03 - Møxes - No Pillow But Your Name
+04 - Wicked Wenches - Still Alone Tonight(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6E9834E148C796F881A095DD71CF1184F7ACB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845711   (1050927) от 06.01.2026
+
+VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ария - Гордиев узел (5:15)
+02. Radio Tapok - Фрау чёрная смерть (3:37)
+03. Casual, Глобалис - Не жалей ни о чём (3:57)
+04. ГУДТАЙМС & Найк Борзов - Инопланетный гость (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 05:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844923   (1050368) от 29.12.2025
 
 Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard rock, Glam rock, Pop rock>
@@ -600,151 +745,6 @@ VA - Music for You vol.15 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7886697AE44328E5C3ED3F2A84F18D46A8E024C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437542   (1041688) от 06.01.2021
-
-Mick Jagger - Angel in My Heart (2021) 2CD, Compilation [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wired All Night
-02. Lucky Day
-03. Out of Focus
-04. God Gave Me Everything(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6368F2E1049B2377E7D20A5F751E571503AC6860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437887   (1041448) от 07.01.2021
-
-Ian Gillan - Unchain Your Brain (2021) 2CD, Compilation  [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchain Your Brain
-02. You Make Me Feel So Good
-03. Don't Stop
-04. Born Again(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7EEEB04A004E1FEA8AE8237D61C09DB254CC49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610851   (1041383) от 11.02.2023
-
-Dorothy - Compilation (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Beautiful Life
-02. Down to the Bottom
-03. Flawless
-04. Get Up(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594995FD73F7861F34D2C312F632B6B2FF50C7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612255   (1040306) от 15.02.2023
-
-Omega - Movin' World (2023) 2CD Compilation  [MP3|320 Kbps] <Rock, Psychedelic, Space Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bird [04:21]
-02. Silver Rain [05:12]
-03. Don't Keep Me Waitin' [07:26]
-04. The Hall Of Floaters In The Sky [02:51](   Читать дальше...   )Жанр: Rock, Psychedelic, Space RockПродолжительность: 02:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDB54EDC7E06225F5B7F47EE0F981F44A728622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439079   (1040286) от 11.01.2021
-
-VA - Private Partners: Rock Blues Lyric Collection (2021) [MP3|320 Kbps] <Rock Blues, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящие ветераны и винтажные мастера рок блюза в очередной раз порадуют своих фанов выпуском полноформатного коллекционного сборника "Private Partners". Выделять какие-то треки в особенности нет смысла – если бы не паузы между песнями, то можно было бы воспринять все как один большой трек, с лирическими перекатами по настроению, но с одним и тем же чувством (   Читать дальше...   )001. Eric Brooke - Movin' Uptown
-002. Don Griffin - Back To Chicago
-003. Dirty Dave Osti - Rebel Run
-004. Robert Randolph - Simple Man(   Читать дальше...   )Жанр: Rock Blues, BluesПродолжительность: 09:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACFFFE446F686A330A4A97A452D1CACD601F078
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 689482   (769718) от 24.06.2020
+
+Blue October - Sway (2013) [MP3|320 кб/с]<Alternative, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe, It's Over 01:12
+02. Sway 04:45
+03. Angels In Everything 04:23
+04. Bleed Out 03:52(   Читать дальше...   )Жанр: Alternative, Modern RockПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A91190884245E7E7376F7B905E156A7123A80D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392407   (769093) от 27.06.2020
 
 Grey Daze - Amends (2020) [MP3|320 Kbps] <Alt.Rock>
@@ -716,32 +745,6 @@ The Clash - Hits Back (2013) 2 СD [MP3|320 Kbps] <Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E9B23CCF585C3DD089E146E9E19C8D3128490A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 143228   (733008) от 05.02.2022
-
-Blue October - Дискография (1998-2009) [MP3|320 Kbps] <Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative rockПродолжительность: 8 hours 25 minutes 51 seconds
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682B9BD6BDB2824E8B5B6D61D70E75B9DC16B380
 ```
 
 https://mybot314.ru/tekegram_catalog/

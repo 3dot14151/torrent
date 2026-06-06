@@ -1,3 +1,357 @@
+###  Публикация: 1542462   (637107) от 07.04.2022
+
+Дилижанс - Лучшие Песни (2003) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свадебная
+02. Тёща
+03. Цыганочка с выходом
+04. Хочу мужа я(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3002E2188F3B10DA06169C2C4CDEF1F7D989B9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542455   (636953) от 07.04.2022
+
+Игорь Саруханов - Grand Collection (2002) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маскарад
+02. Слово в слово
+03. Позади крутой поворот
+04. Вчерашний день(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D62277FB2C1AF0D7DFF167AD99BA0D209105B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519284   (636916) от 06.07.2012
+
+Валерия - Самое лучшее (1999) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты где-то там
+ 02. Обычные дела
+ 03. Не забудь былые увлеченья
+ 04. Кап-кап
+ 05. Жаль
+ 06. О том, что было
+ 07. Небеса
+ 08. Золотая рыбка
+ 09. Моя Москва
+ 10. Самолет(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172CC9793C44EE88DC440E9C2A6A76808D5BC203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542458   (636876) от 07.04.2022
+
+Комбинация - Легендарные Песни (2004) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Boy
+02. Белый вечер
+03. Russian Girls
+04. Два кусочека колбаски(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5910DA53346C41CFA2417B8E6BD98C953FBB219F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542465   (636859) от 07.04.2022
+
+ABBA - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Day Before You Came
+02. Take A Chance On Me
+03. Money, Money, Money
+04. The Piper(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F1089809F92CFE1B35A3B29C67B9E2F0FC9347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661991   (636785) от 03.04.2019
+
+VA - Песня 75, 76, 77 (3 CD) (2007) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ВИА «Пламя» / У деревни Крюково [0:03:29.55]
+02. Тамара Синявская / Черноглазая казачка [0:03:25.05]
+03. Геннадий Пономарев / Барабан [0:02:59.49]
+04. Мики Евремович (СФРЮ) / Московская серенада [0:04:15.13](   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1C29F1156823861F97874C192A99601188B2FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907827   (636163) от 13.06.2015
+
+James Taylor - Before This World (2015) [MP3|320 кб/с]<Folk-Rock, Country, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636163.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Today Today Today (3:09)
+2. You And I Again (3:52)
+3. Angels Of Fenway (3:18)
+4. Stretch Of The Highway (5:32)(   Читать дальше...   )Жанр: Folk-Rock, Country, PopПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8EE0E1D1E50EF2B8C9195F01C4E8C0F447C386C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033940   (636145) от 12.07.2016
+
+Александр Шевченко - Больше ничего (2009) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Больше ничего
+02. Я тебя не буду искать
+03. Никто не знает
+04. Сентябрь(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277B8627CCCC7C3B70370C49B4E511D4157260EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033822   (636131) от 12.07.2016
+
+На-На - Не женись (1991) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636131.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пустынный Пляж (4:13)
+2. Не Женись (3:21)
+3. Свет В Окне (4:28)
+4. Юлия (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F9F09ED4F428A61B520967AA19837F366A8831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033796   (636129) от 12.07.2016
+
+VA - Woman In Love (1983) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Brown - Stop
+02. Elaine Page & Barbara Dickson - I Know Him So Well
+03. Terence Trent D'Arby - Suddenly You Crossed My Heart
+04. Timmy T. - One More Try(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303D992444B9037C155D971212A103EB284CDD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907897   (636052) от 13.06.2015
+
+Jenni Vartiainen - 3 альбома (2007-2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2007 - Ihmisten Edessa
+2010 - Seili
+2013 - Terra (Platinum Edition)Жанр: PopПродолжительность: 02:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3170E703BA0C2A039240478855862657C266EFE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033716   (636041) от 12.07.2016
+
+Dirty Vegas - Photograph (2015) [MP3|320 Kbps] <Dance, Synth Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let the Night (Original Mix)
+02. Setting Sun (Original Mix)
+03. Do What You Feel
+04. Photograph(   Читать дальше...   )Жанр: Dance, Synth Pop, HouseПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A234974E67481756C8E0A40313D8DCD066C687D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033788   (636034) от 12.07.2016
 
 Тамара Гвердцители - Избранное (2005) [FLAC|Lossless|image + .cue] <Pop>
@@ -396,362 +750,6 @@ VA - Golden DJ Hits Vol. 2 (2006) [MP3|320 Kbps] <Eurodance, Euro-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B39F64A1E888F41B7EAD110AEBC39EC63CF2EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293686   (635224) от 04.04.2019
-
-VA - Golden DJ Hits Vol. 1 (2004) [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O-Zone - Dragostea Din Tei (3:33)
-02. Las Ketchup - Asereje (3:28)
-03. In-Grid - Tu Es Foutu (3:36)
-04. Los Del Rio - Macarena (3:51)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA9898310CE3602C3177093672EBEB7FC539365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907870   (635157) от 13.06.2015
-
-Michael Jackson - The Best 39 (2015) [MP3|320 кб/с]<Pop, R&B, Rock, Funk, Post-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thriller
-02. Billie Jean
-03. Beat It
-04. Heal The World(   Читать дальше...   )Жанр: Pop, R&B, Rock, Funk, Post-DiscoПродолжительность: 03:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095AB17C6B7E249191B158CAF43EA1B3DCAC23AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143552   (635122) от 18.06.2017
-
-Disco Digitale - Electronic Passion (2014) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora 5:26
-02. Night Sky 4:58
-03. You Tell Me 3:48
-04. The Future 4:15(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9782C958D58C41911880EA131936DCB786C3338B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143672   (635108) от 18.06.2017
-
-Disco Digitale - Discography (2006-2014) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Disco Digitale была образована в 2003 году под влиянием творчества Fancy, Digital Emotion, Trans-X. Первый альбом "Computer Dreams" вышел в 2006 году и включал в себя 11 песен, здесь присутствует мужской и женский вокал. Позже вышел диск с ремиксами на треки из первого альбома и несколькими новыми песнями.
- Состав группы: братья Ларс и Кристер Бьёрндал (   Читать дальше...   )01. Taken To The Stars 3:47
-02. Videogirl 3:40
-03. Digital Love 3:58
-04. Lightspeed 3:23(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3A7C1770AD4A288CC3349283E56041CD3E9BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143332   (635094) от 18.06.2017
-
-Limelight - Special Love (2015) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Love (6:24)
-02. Hold Me Tight (7:03)
-03. Call Me (7:02)
-04. I Want Your Love (7:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A21DEB12B1A107F895475C256E657A3C8D15E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517552   (635060) от 07.07.2012
-
-Flo Rida - Wild Ones (2012) [FLAC|Lossless]<Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whistle
-02. Wild Ones (feat. Sia)
-03. Let It Roll
-04. Good Feeling
-05. In My Mind, Pt. 2 (feat. Georgi Kay)
-06. Sweet Spot (feat. Jennifer Lopez)
-07. Thinking Of You
-08. I Cry
-09. Run (feat. RedFoo of LMFAO)Жанр: Pop, Dance, R&BПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CBA0061B8FB95ECDF51893E54D41A7F6A33143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143549   (634971) от 18.06.2017
-
-Алла Йошпе и Стахан Рахимов - Лучшие песни (2009) [MP3|320 Kbps] <Ретро,Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634971.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Поговорим, родные, по душам (4:05)
-2. Алеша (3:45)
-3. Опять война (3:41)
-4. Осенние колокола (4:50)(   Читать дальше...   )Жанр: Ретро,Советская эстрадаПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BC500D8F935EF778AB7A1838295478019B2772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143566   (634846) от 18.06.2017
-
-Николай Караченцов - Лучшее и Неизданное (2014) 2CD [MP3|320 Kbps] <Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кленовый лист (М.Дунаевский - Л.Дербенев), из т/ф «Маленькое одолжение» 1984
-02. Что тебе подарить? (Р.Майоров - С.Алиханов, А.Жигарев), дуэт с Ириной Уваровой 1984
-03. Серенада Рикардо (Г.Гладков - М.Донской), из т/ф «Собака на сене» 1977
-04. Ты меня на рассвете разбудишь... (А.Рыбников - А.Вознесенский), из рок-оперы «Юнона и Авось» 2002(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 02:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000459014007EF9334AA02D1070A379A6BD619DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143492   (634843) от 18.06.2017
-
-VA - Die Hit Giganten Best Of 90's Dance (2017) 3CD [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dr. Alban - It's My Life  4:01
-02.  Snap! - Rhythm Is A Dancer  3:42
-03.  Culture Beat - Mr. Vain  4:18
-04.  Eiffel 65 - Blue (Da Ba Dee)  3:40(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 03:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73F8E975A2450A22168B0436C0FB49DCAC8E7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143655   (634661) от 18.06.2017
-
-Modern Talking - Back For Gold (The New Version) (2017) [MP3|320 Kbps] <Eurodance, Euro-Disco, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brother Louie (New Version 2017)  3:21
-02.  You're My Heart You're My Soul (New Version 2017)  3:33
-03.  Cheri Cheri Lady (New Version 2017)  3:41
-04.  You Can Win If You Want (New Version 2017)  3:26(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, EuropopПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CDAE6D1B73D5B97E45663A5CEBF0BF466612E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034468   (634224) от 13.07.2016
-
-Pino D'Angio - 7 Albums (1981-1991) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя артиста - Giuseppe Chierchia, он родился в небольшом городке Pompei на юге Италии 14 августа 1952 года.
-Первый успех пришел к нему в 1980 году после записи сингла "Ma Quale Idea", годом позже вышел первый альбом исполнителя, продажи которого превысили миллион экземпляров.
-Последующие альбомы Pino D'angio имели гораздо меньший успех. Возможно, (   Читать дальше...   )Список альбомов:
-1981 - ...Balla!
-1982 - Ti regalo della musica
-1983 - Una notte maledetta(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 04:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A963B3A585FAD9B518B00FEBAF99A17AF04E3AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908317   (633990) от 14.06.2015
-
-Marie Fredriksson - I En Tid Som Var (1996) [FLAC|image + .cue]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I En Tid Som Var [6:18]
-02. Drommen [5:39]
-03. Efter Sa Manga Ar [4:50]
-04. Min Trognaste Van [4:07](   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1CACEA25C15A85E7BAFCF179380A4E5BCF4978
 ```
 
 https://mybot314.ru/tekegram_catalog/

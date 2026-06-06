@@ -1,3 +1,56 @@
+###  Публикация: 1007257   (821287) от 15.04.2016
+
+Проекты - VideoBlocks - Promo Fly Ins [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо ролика.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038E426E04C0A9B0564A5AE080CF18192212255F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007445   (821196) от 15.04.2016
+
+Проекты - VideoHive - Media Lightbox - 122498 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Lightbox - отлично подходит для вашего сайта или бизнес-презентации. На всех кубах можно показать видео, изображения или текст.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502E060DADA7776F9B528D44DF4586FCA96F8648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007382   (821180) от 15.04.2016
 
 Проекты - VideoHive - Presentation collection [AEP]
@@ -624,60 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AFC3F53B3D907F46FC086C2E38E2199F0EDE0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010163   (805672) от 23.04.2016
-
-Проекты - VideoHive - Energy Wipes [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86463A401606DCF86C26D9E3D66E27925C8FDDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010162   (805574) от 23.04.2016
-
-Проекты - VideoBlocks - Black Intro [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо ролика.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18601A8934439ED0239144FECC18A212161CC479
 ```
 
 https://mybot314.ru/tekegram_catalog/

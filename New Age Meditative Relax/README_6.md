@@ -1,3 +1,32 @@
+###  Публикация: 1276736   (787614) от 17.01.2019
+
+VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Sunshine - Alala (Intro Chill Mix)
+02. Illegal Substances - Lost Civillization (Edit)
+03. Ufomatka - Sunrise On Venus
+04. The Same Old Souls - Strange Light Anomalies(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 03:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EF0BA8E934DB69AFD18A8263A2D394BFF6DA9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276700   (787534) от 17.01.2019
 
 Shinnobu - The Enigma VII (Star Seeds) (2019) [MP3|320 Kbps] <New Age>
@@ -713,35 +742,6 @@ Hennie Bekker - Relaxing Pachelbel (2005) Tapestries [MP3|320 Kbps] <New Age, Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D77E172901B40E50CE730836EBFE226F1C504256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210732   (778549) от 04.03.2018
-
-Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Piano, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Reunion 5:13
-02. Jacquelyn 5:10
-03. Arctic Child 5:19
-04. Christmas Spirit 4:39(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CAAC54184BD62706A8CC77E242BC63FE1C6BB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

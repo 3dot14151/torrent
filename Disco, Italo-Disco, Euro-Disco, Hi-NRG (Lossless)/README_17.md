@@ -1,3 +1,61 @@
+###  Публикация: 1410782   (433874) от 22.09.2020
+
+Michael Fortunati - The Best Of Disco Covers (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Around And Count 2 Ten (5:56)
+02. Eat You Up (3:50)
+03. You Spin Me Round (Like A Record) (4:05)
+04. Never Gonna Give You Up (3:27)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C446BE57DE0B92A6C08AFF7756835DEE3D344EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945825   (431439) от 11.10.2015
+
+Genghis Khan (Dschinghis Khan) - Genghis Khan (1979) Japanese Edition /1995, Victor/ [FLAC|image +.cue]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moskau 5:58
+02. Komm Doch Heim 4:17
+03. Samyrai 4:41
+04. Rocking Son Of Dschinghis Khan 4:15(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A95617CC372459855DB1082C4C27D9161C3B621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945600   (431247) от 11.10.2015
 
 Savage - Only You (30th Anniversary Remix) (2014) [FLAC|image+.cue]<Italo-Disco>
@@ -279,6 +337,41 @@ VA - Euro Disco - The Lost Legends Vol. 30 (2019) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C9589A1E9B52028891012BE0C1193EE2DCD5C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562220   (405436) от 19.10.2012
+
+VA - Ti Amo Vol. 1 - The Ultimate Italian Treasures (2012) 3CD[FLAC|Lossless]<Italian pop, Canzone, Oldies>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_405436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Del Monaco - Vita mia [03:03]
+02. Umberto Tozzi - Tu [04:13]
+03. Gianni Nazzaro - Quanto e' bella lei [03:02]
+04. Sandro Giacobbe - Signora mia [03:50]
+05. Ron - Noi [03:53]
+06. Loretta Goggi - Pieno d' amore [03:55]
+07. Betty Curtis - Chariot [02:47]
+08. Orietta Berti - Io tu e le rose [03:06]
+09. Roberto Vecchioni - Luci a San Siro [04:21]
+10. Gianni Ravera - Vogliamoci tanto bene [03:22](   Читать дальше...   )Жанр: Italian pop, Canzone, OldiesПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,93 +767,6 @@ Fun Fun - Color My Love (2017) Limited Edition, RE. [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0AB5BECE9921104541854F1203BDE5F1ABAF890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326762   (383089) от 21.09.2019
-
-Fancy - Greatest Hits & More (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slice Me Nice (4:23)
- 02. Chinese Eyes (4:29)
- 03. Get Lost Tonight (4:30)
- 04. L.A.D.Y. O. (4:21)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, 80sПродолжительность: 02:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E075875D3C9AF43A06564E1AACF5ADDB41557568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415407   (376685) от 12.10.2020
-
-VA - Italo Disco - The Lost Legends Vol. 29 (2019) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christina M. - Mirror Of My Soul [00:05:57]
-02. Maurizio Serafini - Oha...Oha... [00:04:05]
-03. Jimmy Mc Foy - I Can't Stay Without You [00:08:00]
-04. C.O.M.A. - Speed Up [00:03:41](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252643EAC943931029B6050231E5726A2C6779F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575784   (373104) от 11.09.2022
-
-Giorgio And Chris - Love’s In You, Love’s In Me (1978) Remaster, 2010, Gold Legion [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373104.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love’s In You, Love’s In Me 3:46
-2. Keep It Together 3:31
-3. I Can’t Wait 4:15
-4. Reprise 5:07(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560C4F39E808CCDBB93D7CFCF27D072A951CB1C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

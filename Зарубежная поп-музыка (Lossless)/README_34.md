@@ -1,3 +1,177 @@
+###  Публикация: 1530139   (730774) от 09.02.2022
+
+VA - Winter Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhys Lewis - The Sun Will Rise (3:03)
+02. Mipso - Hey, Coyote (3:35)
+03. Bear's Den - Berlin (4:29)
+04. Andrew Bird - Andalucia (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A314187C91A494932EB3772AAF21D9CC21C7A27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022180   (729879) от 01.06.2016
+
+Tegan and Sara - Love You to Death (2016) [FLAC|Lossless|tracks] <Indie Pop, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Girl
+02. Faint of Heart
+03. Boyfriend
+04. Dying to Know(   Читать дальше...   )Жанр: Indie Pop, Synth PopПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C789627A89855B0279E6817FCFC67281DB28D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022201   (729526) от 01.06.2016
+
+The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How I Love (Everything About You)
+02. Dum Dum
+03. Long Last Night
+04. Break a Heart(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Dream PopПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022169   (729511) от 01.06.2016
+
+Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovemachine [08:37]
+02. Dance Dance Dance [03:43]
+03. African Blood [08:34]
+04. Hollywood [04:02](   Читать дальше...   )Жанр: Pop, Funk, ReggaeПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284323   (728961) от 21.02.2019
+
+The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love The Sun
+02. Love Is In Your Eyes
+03. Everything I Want To Know
+04. Child Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284274   (728897) от 21.02.2019
+
+Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstar
+02. Thank You
+03. See It in a Boy's Eyes
+04. Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022494   (728710) от 02.06.2016
 
 Fifth Harmony - Reflection (2015) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dance, RnB>
@@ -571,180 +745,6 @@ Big Wild - Superdream (2019) [FLAC|Lossless|tracks + .cue] <Dance-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:024A8785C9C042447D1F2A2416AA4C8F8A39F145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129756   (720802) от 29.04.2017
-
-Didi Robinson - Du Warst Mein Schoenster Traum (1992) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Du hast noch nie das Meer gesehn
-2. Jenny's Traume
-3. Wenn die Erde bebt
-4. Das verlorene Lacheln(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2380051F2D8DB196554BD8C2846B1A1896D905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531772   (720646) от 16.02.2022
-
-Julio Iglesias - Recital At The Festival ''The Golden Orpheus '73'' (1973) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now As Twenty Years Since
-02. Like The Poplar Along The Road
-03. Nina
-04. El Pajaro Chogui(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35A6BC4B9C2E282754B1BFEF4CABB588CB36625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129621   (720437) от 29.04.2017
-
-Dalida - 30 ans deja (2017) 2CD  [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720437.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bambino
-02. Gondolier
-03. Histoire d'un amour(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129834   (720338) от 29.04.2017
-
-VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boef - Habiba (3:35)
-02. Anne-Marie - Ciao Adios (3:19)
-03. Kensington - Bridges (3:38)
-04. Burak Yeter feat. Danelle Sandoval - Tuesday (3:59)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Pop RapПродолжительность: 02:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129685   (720321) от 29.04.2017
-
-VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну какой релиз публиковать субботним предпраздничным утром - конечно 100 Hits: Sunday Morning Songs. Этим сборником британский лейбл Demon Music Group продолжает серию боксетов для самых различных слушателей (ссылку на серию NNM-Club вы найдете в конце релиза). Сдесь собраны спокойные, светлые и умиротворяющие композиции со всего света. 100 мягких мелодий собраны (   Читать дальше...   )CD1:
-01. Kris Kristofferson - Sunday Morning Comin' Down  (4:33)
-02. Johny Cash - It Ain't Me Babe  (3:04)
-03. Lulu - The Man Who Sold The World  (3:51)(   Читать дальше...   )Релиз состоялся: 17 февраля 2017Жанр: Dance, Pop, RockПродолжительность: 06:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B187667912098D3F6F8FAD72AF6995110B2BC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129692   (720232) от 29.04.2017
-
-VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katy Perry feat. Skip Marley - Chained To The Rhythm (3:57)
-02. Ed Sheeran - Castle On The Hill (4:21)
-03. Alma - Chasing Highs (3:15)
-04. Zedd & Alessia Cara - Stay (3:30)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3B1F1E0B4C9C23DB1CB3A498CB799790E225B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

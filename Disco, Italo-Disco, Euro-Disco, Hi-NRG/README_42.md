@@ -1,3 +1,147 @@
+###  Публикация: 1590920   (187814) от 16.11.2022
+
+C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreak Hotel (''Room 69'' Mix)
+02. One Night's Not Enough (Maxi Version)
+03. Back Seat Of Your Cadillac
+04. I Can Lose My Heart Tonight (Extended Club Remix)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E73DD72817280B622B30C1BA7B23C95D6092575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590798   (187813) от 16.11.2022
+
+C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Kiss
+02. Soul Survivor
+03. 'Cause You Are Young
+04. Heaven & Hell(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836D8E9ED0655743524A44DBA5CDF10FFC24DCF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591069   (187811) от 16.11.2022
+
+Tempo Rubato - Music '85 (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music '85 (19:02)
+02. Don't Stop The Classics (10:45)
+03. Let's Stay Together (7:28)Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C692B64CC6D4268CFAA9A47005C144CD5DBB58E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590478   (187798) от 16.11.2022
+
+C.C. Catch - Classics (1989) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Seat Of You Cadillac
+02. Are You Man Enougth
+03. Good Guys Only Win In Movies
+04. Midnight Gambler(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906FBA469B23D3F734BE99CFA58A3DE29E1E0717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590403   (185875) от 25.09.2023
+
+C.C. Catch - Diamonds - Her Greatest Hits (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of Mystic Lights (Long Version - Dance Mix)
+02. Are You Man Enough
+03. 'Cause You Are Young
+04. Don't Shoot My Sheriff Tonight(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF3C9796B3043EDF51E0FE78FA2A9561E35A77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591818   (185423) от 20.11.2022
 
 C.C. Catch - Star Collection - Back Seat Of Your Cadillac (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
@@ -598,149 +742,6 @@ Bad Boys Blue - The Fifth (1989) [OGG Vorbis|700 Kbps] <Electronic, Disco, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D36BCD3877C0754C9037A716E59F3C3100C34FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594741   (176696) от 03.12.2022
-
-C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Hotel (Room 69-Mix)  4:55
-02. I Can Loose My Heart Tonight (Extended Club Remix)  5:53
-03. 'Cause You Are Young (Maxi-Version)  4:55
-04. Are You Man Enough (Long Version - Muscle Mix)  6:03(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 02:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9E4113E46A537B01FCA7D7971F853DEDAE559F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595859   (174551) от 07.12.2022
-
-Cesare Cremonini - 1 Album, 1 Single (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poetica (Live) [00:04:53]
-02. Io e Anna / Anche Fragile (Live) [00:06:04]Жанр: Italio PopПродолжительность: 2 CD, 02:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36795E0BA3230E5C6418DD99FA8DF4B7D89F05E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595960   (173859) от 08.12.2022
-
-C.C.Catch - The Best Of C.C. Catch (2000) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_173859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backseat Of Your Cadillac
-02. Dancing In Shadows
-03. Good Guys Only Win In Movies
-04. Don't Be A Hero(   Читать дальше...   )Жанр: Electronic, Disco, EurodanceПродолжительность: 02:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC62FFB988762AE7139D23B5E70C97FD0A54EB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669679   (172593) от 17.10.2023
-
-Italove - Chasing Ghosts I-II Albums(2023) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viva la Victoria [00:03:08]
-02. Chasing Ghosts [00:04:12]
-03. At the Disco [00:03:13]
-04. Space Crusaders [00:04:10](   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186C39BDCD020524CC8D49B8C3536B7327CE6A52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669831   (172270) от 19.10.2023
-
-VA - Italo 2000 - Italo Rarities (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Colby - Madrill
-02. Patty Ryan - (You're) My Love, (You're) My Life
-03. Alexander Robotnic - Las Vacances
-04. Valerie Dore - Lancelot(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81618E47DAA0193948AE076059DD53A374442639
 ```
 
 https://mybot314.ru/tekegram_catalog/

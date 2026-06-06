@@ -1,5 +1,92 @@
 https://t.me/izofen
-###  Публикация: 1871759   (1069951) от 
+###  Публикация: 1874846   (1072154) от 
+
+VA - Slow Breakfast Beats: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pier-O - Cocktail Tune (4:46)
+02. Della Sol Quintet - Expresso Martini (3:38)
+03. Martin Liege - Morning Coffee (4:16)
+04. Low Sun Project - Es Vedra (3:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D062D2103086C30CD1709DAFAF6DF1639322A0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874413   (1071924) от 02.06.2026
+
+Michael E - Making Waves (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Chill-out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got To Go (5:46)
+02. Fall In Love with Me (instrumental) (4:03)
+03. My Love Track (4:36)
+04. Don't Say (4:52)(   Читать дальше...   )Жанр: Balearic, Downtempo, Chill-outПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F2CE98B76B94EEA7F6697D1D1045004EC8A3B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873989   (1071795) от 31.05.2026
+
+VA - Ibiza Summer 2026 (Chill Out Cookies from the Heart) (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071795.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Calmabohain - Golden Ghost (3:33)
+2. Five Seasons - Love Song (2:52)
+3. Weathertunes - Rising Sun (3:01)
+4. Steen Thottrup - Seeking Theta, Pt. 2 (Instrumental Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA078EDF0F3F1B060FB799A59BC87DBB6D762B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871759   (1069951) от 18.05.2026
 
 VA - Chill Vibes Only (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
@@ -28,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871958   (1069810) от 
+###  Публикация: 1871958   (1069810) от 19.05.2026
 
 VA - Ocean Terrace: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
@@ -57,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871964   (1069805) от 
+###  Публикация: 1871964   (1069805) от 19.05.2026
 
 VA - Ibiza Spring 2026 (Lounge Cocktails from the Heart) (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
@@ -86,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870149   (1068693) от 
+###  Публикация: 1870149   (1068693) от 10.05.2026
 
 VA - Lemongrassmusic Episode 500 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
@@ -115,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870220   (1068642) от 
+###  Публикация: 1870220   (1068642) от 10.05.2026
 
 VA - Morning Coastline: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
@@ -659,93 +746,6 @@ VA - Daydream Chillout Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57740D06D16226BF5C8740A4F7078102467457DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855939   (1058333) от 25.02.2026
-
-VA - After Hours Chill & Unwind (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Sura Quintet - Costa Vibes (03:44)
- 02 - Lusser - Small Glimpses (03:43)
- 03 - Wohltat - Out & About (04:10)
- 04 - Silex Soils - In the Conventional Sense (04:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3313AD63C4C2D7FAA85A3146335E5B0877D6EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855023   (1057879) от 21.02.2026
-
-VA - Soft Horizons: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harrison & Daicz - La Niebla De Las Cíes (5:17)
-02. Peter Pearson - Serenity (7:22)
-03. Marc Hartman - Bright Like the Night (4:58)
-04. SeaStar - Cala Morisca (3:26)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51750B6DD53EE964E5D1B3FC0BA88D52074FA8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855126   (1057844) от 21.02.2026
-
-VA - The Orient Collective: Whispers of the Ancients (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Bedouin (6:49)
-02. Patrick Medina - Singing Bowls (7:09)
-03. Marga Sol - Artefact (5:08)
-04. Mikhail Catan - Away (7:23)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B2C1E30A3529D4A1483B52BABBEF9122C7B4D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

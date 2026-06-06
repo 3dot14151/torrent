@@ -1,3 +1,32 @@
+###  Публикация: 1259967   (316589) от 05.11.2018
+
+Wuauquikuna - XI Magic Of The Andes (2018) [MP3|320 Kbps] <Native american, Ethnic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Sky (03:39)
+02. Lakota Lullaby (05:52)
+03. Before Dawn (05:24)
+04. Sanjuan Wayanay (04:28)(   Читать дальше...   )Жанр: Native american, Ethnic, WorldПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28B3B077F85FE63E4EE42BA55CB1D0E929EAA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 265016   (315727) от 01.12.2010
 
 VA - Ocean Music Love. Best Relax And Sex Music (2010) [MP3|128-256 kbps]<Relax>
@@ -581,6 +610,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079573   (293757) от 04.12.2016
+
+Jean-Michel Jarre - Oxygene Trilogy (2016) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_293757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene, Pt. 14 (5:28)
+02. Oxygene, Pt. 15 (6:40)
+03. Oxygene, Pt. 16 (6:50)
+04. Oxygene, Pt. 17 (4:20)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0986CBD187606AD378E4315DCE9BEF6D56AAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962515   (293513) от 05.12.2015
 
 VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
@@ -690,64 +748,6 @@ Andreas - Magickal Nights (2011) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582700377E6BFDFF8770A0E90D5F15785B6FC57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262473   (291079) от 17.11.2018
-
-Jean-Michel Jarre - Equinoxe Infinity (2018) [MP3|320 Kbps] <Ambient, New-Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The watchers (Movement 1)
-02. Flying totems (Movement 2)
-03. Robots don’t cry (Movement 3)
-04. All that you leave behind (Movement 4)(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 01:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609C92AB7C8FA956312A47FE860A33E09B633CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185646   (291022) от 22.11.2017
-
-Gregorian - The Platinum Collection (2017) [MP3|320 Kbps] <New Age, Medieval, Other>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brothers In Arms 05:56
-02. Scarborough Fair 04:51
-03. When A Man Loves A Woman 04:53
-04. Nothing Else Matters 06:15(   Читать дальше...   )Жанр: New Age, Medieval, OtherПродолжительность: 02:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13613067A48BB9ACB58DCBCBA1CDEA88A1F7887
 ```
 
 https://mybot314.ru/tekegram_catalog/

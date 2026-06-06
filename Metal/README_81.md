@@ -1,3 +1,190 @@
+###  Публикация: 960285   (310206) от 27.11.2015
+
+Skylark - The Storm & The Horizon (2015) 4CD, Deluxe Edition, Extended Version [MP3|320 кб/с]<Melodic/Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes
+02. The Kiss That Never Happened
+03. Crystal Lake
+04. Just One Word (To Fall in Love)(   Читать дальше...   )Жанр: Melodic / Symphonic Power Metal |Продолжительность: 05:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A19BF9F5BB9E609A87E420E14582CBBDB8262F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260731   (309842) от 08.11.2018
+
+All That Remains - Victim of the New Disease (2018) [MP3|320 Kbps] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuck Love
+02. Everything's Wrong
+03. Blood I Spill
+04. Wasteland(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA86C49BBAE5BF8D2ECD581702741944DA854D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647375   (308872) от 29.11.2014
+
+Mors Principium Est - 5 albums (2003-2014) [MP3|320kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic Death Metal |Продолжительность: 00:50:45
+01  Enter The Asylum                     1:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A538017FE4E533E7AD9FEEF5ACFB4332B17EDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583502   (308270) от 04.12.2012
+
+Mago De Oz - Hechizos, Pocimas Y Brujeria (2012) [MP3|320 кб/с]<Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Libro De Las Sombras (05:30)
+02. H2Oz (03:53)
+03. Xanandra (04:23)
+04. Sacale Brillo A Una Pena (04:12)
+05. Satanael (05:40)
+06. No Pares (De Oir Rock & Roll) (05:51)
+07. A Marcha Das Meigas (01:43)
+08. Quiero Morirme En Ti (04:19)
+09. Sigue La Luz (05:20)
+10. El Mercado De Las Brujas (04:23)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFA0EFD19133745E7E94A337399D290B8D6EF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583810   (307990) от 04.12.2012
+
+Saturnus - Saturn In Ascension (2012) [MP3|320 кб/с]<Melodic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Litany Of Rain
+02. Wind Torn
+03. A Lonely Passage (feat. Laurie Ann Haus)
+04. A Fathers Providence
+05. Mourning Sun
+06. Call Of The Raven Moon
+07. Forest Of Insomnia
+08. Between
+09. Limbs Of Crystal Clear (Bonus Track)Жанр: Melodic Death, Doom MetalПродолжительность: 01:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F573538033CA995B7C9AAB193ABE805D54F31361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581866   (307843) от 04.12.2012
+
+Gorgoroth - Дискография (13 альбомов) (1993-2011) [MP3|192-320]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_307843.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Revelation of Doom 03:00
+2. Krig 02:35
+3. Funeral Procession 02:59
+4. Profetens Еpenbaring 04:26
+5. Шdeleggelse og Undergang 04:15
+6. Blood Stains the Circle 02:42
+7. The Rite of Infernal Invocation 03:16
+8. The Devil Is Calling 03:01Жанр: Black MetalПродолжительность: 00:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0FCA1085F989EE8B7AD3BC339EA8D652A7A896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260911   (307699) от 09.11.2018
 
 Decembre Noir - Autumn Kings (2018) [MP3|320 Kbps] <Doom-Death Metal>
@@ -580,186 +767,6 @@ Death Dealer - Conquered Lands (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA4DBAF6D3020FB9389BDF77EFD853E9CBB77338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423305   (302102) от 12.11.2020
-
-Doro - Magic Diamonds: Best of Rock, Ballads & Rare Treasures (2020) 3xCD [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302102.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Best Of Rock:
- 01. All We Are ('The Fight‘ Version) (03:01)
- 02. Thunderspell (04:39)
- 03. Burn It Up (02:46)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 03:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECE0EFE47C30FC4F2D5961C972CA89026364842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184417   (301496) от 17.11.2017
-
-Distillator - Summoning The Malicious (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blinded by Chauvinism
-02. Mechanized Existence
-03. Estates of the Realm
-04. Summoning the Malicious(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C9A3748E3081ABE2FC5ABBDECCEC0868D00E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333651   (301461) от 26.10.2019
-
-Fit For An Autopsy - The Sea of Tragic Beasts (2019) [MP3|320 Kbps] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sea of Tragic Beasts
-02. No Man Is Without Fear
-03. Shepherd
-04. Your Pain Is Mine(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8BED67D9B11905A96162DAA4AA6C35AD6B48DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585342   (300778) от 07.12.2012
-
-Yngwie Malmsteen - Spellbound (2012) [MP3|320 кб/с]<Neoclassical Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spellbound
-02. High Compression Figure
-03. Repent
-04. Let’s Sleeping Dog Lie
-05. Majestic 12 Suite 1,2 & 3
-06. Electric Duet
-07. Nasca Lines
-08. Poisoned Mind
-09. God Of War
-10. Iron Blues(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082752E5F762113DA36E4B1E0799BDDCE8601D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423502   (300467) от 13.11.2020
-
-Smoke And Shadows - Blood And Fire (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in Paradise (04:22)
- 02. Handle It (03:37)
- 03. Spur of the Moment (02:40)
- 04. Liar (04:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D85718C263944418DA87B7D6D5CB430F312469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961730   (299156) от 02.12.2015
-
-Silent Line - Shattered Shores (2015) [MP3|320 кб/с]<MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frost Of The Night
-02. Erosion
-03. Black And White
-04. Shattered Shores, Pt. I: Timeless Night(   Читать дальше...   )Жанр: MDMПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816A773B601B16D1B157FB0CF488F3B54A686418
 ```
 
 https://mybot314.ru/tekegram_catalog/

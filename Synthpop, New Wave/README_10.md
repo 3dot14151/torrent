@@ -1,3 +1,119 @@
+###  Публикация: 1188303   (274635) от 02.12.2017
+
+Eisfabrik - Null Kelvin (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sein Erstes Lied (2:46)
+02. Shadows (4:12)
+03. Soon Enough (3:29)
+04. The Choice (4:18)(   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37ACDB79111487A3377207D1A11E4B6002A95A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189676   (270276) от 06.12.2017
+
+Nova - 2 Albums (1982, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Space>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270276.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Nova" - электронный музыкальный коллектив, получивший популярность в Европе благодаря предлагаемым альбомам в первой половине 80-х годов. Один их хитов - инструментальная композиция "Аврора" достигла  1-го места в Голландском Топ 40 в 1982 году.01. Aurora (3:44)
+02. Arrive (5:42)
+03. Xenos (5:14)
+04. Horizon (3:55)(   Читать дальше...   )Жанр: Electronic, Synth-pop, SpaceПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB25C962BB721C2E96F37B17CF328A0B91086024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266709   (269175) от 03.12.2018
+
+Mi-Sex - 5 Studio Albums (1979-2016) Collection [MP3|320 Kbps] <New Wave, Pop Rock, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ново-зеландская группа новой волны, возглавляемая Стивом Гилпиноном (вокал). Так же в состав вошли Кевин Стэнтон как гитарист и автор песен и Дон Мартин как басист. Популярность получили у себя на родине и в Австралии благодаря таким хитам как "Computer Games", "People". Их первые два альбома достигли в Новой Зеландии топ-10: "Graffiti Crimes" (   Читать дальше...   )Список альбомов:
+1979 - Graffiti Crimes
+1980 - Space Race
+1981 - Shanghaied(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-popПродолжительность: 03:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC9D3BD6740E99A7E05526CF7BD9C1003419B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266739   (268389) от 04.12.2018
+
+W O L F C L U B - W O L F C L U B (2017) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strangers Forever (feat. Kieran Scragg) (3:31)
+02. Driving Through the Night to You (feat. Indigo) (2:40)
+03. Nightwave (feat. Indigo) (3:15)
+04. Never Stop (feat. Indigo) (3:37)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54EBC42FF54422A499BE0E08F624A68FF87C09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266741   (268387) от 04.12.2018
 
 W O L F C L U B - Chasing The Storm (2018) [MP3|320 Kbps] <Synthpop, New Wave>
@@ -629,122 +745,6 @@ Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1970076C51EDB58ACDAA187A591EAB50F82C14A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648561   (231067) от 23.07.2023
-
-Landscape - Landscape a Go-Go (The Story of Landscape 1977-83) (2023) 5CD, Remaster [MP3|320 Kbps] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Excursions 2 Other Versions
-01. Einstein a Go-Go (Einstein on the Floor 2023 Remix) [00:02:34]
-02. One Rule for the Rich (UK Cassette Album Mix) [00:04:17]
-03. Japan (12-Inch Version) [00:05:07](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 05:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE32FBB761D9362EEAB4A64DEBF3CF66872FFE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649782   (228540) от 29.07.2023
-
-Brian Hamilton - Metro Man (1984) LP [MP3|320 Kbps] <Rock, New Wave, Lo-Fi, Electro>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Metro (Metro Man) (5:35)
-02. I Can't Stand It (2:55)
-03. Pleasurepain (3:47)
-04. Space Dancing (4:31)(   Читать дальше...   )Жанр: Rock, New Wave, Lo-Fi, ElectroПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED239190475CB134DC124439FBA534BD937657B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342077   (227221) от 30.11.2019
-
-Harry Thumann - Andromeda (1982) LP [MP3|320 Kbps] <Electronic, Rock, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda (7:50)
-02. I'm Happy To Be In The Sun (5:32)
-03. Out Of Tune , Welcome Back, Jolette (7:28)
-04. Bitch (3:38)(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842578BB8B8146B5766DA4A3924198321AB9C4B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513166   (227212) от 27.11.2021
-
-VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Moroder - Chase (3:51)
-02. U2 - New Year's Day (3:57)
-03. Vangelis - Pulstar (3:51)
-04. Alan Parsons - Mammagamma (4:30)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B966DE0A8FE6C976B444A7162B680857A9012E
 ```
 
 https://mybot314.ru/tekegram_catalog/

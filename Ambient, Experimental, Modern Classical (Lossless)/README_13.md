@@ -1,3 +1,88 @@
+###  Публикация: 1405198   (485619) от 29.08.2020
+
+matt coldrick - Music* For A Busy Head Vol 2 (2020) Pan Electric [FLAC|Lossless|WEB-DL|tracks] <Ambient, World Music>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cloud Plateaux (13:25)
+ 02. A rhythm in the seas of Titan (08:34)
+ 03. The Alchemist's prayer (11:16)
+ 04. Surrender Ananda (08:59)(   Читать дальше...   )Жанр: Ambient, World MusicПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE94849B25D944E02D7D3B47D28AD9E075127B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244655   (480236) от 02.09.2018
+
+Yamaneko - Afterglow (2018) Local Action [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (04:58)
+ 02. Second Encounter (04:47)
+ 03. Oslo House Sunrise 4K (02:46)
+ 04. Unreachable Feeling (05:03)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6077DAF00B760D6E98905F1829A0E7E4FDFBBCCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323638   (477023) от 02.09.2020
+
+Ryoji Ikeda (池田亮司) - Discography 18 Releases (1995-2018) Raster-Noton, Touch, CCI Recordings [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Minimal, Glit ...
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staring Writing Cooking Sleeping Listening (48:26)
+ 02. Tearing Polaroiding Masturbating Dancing Pissing (42:15)Тип издания: CD, WebЖанр: Experimental, Ambient, Minimal, Glitch, Sound Collage •Продолжительность: 17:08:25 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F549B606D53C225F858A65473D21EB391432FE14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280027   (474782) от 03.09.2020
 
 Forrest Fang | Sans Serif - Discography 18 Releases (1982-2020) Ominous Thud, Projekt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Tribal, Minimal, Experimental, Drone>
@@ -651,90 +736,6 @@ VA - ... And Darkness Came (2012) Headphone Commute [FLAC|Lossless|WEB-DL]<Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C74E2B36FEE2A5EAE523A1B6ED4B935F6FC53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250602   (424747) от 28.09.2018
-
-The Future Sound Of London - From The Archives Vol. 9 (2018) FSOL Digital [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocea (06:38)
- 02. Semi Conscious Participant (02:27)
- 03. Silent Midnight (04:12)
- 04. Halfer (04:34)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABBF784E46F383154D395CC66D91EEBDEFAD8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412251   (420778) от 28.09.2020
-
-Drottning Omma - Jag har alltid alskat svaghet (2020) offworldcolonies ltd. [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blod/Tunga (April/Maj) (06:02)
-02. iris_2 (Jag kommer alltid tillbaka) (03:37)
-03. Större än vi kunde förmå att förstå (04:01)
-04. Under valv vi inte valt (03:52)(   Читать дальше...   )Жанр: Experimental, Ambient, TechnoПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27CEF769A5974FD314F1BC2AC49228DF8E659D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138492   (420149) от 28.09.2020
-
-Frore - Discography 12 Releases (2009-2018) Relaxed Machinery, Spotted Peccary, earthMantra [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, Experimental, World, Dark Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Void Peripheral (57:26)Тип издания: WEBЖанр: Ambient, Tribal, Experimental, World, Dark Ambient, Drone •Продолжительность: 11:25:27 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86CCDE50E5878EC87EDDD336BD9C5B027B8CF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

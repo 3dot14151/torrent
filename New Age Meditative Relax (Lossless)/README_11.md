@@ -1,3 +1,32 @@
+###  Публикация: 1018812   (752259) от 22.05.2016
+
+Kory Caudill - Tree of Life (2015) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginnings    06:26
+02. Around the World    05:32
+03. Walz of Life    04:37
+04. Time    05:28(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF79874C8CF5CD57F74DCED9F0E6F2E491F029F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523038   (751547) от 11.01.2022
 
 Deuter - Eternity (2009) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -711,35 +740,6 @@ Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A64561BE10B804F3D32B99446BAB195CCE861967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024032   (720546) от 07.06.2016
-
-Isaac Shepard - Mosaic (2015) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad Romantic [00:04:38]
-02. Forest [00:04:26]
-03. Letting Go [00:02:57]
-04. Hope [00:03:57](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFFBDBDF77AA83D94D4F978D0C3E5C87E6845BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

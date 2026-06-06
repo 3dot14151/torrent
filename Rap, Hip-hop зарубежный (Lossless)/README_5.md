@@ -1,3 +1,32 @@
+###  Публикация: 1764705   (101506) от 08.12.2024
+
+Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden (1:08)
+02. Blacklight (3:51)
+03. Love Me, Love Me Not (feat. Skyzoo) (4:37)
+04. No Monsters (3:39)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B952FF9B47092ABFAD57175D81A7A9383CD99749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764703   (101505) от 08.12.2024
 
 Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
@@ -723,35 +752,6 @@ VA - Chillhop Essentials Fall (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75981BA15BEFD238B2F8E630A763942D4D3ACBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761708   (36559) от 21.11.2024
-
-Black Sheep - A Wolf in Sheep’s Clothing (1991) [FLAC|Lossless|tracks + .cue] <Hip Hop, Boom Bap, Jazzy Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:50)
-02. U Mean I’m Not (1:25)
-03. Butt in the Meantime (4:14)
-04. Have U.N.E. Pull (3:51)(   Читать дальше...   )Жанр: Hip Hop, Boom Bap, Jazzy Hip-HopПродолжительность: 01:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C344AE3F72C1FC515333AAE4128A26A815C103A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

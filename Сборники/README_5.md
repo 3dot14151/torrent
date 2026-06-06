@@ -1,3 +1,55 @@
+###  Публикация: 1807934   (10765) от 21.07.2025
+
+Сборники - Own3D - Rodan Stream Overlay Template Package [WEBM, PSD, PNG, JPG, WAV, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет шаблонов, оверлеев и звуков для стримеров.Формат: WEBM, PSD, PNG, JPG, WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E710A343C5F9303ED930D3D5C0ED0CFD657344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809141   (10080) от 28.07.2025
+
+Сборники - MediaMonopoly - EDITING EMPEROR ULTIMATE BUNDLE!! [PSD, PRPROJ, AEX, PRFPSET, CUBE, WAV, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник для видеомонтажа от MediaMonopoly включающий в себя разные пресеты, переходы, эффекты и звуки.Формат: PSD, PRPROJ, AEX, PRFPSET, CUBE, WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B16856349ACF522A385DFC4EDBB9B78319C6D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809145   (10068) от 28.07.2025
 
 Сборники - Envato - Light Effects Photoshop Brushes - 6SVAU7K [ABR, PNG]

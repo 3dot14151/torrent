@@ -1,3 +1,87 @@
+###  Публикация: 1250602   (424747) от 28.09.2018
+
+The Future Sound Of London - From The Archives Vol. 9 (2018) FSOL Digital [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocea (06:38)
+ 02. Semi Conscious Participant (02:27)
+ 03. Silent Midnight (04:12)
+ 04. Halfer (04:34)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABBF784E46F383154D395CC66D91EEBDEFAD8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412251   (420778) от 28.09.2020
+
+Drottning Omma - Jag har alltid alskat svaghet (2020) offworldcolonies ltd. [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blod/Tunga (April/Maj) (06:02)
+02. iris_2 (Jag kommer alltid tillbaka) (03:37)
+03. Större än vi kunde förmå att förstå (04:01)
+04. Under valv vi inte valt (03:52)(   Читать дальше...   )Жанр: Experimental, Ambient, TechnoПродолжительность: 00:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27CEF769A5974FD314F1BC2AC49228DF8E659D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138492   (420149) от 28.09.2020
+
+Frore - Discography 12 Releases (2009-2018) Relaxed Machinery, Spotted Peccary, earthMantra [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, Experimental, World, Dark Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Void Peripheral (57:26)Тип издания: WEBЖанр: Ambient, Tribal, Experimental, World, Dark Ambient, Drone •Продолжительность: 11:25:27 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86CCDE50E5878EC87EDDD336BD9C5B027B8CF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753281   (415380) от 30.09.2020
 
 Tom Day - Discography 38 releases (2011-2020) [FLAC|Lossless|WEB-DL]<Ambient, Modern Classical, Downtempo, House, Broken Beat>
@@ -646,93 +730,6 @@ Federico Mosconi - Il Tempo Della Nostra Estate (2020) Slowcraft Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34AD52C6439DEBA6795CBAA699EC2839E0CC1715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414441   (385622) от 08.10.2020
-
-VA - The Sacred Rage (2020) Morphine Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Contemporary, Techno, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Kameel Farah and Thomas Brinkmann - Sans Titre (06:40)
- 02. "A" trio - Over (07:06)
- 03. Monolake - Beirut (07:53)
- 04. Irena and Vojtech Havlovi - Radek 2 (06:13)(   Читать дальше...   )Жанр: Experimental, Contemporary, Techno, AmbientПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B9A8590666C2B96F2F5C6441C7663424920B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414222   (385621) от 08.10.2020
-
-Tomas Senkyrik - Fond (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electrocoustic, Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hana 04:56
-2. Eugen 06:46
-3. Fond 11:28
-4. Tata 04:14Жанр: Ambient, Electrocoustic, Field RecordingПродолжительность: 00:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18ABD62DB079FDEC45E09A0A4A067E80467E7BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414455   (385617) от 08.10.2020
-
-Sciama - Illusion of Separation (2020) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385617.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Selui	8:37
-2	Unfolding Self	8:00
-3	Somnium	5:12
-4	Illusion Of Separation	6:40(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092613C8B3B39FD72C68E8F5FFFBE79EF9FE4EFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

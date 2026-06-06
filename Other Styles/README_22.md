@@ -1,3 +1,351 @@
+###  Публикация: 1093767   (932365) от 16.01.2017
+
+Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fridrik Karlsson - Island er land pitt [00:05:38]
+02. Johanna Vigdis Arnardottir - Vegir liggja til allra atta [00:04:08]
+03. Johanna Vigdis Arnardottir - Vikivaki [00:03:35]
+04. Fridrik Karlsson - Kvoldsigling [00:03:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C48194E7A56289308470DAC562CD527B46AE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986126   (932310) от 13.02.2016
+
+Arne Woutersax - Beautiful Singles (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Sax, Nu Disco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это захватывающее музыкальное путешествие, наполненное особенным настроением ярких городов мира, чувственным звучанием саксофона и респектабельными тембрами раритетных аналоговых синтезаторов. Работа над альбомом велась под руководством московского nu-disco продюсера, специалиста по классическим аналоговым синтезаторам Александра Боброва при участии российского саксофониста (   Читать дальше...   )01. Theme Of San Remo
+02. Theme Of Monaco
+03. Theme Of Verona
+04. Theme Of Barcelona(   Читать дальше...   )Жанр: Instrumental, Sax, Nu DiscoПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D042C4BAB9FE9C2FFC263FA548E0E5C27CDAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093851   (932102) от 16.01.2017
+
+Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World Music>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds blows over the hill [6:30]
+02. Floating lotus [5:29]
+03. Daichi [6:10]
+04. Silence [6:13](   Читать дальше...   )Жанр: New Age, World MusicПродолжительность: 03:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8666226FEE0172DA7793CF7DC3FA19184084673A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364755   (931971) от 06.03.2020
+
+Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sioux
+02. South America's Dream
+03. Toro Seduto
+04. Terra del fuoco(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D40885C0E2DE8E1F3BA8A1D53F1BD3A994B14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986480   (931011) от 14.02.2016
+
+MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run
+02. Baanwarey
+03. Nadia
+04. Rushing(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C04094EAAEAB9A053EA5C3609F68B06931A1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986672   (931010) от 14.02.2016
+
+Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] <New Age, World, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dijieridoo
+02. Non e semplice
+03. La voce del vento
+04. Tundu(   Читать дальше...   )Жанр: New Age, World, EthnicПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966B815154842A769D874AA8FBFAA525CF80414B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986634   (931000) от 14.02.2016
+
+John Adorney - The Essential John Adorney (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Potter's Gift
+02. Yilowe
+03. Even in Your Darkest Hour
+04. Dance of the Moon and Stars(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7819CB8D95A44340A82D2162DBBE59529C4F73DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986467   (930938) от 14.02.2016
+
+Oliver Scheffner - Sunlight Dreams (2015) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Sunshine
+02. Dreams Of Sunbeams
+03. Sunlights On The Calm Lake
+04. Sundown Magic(   Читать дальше...   )Жанр: New Age, ChilloutПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6923982CCA5C05F2C191F700CD3F9FA14C330611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365567   (930679) от 07.03.2020
+
+a noend of mine - Green Sketches (2017) EP [FLAC|Lossless|Web-DL|tracks] <Instrumental, Ambient, Acoustic, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viridian (7:06)
+02. Emerald (4:40)
+03. Ao (3:42)
+04. Midnight Green (5:32)Жанр: Instrumental, Ambient, Acoustic, Piano, Progressive RockПродолжительность: 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3365334683CC04475EBA5268A4B2BDEBC16030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364916   (930399) от 07.03.2020
+
+VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nox, Krys Mach - Ancestral Circle
+02. Nox, Krys Mach - Navajo Pride
+03. Nox - Too Many Things to See
+04. Nox - Ancestral Circle(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2357563A425093B0D5C24C89C29292F2AAD55FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094421   (929378) от 18.01.2017
+
+Kathryn Kaye - Reflected in a Flowing Stream (207) [MP3|320 Kbps] <Celtic New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  A Lark in the Last Light of Day [00:04:46]
+02 -  As Seasons Change [00:04:19]
+03 -  Procession of Moon and Stars [00:05:42]
+04 -  The Stillness Before Dawn [00:05:42](   Читать дальше...   )Жанр: Celtic New AgeПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDBD563BD8B24A2E44BDABF941FDE2C6F2A4124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986657   (929076) от 15.02.2016
+
+Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, Meditative, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aas Guray Nameh (Mangalacharan Mantra)  07:55
+02. Gobindah, Gobindah, Gobindah, Haray, Haray  11:06
+03. Waah Yantee  11:04
+04. Guru Ram Das Miracle Mantra  11:06(   Читать дальше...   )Жанр: New Age, Meditative, WorldПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094237   (929052) от 18.01.2017
 
 Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
@@ -403,354 +751,6 @@ Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [FLAC|Lossless|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D2B9195F1948D59401D85FA74E48B08AD312119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366290   (923562) от 11.03.2020
-
-Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soundtrack, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:12| 01. Neon Drive
-|04:13| 02. Prototype
-|03:17| 03. Netrunner
-|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B23881A7F868FC8FD80B78F8F637034DA6160EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987488   (922789) от 19.02.2016
-
-African Head Charge - Songs Of Praise (1990) [MP3|320 кб/с] <Reggae, Dub>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free chant (Churchical chant of the Iyabinghi)  03:34
-02. Orderliness, godliness, discipline and dignity  03:20
-03. Hymn  05:43
-04. Dervish chant  07:45(   Читать дальше...   )Жанр: Reggae, DubПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4641D8E68F7D1ACD785CBEFBB2937F9DAE2F1B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987845   (922733) от 19.02.2016
-
-Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uptown (03:58)
-02. Clouds of Linen (03:57)
-03. Panorama (04:18)
-04. Peyote (04:34)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640E117891F9AE17A709BEA750120CEFABF78BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988055   (922637) от 19.02.2016
-
-Nick Ingman & Prague Philarmonia - Classic Love At The Movies (1999) S&V #10/2000 [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On (Titanic) (3:28)
-02. I Will Always Love You (The Bodyguard) (3:26)
-03. Love Theme (Romeo & Juliet) (3:20)
-04. We Have All TheTime InThe World (On Her Majesty's Secret Service) (3:21)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72ACE64C3A297EF60A8B093AAF98DEE651F986A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366524   (922336) от 12.03.2020
-
-Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922336.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:07| 01. In Serbia
-|02:35| 02. The Rematch
-|03:34| 03. The Interview
-|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3455CF0C7DE2BDEEB1181AFE36876CF7B358AD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366463   (922335) от 12.03.2020
-
-Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922335.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:22| 01. Hay
-|01:29| 02. Dead Reith
-|01:29| 03. Life's Rich Tapestry
-|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3990566FAD3BE209A28410F9922F1DE888DAC99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366525   (922331) от 12.03.2020
-
-Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922331.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:07| 01. In Serbia
-|02:35| 02. The Rematch
-|03:34| 03. The Interview
-|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2030577BCFA0D52E0A3D609F3A01D3268CEAA4F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366603   (922250) от 12.03.2020
-
-Voidoid - The Greatest Movie Anthems of All Time (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922250.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:18| 01. Aquaman
-|02:34| 02. Ant-Man and the Wasp
-|01:31| 03. Deadpool 2
-|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA089D2277BE7815CA22BB2F76215634D5C6722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366462   (922247) от 12.03.2020
-
-Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922247.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:22| 01. Hay
-|01:29| 02. Dead Reith
-|01:29| 03. Life's Rich Tapestry
-|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CC71626731D16294E0251C88E73903A64DA81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366609   (922242) от 12.03.2020
-
-Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922242.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:42| 01. Cobolt
-|04:28| 02. Escape
-|03:37| 03. He's Gone
-|02:19| 04. This Is What He Does(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2886131B078C56912139153582BBE1D9AF109798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366623   (922236) от 12.03.2020
-
-Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922236.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:54| 01. Интро
-|01:33| 02. Лаборатория ВКС
-|00:55| 03. Эксцесс в лаборатории
-|00:40| 04. Папа беги(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D443E8F13FDC5A330878B497B07E4816E666FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366602   (922234) от 12.03.2020
-
-Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922234.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:18| 01. Aquaman
-|02:34| 02. Ant-Man and the Wasp
-|01:31| 03. Deadpool 2
-|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F63F9ADFA0404E980F5FDEE1B0D348E630C4344
 ```
 
 https://mybot314.ru/tekegram_catalog/

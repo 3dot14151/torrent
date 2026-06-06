@@ -1,3 +1,61 @@
+###  Публикация: 1090096   (947217) от 06.01.2017
+
+Enrico Caruso / Энрико Карузо - Caruso Starportrait (1993) Nota Blu [FLAC|Lossless|image + .cue] <Вокал>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энрико Карузо стал одним из первых оперных исполнителей на мировой сцене, решившихся фиксировать свой репертуар на граммофонных пластинках. В значительной мере именно это обстоятельство предопределило мировую популярность тенора, и сделало его творчество доступным для широких масс. Уже при жизни Энрико Карузо называли легендой вокального искусства. Образцом для подражания (   Читать дальше...   )01.Rossini - La danza · Tarantella Napoletana (1912) (3:12)
+02.Geehl - For you alone (1910) (2:15)
+03.Puccini - Manon Lescaut · Donna non vidi mai (1913) (2:49)
+04.Verdi - La forza del destino · Solenne in quest' ora (1906) (4:15)(   Читать дальше...   )Жанр: ВокалПродолжительность: 01:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C402234A52F973E872CFF5F1DA801E64A7FD9F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090830   (945700) от 07.01.2017
+
+Erik Satie performed by Pascal Rogé - 3 Gymnopédies & Other Piano Works (1984) [FLAC|Lossless|tracks+.cue] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gymnopedie No. 1 (03:11)
+02. Gymnopedie No. 2 (02:33)
+03. Gymnopedie No. 3 (02:36)
+04. Je Te Veux (05:14)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A9407E2B376920E5EC95328694855A1FC2FCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 625310   (945651) от 04.03.2013
 
 W.A. Mozart - Missae Breves k.49, 65, 194 & 220: Nikolaus Harnoncourt, Concentus Musicus Wien & Arnold Schoenberg Chor (1998) [FLAC|Lossless]<Classical>
@@ -690,64 +748,6 @@ Alexis Ffrench - Dreamland (2020) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B44AAEE4B20C2A7F650EB48F2A819B8418F725DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990928   (907905) от 27.02.2016
-
-Vivaldi - II Pomo d'Oro, Riccardo Minasi, Dmitry Sinkovsky - Concerti Per Due Violini E Archi I (2013) [FLAC|Lossless|tracks] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto RV 523 in A Minor I.Allegro molto  03:53
-02. Concerto RV 523 in A Minor II.Largo  02:51
-03. Concerto RV 523 in A Minor III.Allegro  02:52
-04. Concerto RV 510 in C Minor I.Allegro  02:38(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72952E88035ABB71C34E467094FA0272755232C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991291   (905898) от 28.02.2016
-
-Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto RV 383a - I. Allegro  02:42
-02. Concerto RV 383a - II. Largo e cantabile  01:56
-03. Concerto RV 383a - III. Allegro  02:36
-04. Concerto RV 279 - I. Allegro  04:14(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97374CAB3E32E3A495B37E30B0AF3C7919B0895F
 ```
 
 https://mybot314.ru/tekegram_catalog/

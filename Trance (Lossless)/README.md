@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874926   (1072200) от 
+
+VA - Suanda Ibiza 2026 [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Lost & Found (3:11)
+02. JOSEPH JAMES (IRL) - The Universe (3:49)
+03. Roman Messer - Unite (Sergey Salekhov Remix) (3:16)
+04. ThoBa - Your Love (Alex M.O.R.P.H. Remix) (3:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71068BB53B5732C94EB3676CDCD8197B90654577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868884   (1067882) от 03.05.2026
 
 VA - The Best Of Dream Dance (2006) 2 x CD, Compilation [FLAC|Lossless|tracks] <Trance>
@@ -713,35 +742,6 @@ VA - Planet Dream Vol. 1 (1998) 2CD [FLAC|Lossless|tracks + .cue] <Trance, Euro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB85632D628AD834E982566706C188C0C1A63759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358657   (967312) от 09.02.2020
-
-VA - Euphonic 300 (Compiled and mixed by Kyau & Albert) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyau & Albert - So True (Original Mix) 03:50
-02. Aldous - Control (Original Mix) 03:31
-03. Kyau & Albert - Meteorite (Em Kole Remix) 04:29
-04. Francesco Sambero - Chekaty (Original Mix) 03:30(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC15B5BCBD96114FE8DB402038C28807B5EEB7AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

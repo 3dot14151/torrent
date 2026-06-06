@@ -1,3 +1,67 @@
+###  Публикация: 507718   (679256) от 10.06.2012
+
+Alirio Diaz - Four centuries of the Spanish Guitar 2CD (1992) [FLAC|Lossless]<Classical, Instrumental>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Granados - La maja de Goya
+02. De Falla - Homenaje
+03. Malats - Serenata Espagnola
+04. Segovia - Etude
+05. Turina - Fandanguillo
+06. Moreno Torroba - Sonatina
+07. Sainz de la Maza - Campanas del Alba
+08. Sainz de la Maza - El Vita
+09. Sainz de la Maza - Habanera
+10. Sainz de la Maza - Boeeto Andaluz(   Читать дальше...   )1992Жанр: Classical, InstrumentalПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFAEBA24AEA8B9EF61AAFC46F64A4CDF9831DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222829   (679182) от 02.05.2018
+
+The New London Chorale - The Young Verdi (1988) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679182.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Wings Of Gold
+2.	Standing By
+3.	I Walk On By
+4.	Is This Called By(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BBD8B78F21A1C75592143588860E104BF26B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290233   (678161) от 20.03.2019
 
 Staatskapelle Berlin - Brahms: Symphonies (2018) [MP3|320 Kbps] <Classical>
@@ -693,76 +757,6 @@ Louis Spohr - Double Quartets: St.Martin-in-the-Fields Chamber Ensemble (1998) 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C773C88EBC291296164289326B653E2DFF977CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514832   (656937) от 25.06.2012
-
-Franz Ignaz Beck - Symphonies: Nicolas Ward & Northern Chamber Orchestra (1996) [FLAC|Lossless]<Classical, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony in B flat major, op.12, No.4
-01. Allegro (03:59)
-02. Largo (07:27)
-03. Allegro (01:56)
-
-Sinfonia in D major, Callen 30
-04. Allegro    (04:25)
-05. Andante (03:49)
-06. Minuetto (02:34)
-07. Presto (02:23)(   Читать дальше...   )Жанр: Classical, SymphonyПродолжительность: 58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311F258088C219AD1D02F6D406E2B3AA4C9F0FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514928   (656830) от 25.06.2012
-
-Wolfgang Amadeus Mozart – Divertimenti KV 136-138, 251: The Amsterdam Baroque Orchestra conductor Ton Koopman (1772) Authentic instruments/1990 Erato/FLAC|Lossless<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Divertimento D-dur KV 136 (125a)
-01. 1. Allegro
-02. 2. Andante
-03. 3. Presto
-Divertimento B-dur KV 137 (125b)
-04. 1. Andante
-05. 2. Allegro di molto
-06. 3. Allegro assai
-Divertimento F-dur KV 138 (125c)
-07. 1. Allegro(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DA15278504A728715F98D8732BF86F000DFB8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1149150   (602518) от 09.07.2017
+
+Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Ethno>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aspiration For Awakening (04:31)
+2. Atlantis (04:23)
+3. Myth (04:24)
+4. New Capability (05:10)(   Читать дальше...   )Жанр: New Age, Ambient, EthnoПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8CFF43D0F8CA62D782B56F24FF290A87C9CF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148943   (602487) от 09.07.2017
 
 Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
@@ -462,6 +491,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919904   (581847) от 20.07.2015
+
+Yiruma & Friends - Atmosfera (2015) [FLAC|Lossless|WEB-DL]<New-Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lee Songyi, Choi Eun-Chang & Lee Do Hun - Chaconne [3:55]
+02. Yiruma & HeeKyung Na - I [3:46]
+03. Son Sungjae & Hong Junho - Maybe [3:34]
+04. Yiruma, Ko Sang Ji, Kim Min Seok & Valtinho Anastacio - Yelow room [3:53](   Читать дальше...   )Жанр: New-Age, InstrumentalПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23CD7D5E4E6BF0A5847BC9EB34D9D9325991935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302684   (578004) от 18.05.2019
 
 The Blue-Gold Shore of the Beyond (Лазурно-Золотой Берег Запредельного) - Taranaya Namaha (2009) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative, Ethnic>
@@ -687,64 +745,6 @@ Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2067B101F7C821A390A80C23889646F3F82FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923497   (564488) от 31.07.2015
-
-VA - Simply Chillout (2005) 4CD[FLAC|image+.cue]<Electronic, Ambient, Pop, Rock, Classica>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая проблема была с определением раздела для этого релиза. Все четыре диска хоть и объединены общим названием, но каждый из них в соответствии со своим названием и к классики отнести можно и к музыкальному сопровождению фильмов и к электронной музыке. Но все же все они предназначены для того, чтобы отдых слушающего был полноценным. А ведь перед выходными это (   Читать дальше...   )CD1 - Chilled Beat
-CD2 - Smooth Pop Classics
-CD3 - Film&TV Themes
-CD4 - Classical ChilloutЖанр: Electronic, Ambient, Pop, Rock, ClassicaПродолжительность: 04:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A54CC10C0C8F0D5E4558BCB9B6550CB7A31B8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304483   (563984) от 26.05.2019
-
-Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thankful
-02 Pure Joy
-03 Dark Moon
-04 Triumph(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1F4540FFD130A90827233666B1F51AE188C669
 ```
 
 https://mybot314.ru/tekegram_catalog/

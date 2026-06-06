@@ -1,3 +1,90 @@
+###  Публикация: 1401019   (713323) от 08.08.2020
+
+VA - Future Space House (2020) [MP3|320 Kbps] <House, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713323.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sirius Delta - Stray
+002. Moam - Run With It
+003. Dorian Lay - Level Down
+004. Hdsn - Shake The Ground(   Читать дальше...   )Жанр: House, Electro, ClubПродолжительность: 10:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FB141685BDEE8F802C4B9326BE96B3A20DBEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286387   (713106) от 02.03.2019
+
+VA - Tropical Vibes vol. 7 (2018 - 2019) [MP3|320 Kbps] <Tropical House, Deep House, Soulful House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Goman - Forward To The Sun (Original Mix)
+02. FunFil - Feels (Original Mix)
+03. Kavinsky & Lovefoxxx - Nightcall (DJ VoJo Remix)
+04. Delaise - The Moonlight's Show (DJ VoJo Remix)(   Читать дальше...   )Жанр: Tropical House, Deep House, Soulful House, Nu Disco, Indie Dance, Future BassПродолжительность: 04:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F05D335E0DB20B1B42EA6A2F768936EC11E55C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286352   (713005) от 02.03.2019
+
+VA - Empire Records - Recccord 3 (2019) [MP3|320 Kbps] <Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackbonez - Freaky (Radio Edit)
+02. Alpha Squad - Feel It (Radio Edit)
+03. Maxriven - Moonlight Shadow (Original Mix)
+04. Marko Alonso - Going Down(   Читать дальше...   )Жанр: Future HouseПродолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B6C5D65C5787C2B8E69CF9E28B65D3C3F365DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286406   (712888) от 02.03.2019
 
 VA - Transform Uplifting Melodic Reality: Superwave (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Emotional>
@@ -658,93 +745,6 @@ VA - Daybreak Sessions 2016 By Tomorrowland (2016) [MP3|320 кб/с] <House, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E55517FFE07CC5A0AD94BC294EB6EC2B3896AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219848   (710050) от 16.04.2018
-
-VA - Deep House Ladies Night (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710050.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Agatino Romero feat. Duncan Townsend - All I Wanna Do  (Original Mix)
-002. Zeni N - Moonlight (Original Mix)
-003. Airbas - After Hours  (Petros Odin Nightwalking Remix)
-004. Tough Art, Zukk - Homeless (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811B45DEDC84ACFAC3A2FF0F0DE19F8233525BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219827   (710044) от 16.04.2018
-
-VA - Sweet Mix 2018 Play Now (2018) [MP3|320 Kbps] <Trap, Future Bass, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Paul & DJ Rob ft Mc Hughie Babe - Lords Of The Hardschool (Dirty) (Extended)
-002. Kygo ft OneRepublic - Stranger Things (Clean) (Radio Edit)
-003. MYST - Fire And Ice (Clean) (Radio Edit)
-004. Noize Suppressor - Man On A Mission (Dirty) (Extended)(   Читать дальше...   )Жанр: Trap, Future Bass, ElectroПродолжительность: 06:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C08195AC737B257F329AD316C556CE8CB0B8CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025627   (709931) от 12.06.2016
-
-VA - Bass Killer 6 (2016) [MP3|320 кб/с] <Dubstep, Drum and Bass, Electro House, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sun Empire & State Of Mind — Thug (4:57)
- 02. Borgeous & Rvssian & M.R.I feat. Sean Paul — Ride It (Original Mix) (3:44)
- 03. Breathe Carolina & Shanahan — Stars & Moon (Xilent Remix) (3:46)
- 04. Bro Safari — Snap (Dirty Audio Remix) (2:48)(   Читать дальше...   )Жанр: Dubstep, Drum and Bass, Electro House, TrapПродолжительность: 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D171D5CD9B1576686A823AFEB9B47BB5A254BF52
 ```
 
 https://mybot314.ru/tekegram_catalog/

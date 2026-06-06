@@ -1,3 +1,61 @@
+###  Публикация: 1377620   (851891) от 22.04.2020
+
+Mark Hartman - Synthesizer Classics (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene (3:49)
+02. Hymne (2:40)
+03. Vienna (4:02)
+04. I'll Find My Way Home (3:44)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C135FA967D4C0A3E6C679C265AA4B0B3F2C2BFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377621   (851890) от 22.04.2020
+
+Mark Hartman - Synthesizer Themes (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From Miami Vice (2:23)
+02. Chariots Of Fire (3:42)
+03. Dune (3:49)
+04. Theme From Rainman (3:25)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948EA70AFF9F8A20297D8DCC64C4201A721EF98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377872   (849815) от 23.04.2020
 
 Pet Shop Boys - My Beautiful Laundrette (2020) EP [FLAC|Lossless|tracks + .cue] <Synthpop>
@@ -687,64 +745,6 @@ Aurolab - Anna (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EED296569EBA394E3B8B75FCB062A5AACA2709C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385665   (797161) от 25.05.2020
-
-BELLATRIX - Droids (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Story From Space (5:27)
-02. Vector (5:37)
-03. Glass Heart (8:39)
-04. Abyss (6:51)(   Читать дальше...   )Жанр: Spacesynth, DiscoПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3B1BDD428B72363098A618BD8374C823EBEF71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011479   (796698) от 27.04.2016
-
-Zodiac - Pacific Time (2014) [FLAC|Lossless|image + .cue] <Electronic, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Zodiac (04:11)
-02. Pacific Time (04:31)
-03. Disco In The Province (04:47)
-04. Distant Galaxy (05:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947ABD4B90F40DA9960154239BA304AE569D3CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

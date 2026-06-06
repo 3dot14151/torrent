@@ -1,3 +1,32 @@
+###  Публикация: 1287963   (699634) от 09.03.2019
+
+VA - Sing A New Song (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699634.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bobby Kalphat & The New Establishment - Adis A Wa Wa
+002. Glen Washington - One Day
+003. Mister Bis - Champagne A Flot
+004. Nomad - Celebration(   Читать дальше...   )Жанр: Reggae, Dub Ska, SoulПродолжительность: 09:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AAA32A3BA5695F0428B6A7E577C4CC510974217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288180   (697640) от 10.03.2019
 
 VA - German Top 40 DBC Deutsche Black Charts 08.03.2019 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, R&B>
@@ -710,35 +739,6 @@ VA - Chilled Sexy R&B 2016 - The Ultimate Sexy Rnb Chillout Slow Jams (R and B) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F5003ABDEA37C71E6FC3E99ED6A1D9DBEEA5697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231489   (605158) от 18.06.2018
-
-VA - Flowers Of The Sun (2018) [MP3|320 Kbps] <RnB, Hip-Hop, Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sevdaliza - Hero
-002. Musiq Soulchild - Sobeautiful
-003. Levert - Goes My Mind
-004. The Trp - Dive(   Читать дальше...   )Жанр: RnB, Hip-Hop, RapПродолжительность: 12:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10DD14092E46B9BA0674F70C3BB1675A0C75FAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

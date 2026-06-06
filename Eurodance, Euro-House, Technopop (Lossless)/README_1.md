@@ -1,3 +1,90 @@
+###  Публикация: 983528   (941789) от 07.02.2016
+
+La Bouche - A Moment Of Love (1997) Unofficial Release [FLAC|Lossless|image + .cue] <Euro-House, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	You Won't Forget Me 	04:17
+02. 	Unexpected Lovers 	04:25
+03. 	SOS 	                        03:49
+04. 	A Moment Of Love 	04:25(   Читать дальше...   )Жанр: Euro-House, ElectronicПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7FBC2692AD0F4F9F8C53E2D4F3C8EE1DBDB6BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363669   (940747) от 29.02.2020
+
+Paradisio - The Hottest Summer Tracks (20TH Anniversary Deejays Full Length Versions) (2017) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-01. Bailando (Discoteca Drums Mix) (6:51)
+1-02. Un Clima Ideal (Eurodance Discoteca Mix) (6:25)
+1-03. Samba del Diablo (Extended Fiesta Club Mix) (5:10)
+1-04. El Ritmo Caliente (DJ Extended Club Mix) (6:07)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FF24CC98B3AE1D185627A3FA0A0F2B6530206F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364808   (933410) от 05.03.2020
+
+Alex Christensen & The Berlin Orchestra - Classical 90s Dance 3 (2019) [FLAC|Lossless|tracks + .cue] <Modern Classical, Classical, Eurodance, Trance, Ambient>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy Woman (La-Da-Dee) (feat. Linda Teodosiu) (3:37)
+02. The Sign (feat. Natasha Bedingfield) (2:50)
+03. Everytime We Touch (feat. Maite Kelly) (3:47)
+04. Somebody Dance With Me (feat. Asja Ahatovic & Ski) (3:51)(   Читать дальше...   )Жанр: Modern Classical, Classical, Eurodance, Trance, AmbientПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF79945B3C3E3EE368B09DAA3C059910ED54503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491018   (913632) от 23.08.2021
 
 London Boys - Requiem – The London Boys Story (2021) 5xCD Expanded Box Set [FLAC|Lossless|image + .cue] <Eurodance, Eurobeat>
@@ -656,99 +743,6 @@ Black - Wonderful Life (2013) Expanded Edition, 2CD [FLAC|image + .cue]<Pop, Syn
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027575   (696202) от 19.06.2016
-
-Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synth-pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's in the Blood (4:50)
-02. Getcha Ya Ya (4:34)
-03. She Broke My Heart (In 36 Places) (3:40)
-04. She Said She Loves Me (4:17)(   Читать дальше...   )Жанр: Euro House, Synth-popПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CAD0173D829B4617E249884036B3E5B9D453F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514899   (657845) от 24.06.2012
-
-VA - Different Shades Of Savage (2011) 2CD [APE|Lossless]<Italo-Disco, Synth-pop, Italodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.A.N.G. - Incantations (Vocal) :: 09:42
-02. Joey Moon - Angelica (Original) :: 06:30
-03. Rose - Magic Carillon (Vocal) :: 06:09
-04. Tango - Computerized Love (Original) :: 05:16
-05. Lena - Run To Me (Extended Version) :: 04:53
-06. Frank Raja - Born To Be Alive (Original) :: 06:02
-07. Limit Eccitation - In The Dark (Original) :: 05:12
-08. Wilson Ferguson - I'm Singing Again (Extended Version) :: 05:47
-09. Paula Evans - Ciao (Extended Version) :: 05:10
-10. Savage - So Close (Hijack Remix) :: 05:20(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, ItalodanceФормат: 2xCD, Compilation, RemasteredПродолжительность: 02:10:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226188   (656748) от 19.05.2018
-
-VA - Eurodance Master (Rare & Unreleased tracks from Axel Breitung) (2008) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Hype - Train Of Love (3:53)
-02. Megamorph - Fade To Grey (3:22)
-03. UC Colors - U Got The Rhythm (3:59)
-04. Indiansphere - Spirit Of The Hawk (3:07)(   Читать дальше...   )Жанр: Eurodance, Euro-House, TechnopopПродолжительность: 02:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B39BC89DD2C7EDE3754663EE119DA0B4BB0238
 ```
 
 https://mybot314.ru/tekegram_catalog/

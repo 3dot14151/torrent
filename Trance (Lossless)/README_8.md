@@ -1,3 +1,90 @@
+###  Публикация: 1184209   (303521) от 16.11.2017
+
+VA - The Dark Side Of The Noom (1995) [FLAC|Lossless|tracks] <Acid, Hard Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Clarke - Dark Side Of The Noom Intro (2:53)
+02. Commander Tom - Are Am Eye? (9:15)
+03. Mandala - Evolution (6:52)
+04. Nuclear Hyde - Observer (5:47)(   Читать дальше...   )Жанр: Acid, Hard TranceПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3081BB92372BBD71CC71368FFD77658125B30E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078328   (302103) от 30.11.2016
+
+Robert Miles - Dreamland (Remastered) (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children (Dream Version) (7:10)
+02. Fable (Message Version) (6:27)
+03. Fantasya (5:38)
+04. Landscape (6:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2628D32FBF90FEFC596D07E54B72EF80AB653A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333715   (301438) от 26.10.2019
+
+Robert Nickson - Tellurian (2019) [FLAC|Lossless|tracks + .cue] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arecibo (2:43)
+02. Iridium Flare (5:20)
+03. Feed My Soul (with Thea Riley) (3:41)
+04. California (4:21)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD69412F59E94DFD24D732C5B6AF056F300CE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184471   (301378) от 17.11.2017
 
 VA - Men On The Noom - Labelcompilation #3 (2001) [FLAC|Lossless|tracks] <Trance, Techno, Downtempo>
@@ -653,93 +740,6 @@ Cold Blue - Winter (2019) [FLAC|Lossless|WEB|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA25727DE90BDCBC51B58887D53175B4DA117B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267126   (267720) от 05.12.2018
-
-VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018) [FLAC|Lossless|tracks] <Trance,Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - The Last Dancer (Extended Mix) (vs. Shapov)
-02. Cosmic Gate - Tonight (Allen Watts Extended Mix) (feat. Emma Hewitt)
-03. Richard Durand - The Air I Breathe (Extended Mix)
-04. Shane54 - Return To Love (Cubicore Remix) (feat. Jonathan Mendelsohn)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3669AE69A1A428ADD929ED14C91EDC67B7CA0EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339254   (267013) от 18.11.2019
-
-VA - Magic Island - Music For Balearic People Vol. 9 (Mixed by Roger Shah) (2019) [FLAC|Lossless|image + .cue] <Trance, Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clarks - Cayo Largo (3:27)
-02. Eddie Murray feat. Veronica Moran - Inception (3:25)
-03. Ihab Sameh - Silent Waves (4:12)
-04. Jukebox 80s - Ripped Knees (4:28)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836BDAC09D4F1474EE4EB7520437B00D1921B5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190318   (266990) от 10.12.2017
-
-Markus Schulz & Dakota - The Nine Skies (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Nine Skies Intro (Original Mix)  2:25
-02.  Bravo On The Go (Original Mix)  2:43
-03.  Follow Me (Original Mix)  2:45
-04.  Mota - Mota (feat. Koen Groeneveld) (Original Mix)  3:26(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91AAB0494076A8BBAADE610625FD214A59A7F65
 ```
 
 https://mybot314.ru/tekegram_catalog/

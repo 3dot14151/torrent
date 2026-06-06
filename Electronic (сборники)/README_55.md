@@ -1,3 +1,90 @@
+###  Публикация: 1508937   (796129) от 10.11.2021
+
+VA - Beatport Electro House: Sound Pack #363 (2021) [MP3|320 Kbps] <Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juliche Hernandez - Colored Theater
+002. Gensi - The Great Body Buzz
+003. Jack Priest - Piano '89
+004. Mauro Venti - Coming For That(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 12:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A590BA2A38667081C913C4D80AC44DEA4A59C875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385765   (796058) от 27.05.2020
+
+VA - Beatport Psychedelic Trance: Sound Pack #92 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796058.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Djcincinati - Psychestral
+002. DJ Mula - Voltage Drips
+003. Alaska - Ethnic Techno
+004. Uza Trance - Gayatri Mantra(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 13:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E15DCB02C3D4B071EA530760FE15F8E6110572C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386031   (795976) от 27.05.2020
+
+VA - Synthpop Ultimix (2020) [MP3|320 Kbps] <Synthpop, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fauness - Inanimate Girl
+02. Tijuana Cartel - Bhairavi's Garden
+03. Stefanie Schrank - Nothing Is Lost
+04. Lego Boy, Beat Ride - Fuerte(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 05:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A79C0B1E85A868610496272D858D403D461C541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386113   (795880) от 27.05.2020
 
 VA - Beatport Club House: Electro Sound Pack #93 (2020) [MP3|320 Kbps] <Club, Dance, House>
@@ -658,93 +745,6 @@ VA - Puff Puff Bass: Full Version DJ Hybrid (2019) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2FA76C4B72AE652E4AB486568311CFC9EAED49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274223   (794132) от 06.01.2019
-
-VA - Record Super Chart 568 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-02.  Fisher  -  Losing It
-03.  Gaulin  -  Moonlight
-04.  Merk & Kremont - Sushi(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570B1561B2BDC170DEC49DE42B236FBAAE37CA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274182   (794126) от 06.01.2019
-
-VA - Deep House Vibes: Absolut Hot (2019) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794126.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nailon Gray - Body And Soul (Session & Deep Mix)
-002. Demax - Galantis (Original Mix)
-003. Renga Weh - Running Rabbit
-004. Volker Rain - Belly Dance (Human Waves Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B3D1219B7AA5BEEA2078D4DBF79328933B0122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509611   (794077) от 13.11.2021
-
-VA - Beatport Drum And Bass: Sound Pack #365 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794077.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aries, Kelvin - Dancehall
-002. Jon The Dentist - Seahorses Forever
-003. Jaguar Paw - Nastya
-004. Neman - Mistakes(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 08:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5952D47D8F3AF253093BAF892B3E3613F4C568E
 ```
 
 https://mybot314.ru/tekegram_catalog/

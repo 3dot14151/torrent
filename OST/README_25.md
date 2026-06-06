@@ -1,3 +1,32 @@
+###  Публикация: 1682058   (132055) от 05.12.2023
+
+Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet
+02. Estrella
+03. Fairy of Water
+04. The Field(   Читать дальше...   )Жанр: Score, New AgeПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523B88FD73EB8E988AFE0B878D9D8818D050C599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688743   (125097) от 30.12.2023
 
 VA - Бременские музыканты (Официальный саундтрек к фильму) (2023) [MP3|320 Kbps] <OST>
@@ -779,36 +808,6 @@ Damon Albarn & Michael Nyman - Ravenous (1999) [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B92A3BBE10B266BB75EF582D81A749973CDCC61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803571   (13359) от 26.06.2025
-
-Lorien Testard - Clair Obscur: Expedition 33 (Original Soundtrack) (2025) [MP3|320 Kbps] <Soundtrack, Rock, Classic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clair Obscur: Expedition 33 — компьютерная ролевая игра, разработанная французской студией Sandfall Interactive и выпущенная Kepler Interactive.
-67 лет назад в мире Clair Obscur: Expedition 33 произошёл разлом, который отделил город Люмьер от всего остального мира. Неподалёку появился загадочный монолит, на котором Художница ежегодно рисует цифры — все, кто достигают (   Читать дальше...   )01. Alicia [2:50]
-02. Gustave [3:48]
-03. Lumière [3:43]
-04. Lumière - Lumière à l'Aube [3:53]Жанр: Soundtrack, Rock, ClassicПродолжительность: 08:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BA43A06CCA01B69568DFF266517B4F1A17196B
 ```
 
 https://mybot314.ru/tekegram_catalog/

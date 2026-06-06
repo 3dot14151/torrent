@@ -1,3 +1,90 @@
+###  Публикация: 1108129   (863906) от 24.02.2017
+
+Anacondaz - Выходи за меня (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Спаси, но не сохраняй
+02 - Чего ради
+03 - Смотри на меня
+04 - Рокстар(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E2666C77125BB5252C16C690184FEBE0AD8737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108173   (863803) от 24.02.2017
+
+Anacondaz - Выходи за меня (2017) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Спаси, но не сохраняй
+02 - Чего ради
+03 - Смотри на меня
+04 - Рокстар(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CF8992A8AC61C2908807652A8477BEA4E56504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376317   (860622) от 17.04.2020
+
+Fardi - Черный сад, часть 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кто такой Фарди? [02:27]
+02. Черный [02:52]
+03. Уроженец Азербайджана [02:38]
+04. Черный романтик [02:49](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A538D33A586C1BCC7648A27297970C2C6A4FDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375961   (860495) от 17.04.2020
 
 Идефикс и Ганза - Молодость (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -656,93 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD9BBC1993319B25AF2298103A1A9F68A5985C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379149   (842902) от 27.04.2020
-
-2Pac - The Best Of 2Pac. Part 1: Thug (2007) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Gangsta Rap, Thug Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Of Amerikaz Most Wanted (feat. Snoop Dogg) (4:07)
- 02. California Love (Original Mix) (feat. Dr. Dre & Roger Troutman) (4:45)
- 03. So Many Tears (3:58)
- 04. I Ain't Mad At Cha (feat. Danny Boy) (4:54)(   Читать дальше...   )Жанр: Hip-Hop, Gangsta Rap, Thug RapПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3AA7089DC70CC167E78CFE30814A859DDE8B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378719   (842801) от 27.04.2020
-
-VA - NOW Reggae Classics (2020) [MP3|320 Kbps] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bob Marley & The Wailers - One Love / People Get Ready (Medley) 02:53
-2. Steel Pulse - Reggae Fever 03:26
-3. Toots & The Maytals - Reggae Got Soul 03:09
-4. Jimmy Cliff - You Can Get It If You Really Want 02:41(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C35FDA9DFF7F432C6C8C7B3DA45303C7D8BCC9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379232   (840841) от 28.04.2020
-
-2Pac - The Best Of 2Pac. Part 2: Life (2007) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Gangsta Rap, Thug Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Definition Of A Thug Nigga (4:08)
- 02. Still Ballin' (Nitty Remix) (feat. Trick Daddy) (2:50)
- 03. Until The End Of Time (RP Remix) (feat. Richard Page) (4:28)
- 04. Never Call U Bitch Again (feat. Tyrese) (4:40)(   Читать дальше...   )Жанр: Hip-Hop, Gangsta Rap, Thug RapПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79E8DA684EAD47CED752C7933FF9690F480E4AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

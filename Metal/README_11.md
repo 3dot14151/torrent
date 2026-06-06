@@ -1,3 +1,32 @@
+###  Публикация: 1356988   (976771) от 01.02.2020
+
+Dark Matter - Nebula to Black Hole (2020) [MP3|320 Kbps] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Except Love
+2. Earthless Child
+3. Theory of X
+4. Imperfect Universe(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F493FC139FF45E0168BC2096CBC77F136824B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615904   (976635) от 09.02.2013
 
 Caladan Brood - Echoes Of Battle (2013) [MP3|320 кб/с]<Atmospheric Black, Epic Metal>
@@ -742,35 +771,6 @@ Michael Angelo Batio - 9 albums (1995 - 2009) Discography [MP3|192 кб/с]<Heav
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977855   (964817) от 22.01.2016
-
-Dethrone - Incinerate All (2016) [MP3|320 кб/с] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reborn in Fire
-02. The Plague Carrier
-03. Rat King
-04. Morbid Existence(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB595EFBB62E9A8845CA9DE66E323583EF4640F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1014501   (776203) от 08.05.2016
+
+VA - Absolutely Chillout: Chill Vibes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Dedicado
+02. Enrico Donner - Lido Shuffle
+03. Zero Feedback - Rien ne va plus - Don Gorda Project Remix
+04. FL Acid - Not What I Was Expecting(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326E070816BB038AB9AB3F734EEF24847B46E7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014551   (776202) от 08.05.2016
+
+VA - Ares Competition Chill After Racing (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gjc - On the Floor - Chill Version
+02. Funjc - White Mars - Radio Version
+03. Deadly Ride - Forces
+04. Domenic - Ten Years(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C1F7043E799477E3C91766D249E168A42E70A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014541   (776201) от 08.05.2016
+
+VA - Melodic Trance Energy - Wave Insider (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ikerya Project - Nighthawk (Dany Dazano Remix) 6:35
+02. Andrew Henry & Glorius - Magic Island (Original Mix) 7:02
+03. Matt Bukovski & Katty Heath - Hold Back The Storm (Original Mix) 5:50
+04. Daniel Kandi And Zack Mia - Sector 7 (Extended Mix) 6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 08:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCEB840680A9984528DDFC422C446B08ACA52A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014425   (776198) от 08.05.2016
 
 VA - Club Sound Vol.77 (2016) [MP3|237~268 кб/с] <House, Electro House, Club>
@@ -658,92 +745,6 @@ VA - Умная Электроника (Музыка Поднимающая На
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:653B9541B35DA19E36E31527863E37ECAA7D0244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212898   (774513) от 14.03.2018
-
-VA - Song For Isabelle (2018) [MP3|320 Kbps] <Psy, Goa, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774513.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astrix, DJane Gaby - New Earth Portal Intro
-002. Blastoyz - Mandala
-003. Eat Static - Walkin' With Spirits
-004. Strange Blotter & Mystic - Ozrayen (Original Mix)(   Читать дальше...   )Жанр: Psy, Goa, TranceПродолжительность: 11:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B7EA3DBB1D471422A5CA3B4B68711510F609AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015555   (774370) от 11.05.2016
-
-VA - Future Trance Energy 001 May (2016) [MP3|320 кб/с] <Trance, Melodic, Harmonic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amir Hussain - Tylos (Original Mix) 8:05
-02. David Gate - Sad Lovers (Alternate High Remix) 8:37
-03. RAM - Heartfelt (Allen Watts Remix) 6:45
-04. 7Wonders - Lost (Obi Remix) 6:04(   Читать дальше...   )Жанр: Trance, Melodic, HarmonicПродолжительность: 02:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8487442596F590C2F382A0B8C6DD161F5669C468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015644   (774368) от 11.05.2016
-
-VA - Heartbeats of Love (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amy More - Brighton Beach Dreams (05:08)
-02. Tarena - Freeze of Time (02:56)
-03. Esteban Garcia & Subworks - Never Give Up (Esteban Garcia vs. Subworks)Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133B03734B53F3F200879804A47492C1AC65A549
 ```
 
 https://mybot314.ru/tekegram_catalog/

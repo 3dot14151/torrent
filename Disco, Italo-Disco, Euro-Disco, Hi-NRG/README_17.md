@@ -1,3 +1,61 @@
+###  Публикация: 1539433   (658199) от 25.03.2022
+
+VA - Italo Disco Legacy (2017) Original Motion Picture Soundtrack [MP3|320 Kbps] <Electronic, Stage & Screen, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred Ventura - The Years (12'' Maxi Version) (6:17)
+02. Body Electric - Magic Electronic (Previously Unreleased 12'' Maxi Version) (7:17)
+03. Simona Sierra - Muchacho (12'' Maxi Version) (6:00)
+04. Alba - Philomena (6:46)(   Читать дальше...   )Жанр: Electronic, Stage & Screen, Italo-DiscoПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A809772B34BBFF1B996A0C47FC41976627E3C881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539748   (657268) от 26.03.2022
+
+Fat Larry's Band - Lookin' For Love (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lookin' For Love (5:32)
+02. Here Comes The Sun (5:22)
+03. Last Chance To Dance (5:21)
+04. Like To Get To Know You Better (5:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630C572B327D20C8A1EB49E28D31B8DD7BDFC10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140557   (655882) от 06.06.2017
 
 Love Robot - Love Robot (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B03D1E00C7646CD71D85463FD3A03C755E1E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143038   (639221) от 16.06.2017
-
-Estimado - Escape To Heaven (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Dancing on My Own
-02. Faster
-03. Believe in Me
-04. I Want You Heaven(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843ECD339BA90048B779E5876E6C9D304AED01FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542263   (639107) от 06.04.2022
-
-Quango & Sparky - Disco (1980) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Fran Jubilee (3:16)
-02. Do The Boogaloo (3:12)
-03. Do The Boogaloo (Instrumental) (3:13)
-04. The Disco Rock (3:29)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF47EC241FB029882ECE92E9317F962B7278BC84
 ```
 
 https://mybot314.ru/tekegram_catalog/

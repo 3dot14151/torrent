@@ -1,3 +1,61 @@
+###  Публикация: 1463933   (1020135) от 20.04.2021
+
+Digitalo - Gentleman (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentleman (3:35)
+02. In Australia (Remaster) (3:40)
+03. Star Girl (Mix 2021) (4:33)
+04. Taxi (Remaster) (4:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEBA575A8BE536CB3181A23E979B6DA6F6CD99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466350   (1018568) от 29.04.2021
+
+VA - Disco 80's Fresh Hits & Remixes (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K-Barre - Right by the Moon (Special Dance Remix) (3:24)
+02. Sweet Connection - Heart to Heart (Special Italo Dance Remix) (3:59)
+03. T. Ark - Count on Me (Power Disco Remix) (4:42)
+04. Silent Circle - Touch in the Night (Special Remix Version) (5:10)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75356CF79EF1EC6705CCFB2D4C46F4C37A5DF53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466344   (1018558) от 29.04.2021
 
 VA - Disco 80's Maxi Club Hits, Vol.2 (Remixes & Rarities) (2012) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
@@ -685,64 +743,6 @@ Bazykina Twins - Moscow Nights Ultimate (2017) [FLAC|Lossless|image + .cue] <Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D108755C7AFB7B04B67D75490133D9E27567AD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351290   (1002410) от 09.01.2020
-
-Fox The Fox - In The Dark Of The Nite (1984) [FLAC|Lossless|image + .cue] <Italo-Disco, Electro, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Flirting And Showing 4:42
-2 Stealin' 4:47
-3 In The Dark Of The Nite 4:32
-4 Check It Out 4:59(   Читать дальше...   )Жанр: Italo-Disco, Electro, EuropopПродолжительность: 0:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D99969B35FB30FF701267407569F62C4D240E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351743   (1001957) от 11.01.2020
-
-Heaven42 - The Rhythm Of Love (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001957.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Saturday Night 5:59
-2 Sinner 6:10
-3 Give Me Your Love 6:17
-4 Lost In Your Heart 3:52(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5466A280979A5D8BC12BE23C2938ABD726D12A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

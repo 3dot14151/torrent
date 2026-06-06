@@ -1,3 +1,61 @@
+###  Публикация: 145698   (870233) от 11.04.2020
+
+Александр Бородин - Опера "Князь Игорь" (1969) [MP3|192 kb/s]<Опера>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Партии исполняют: И.Петров, Т.Тугаринова, В.Атлантов, Артур Эйзен, А.Ведерников, Е.Образцова, А.Лаптев, В.Ярославцев, К.Басков, И.Терпиловская, М.Миглау1. Увертюра.   09:29
+2. Пролог: Интродукция "Солнцу красному слава!"   03:52
+3. "Идем на брань с врагом Руси"   02:25
+4. "Князья, пора нам выступать"   05:47(   Читать дальше...   )Жанр: ОпераПродолжительность: 03:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4E956BB24FAAEF191C27114E55BDF77A9E34F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998197   (870142) от 19.03.2016
+
+J.S.Bach - Famous Organ Works (1979) Reissue, 2009, JVC [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toccata und Fuge D-moll, BWV565 (8:56)
+02. Passacaglia und Fuge C-moll, BWV582 (13:43)
+03. Fuge G-moll, BWV578 (3:52)
+04. Phantasie und Fuge G-moll, BWV542 (12:12)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DE50AA6786D1CB1A9C85D2C1C0FDCD9C204EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998454   (870043) от 19.03.2016
 
 Schumann, Argerich, Kremer, Harnoncourt, Chamber Orchestra Of Europe - Piano Concerto - Violin Concerto (1994) [FLAC|Lossless|tracks] <Classical, Romantic>
@@ -685,64 +743,6 @@ Aria with 30 Variations "Goldberg Variations" BWV 988
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49CE93B4AB4869D3F6A7F50B6A632BA0BD4030B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109011   (860746) от 26.02.2017
-
-Daigo Hanada - Ichiru (2017) [FLAC|Lossless|tracks] <Classical,Ambient>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silhouette (02:10)
-02. Butterfly (02:07)
-03. Weak Me (02:58)
-04. Fragment, Pt. 1 (02:08)(   Читать дальше...   )Жанр: Classical,AmbientПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2438E559B8493DE7BA9B033C6F15196578455E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999934   (860726) от 24.03.2016
-
-Wiener Philharmoniker - Highlights From Mozart's Figaro (2007) [FLAC|Lossless|image + .cue] <Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinfonia (5:06)
-02. Akt 1, No. 1 Duettino 'Cinque, dieci, venti, trenta' (3:06)
-03. Akt 1 No. 3 Cavatina 'Se vuol ballare, signor Contino' (2:47)
-04. Akt 1 No. 4 Aria 'La vendetta, oh, la vendetta' (3:29)(   Читать дальше...   )Жанр: OperaПродолжительность: 01:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B366F078C61F24838764C2C34B3F2603FFE982C
 ```
 
 https://mybot314.ru/tekegram_catalog/

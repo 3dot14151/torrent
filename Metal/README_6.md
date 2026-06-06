@@ -1,3 +1,32 @@
+###  Публикация: 1466575   (1018461) от 30.04.2021
+
+Arched Fire - Remote Control (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hindsight 20_20 (00:23)
+ 02. Back on Track (02:55)
+ 03. Remote-Controlled End (02:53)
+ 04. Crawling Down (04:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A096A3B9D2DA1D9122F92066E58220732163B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466391   (1018459) от 30.04.2021
 
 Sarkonia - Cesta (2021) [MP3|320 Kbps] <Sympho Metal, Female Vocal>
@@ -716,35 +745,6 @@ Holosade - Anastasis (2021) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAA08AB108E548C6502904B4470DE651A1834B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474691   (1012884) от 03.06.2021
-
-Van Canto - To The Power Of Eight (2021) [MP3|320 Kbps] <Power A Capella>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012884.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To the Power of Eight
-2. Dead by the Night
-3. Faith Focus Finish
-4. Falling Down(   Читать дальше...   )Жанр: Power A CapellaПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2840C35199FA6639607BEC9BB51B9547F2A61269
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1855939   (1058333) от 25.02.2026
+
+VA - After Hours Chill & Unwind (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Sura Quintet - Costa Vibes (03:44)
+ 02 - Lusser - Small Glimpses (03:43)
+ 03 - Wohltat - Out & About (04:10)
+ 04 - Silex Soils - In the Conventional Sense (04:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3313AD63C4C2D7FAA85A3146335E5B0877D6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855023   (1057879) от 21.02.2026
+
+VA - Soft Horizons: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harrison & Daicz - La Niebla De Las Cíes (5:17)
+02. Peter Pearson - Serenity (7:22)
+03. Marc Hartman - Bright Like the Night (4:58)
+04. SeaStar - Cala Morisca (3:26)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51750B6DD53EE964E5D1B3FC0BA88D52074FA8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855126   (1057844) от 21.02.2026
+
+VA - The Orient Collective: Whispers of the Ancients (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Bedouin (6:49)
+02. Patrick Medina - Singing Bowls (7:09)
+03. Marga Sol - Artefact (5:08)
+04. Mikhail Catan - Away (7:23)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B2C1E30A3529D4A1483B52BABBEF9122C7B4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853946   (1056993) от 15.02.2026
 
 VA - The Orient Collective: Sand Temple Stories (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -658,93 +745,6 @@ VA - The Orient Collective: Sand & Silence (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EC9D01139608D2FFD2AA4E35FE319A192A65C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843431   (1049425) от 20.12.2025
-
-VA - Balearic Chill Out Winter 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lemongrass; Jane Maximova - I Miss You (04:40)
- 02.  Calmabohain - My Lips on Yours (04:23)
- 03.  Weathertunes - Osaka Dream (02:36)
- 04.  Luis Hermandez - Let Me Down (03:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDDF198963A4B9781CB0D0967E12588F4F515714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843097   (1048939) от 18.12.2025
-
-VA - Chill Lounge del Mar 2026 (Café Chillout Playlist Compilation, Vol.9 - mixed by Matthew Kramer) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dub Dub - One World, One Sky (Reincarnation Mix) (05:41)
- 02.  Afterlive - Echoes of Light (Cool Lounge Cut) (05:00)
- 03.  Entre Dos Aguas - Rooftop Groove (Bela Orellano Mix) (04:54)
- 04.  Aphrodizia - Mainhattan Sunset (Lazy Sunday Remix) (04:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8974E181FC7CF35AB703FE85AC5B08C85A0A9151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842221   (1048665) от 15.12.2025
-
-VA - The Orient Collective: Mystic Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raul Perez - El Tiempo (5:32)
-02. Ildar Bik, Tibetania - Talika (5:49)
-03. Setrian - Condor (4:48)
-04. Kaisser Bouzriba - Deep in My Soul (5:59)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F1A428239242CD868372B12DD775AED8EAF533
 ```
 
 https://mybot314.ru/tekegram_catalog/

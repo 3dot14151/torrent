@@ -1,3 +1,61 @@
+###  Публикация: 1523090   (753518) от 10.01.2022
+
+VA - Chilling Inside (2022) [AAC|~290 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crispy Galaxy - Cream Soda (6:09)
+02. Eulenspiegel - An Unspoken Thing (5:41)
+03. Hints of soul - Ebb and Flow (6:00)
+04. Ritscher - Sweet Whispers (6:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193ED25793CA73A8DD7C67E17A056785D781B82C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523074   (753516) от 10.01.2022
+
+VA - Christmas Jazz Night 2020 (Best X-Mas Jazz Music) (2019) [AAC|~326 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massimo Faraò Trio, Giampaolo Casati - The Masquerade Is Over (5:43)
+02. Sandro Gibellini Trio, Sandro Gibellini - Walk on By (2:21)
+03. Giacomo Bondi, Cristiana Polegri, Alfrebo Bochicchio, Fabrizio Foggia - Englishman in New York (3:54)
+04. Alyssa Zezza - September (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6958FDC4463F8677CDCB248062F178B338C41ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018204   (753439) от 21.05.2016
 
 Фрэнк Герберт | Дюна (2007) [m4b|AAC]
@@ -651,64 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD2DD171D2633D636240AE681B778878E7957807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523345   (751681) от 11.01.2022
-
-VA - Cozy Lofi Beats (2022) [AAC|~299 Kbps] <Lo Fi, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toolo - Crochet Flora (2:40)
-02. Hussain Ali - Story Time (1:42)
-03. Hybro, Chillmob, Christoph Israel, Swonderful Orchestra, Catherine Larsen-Maguire - Jolis sapins (Lofi Edit) (1:44)
-04. Pesca - Heaven Seagul (2:28)(   Читать дальше...   )Жанр: Lo Fi, Lounge, Chill OutПродолжительность: 01:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFFC23E5F142EA22BD938DC1D88C14C6E7AE975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523329   (751680) от 11.01.2022
-
-VA - Musica Del Sol, Vol. 3 (2017) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael e, Gary B - Distant Shores (Original Mix) (6:25)
-02. Pier-O - Chilly Peppers (Original Mix) (4:24)
-03. Michael e - One Love Bossa Nova (Original Mix) (6:26)
-04. Marga Sol - Temple of Love (Original Mix) (6:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:102F341A2A436F03E704C1A214751CE0640E3948
 ```
 
 https://mybot314.ru/tekegram_catalog/

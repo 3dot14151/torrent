@@ -1,3 +1,61 @@
+###  Публикация: 979471   (957286) от 28.01.2016
+
+R.E.M. – In View: The Best Of R.E.M. 1988-2003 (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Videos (With Optional Interview Footage):
+
+01.Bad Day - Film Director: Tim Hope (4:02)
+02.All The Way To Reno (You're Gonna Be A Star)  - Film Director: Michael Moore (4:24)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПеревод: ОтсутствуетПродолжительность: 02:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCB111CDBAA5AEE58A8CA4A8840AEAAE8C168AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979319   (957219) от 28.01.2016
+
+Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Que Mon Coeur Lache (6:44)
+02.	XXL (4:34)
+03.	L'Instant X (4:22)
+04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 01:07:98
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C6D3505519DDE03B90B82B56F33B30AF2C2B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980011   (957198) от 28.01.2016
 
 Mylene Farmer – Music Videos II & III (2000) DVDRip
@@ -677,61 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6919AB0C3D080EE6F7D6F0C4FF8E0DB0AFB6E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859438   (942496) от 15.01.2015
-
-Сати Казанова - Дура (2013) [1080p] [hand made 60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: MKVПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9737BDCBE187E7AC25D6325C2DBA1B800F5D50B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983606   (941882) от 07.02.2016
-
-VA – Реальная Музыка (2001) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чичерина - Ту-Лу-Ла
-02. Green Grey - Осень/MF
-03. Total - Камасутра
-04. Запрещенные - Барабанщики*	Мама-Зузу(   Читать дальше...   )Жанр: Rock, PopПеревод: ОтсутствуетПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788B0EE7733011043306534B0D1E9C170F3055AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

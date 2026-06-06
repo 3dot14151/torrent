@@ -1,3 +1,32 @@
+###  Публикация: 1201964   (791019) от 27.01.2018
+
+Brambles - Charcoal (Special Edition) (2014) Serein [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Speak Of Solitude (04:21)
+02. Such Owls As You (05:30)
+03. In The Androgynous Dark (04:43)
+04. Salt Photographs (06:54)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AF81D59D2986598855FDA6A72AE161FE9FDAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202197   (790455) от 28.01.2018
 
 VA - Peaceful Piano (2017) Decca [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Contemporary, Classical>
@@ -713,35 +742,6 @@ Autumn of Communion - Streams (2018) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6625DFF448A6755FE43CDA75DB2AB6AB0A3EFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209093   (779538) от 25.02.2018
-
-Yann Novak - The Future Is a Forward Escape into the Past (2018) Touch [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radical Transparency (10:00)
-02. The Inertia of Time (09:49)
-03. Casting Ourselves Back into the Past (10:19)
-04. Nothing Ever Transcends Its Immediate Environment (11:20)Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A55CCED13573178B169C3EBDA1F62CA1A4BD70
 ```
 
 https://mybot314.ru/tekegram_catalog/

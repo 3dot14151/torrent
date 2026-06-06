@@ -1,22 +1,25 @@
-###  Публикация: 265119   (154431) от 28.12.2022
+###  Публикация: 1674862   (160699) от 07.11.2023
 
-Дикий ангел / Muneca Brava (1998-1999) TVRip (сезон 1, серии 1-270 из 270)
+HateFrame - Sign of Demise (2005) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>3
->>След.
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Яркая романтическая история Милагрос, которая рано потеряла мать, но, тем не менее, выросла храброй и уверенной в себе девушкой (оригинальное название сериала дословно переводится, как "Храбрая кукла"). Она любит играть в футбол и одеваться по-мальчишески. Однажды она устраивается в богатый дом служанкой, где находит свою любовь и семью, но что бы все это (   Читать дальше...   )Производство: Аргентина / Televisión Federal (Telefe)Жанр: Комедия, мелодрама, музыкальныйРежиссер: Эрнан Абраамсон, Виктор СтэллаАктеры: Факундо Арана (Facundo Arana), Наталия Орейро (Natalia Oreiro), Габриэла Сари (Gabriela Sari), Виктория Онетто (Victoria Onetto), Артуро Мали (Arturo Maly), Вероника Виейра (Veronica Vieyra), Марсело Маццарельо (Marcelo Mazzarello), Мариана Ариас (Mariana Arias) и др.Перевод: Многоголосый закадровый (озвучен по заказу телеканала "РТР"), есть фрагменты без переводаСубтитры: не переведенные фрагментыПродолжительность: серии по ~40 минут
+01. Crowned in Blood 02:27
+02. Final Solution 02:03
+03. Feeding the Flame 02:58
+04. Sign of Demise 02:07(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:27:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5650227D4514BC9626C582A77333DEE1C8A4AD9D
+magnet:?xt=urn:btih:8FD516A6312AE352F5A4FE9D84536ED5A22B50A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,52 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676813   (154430) от 15.11.2023
+###  Публикация: 1674981   (160698) от 07.11.2023
 
-Владимир Квашук | Основы нейропсихологии (2020) [MP3, Владимир Квашук]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дисциплина “ОСНОВЫ НЕЙРОПСИХОЛОГИИ” относится к вузовскому компоненту общепрофессионального цикла дисциплин учебного плана специальности 020400 – “Психология”. Единый методический комплекс по дисциплине разработан старшим преподавателем кафедры “Теоретической и прикладной психологии” Квашуком Владимиром ВикторовичемЖанр: Медицина. НейропсихологияИздательство: Нигде не купишПродолжительность: 04:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECCEB6CC78423681E555F865D23C2F9831FF321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433880   (154429) от 22.12.2020
-
-Pixelmator Pro 2.0.3 [Multi/Ru]
+Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
-Много неразрушающих про-инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4Язык интерфейса: Русский, английский и другие
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A71C66472F26BDEFECC0D34662BF4F85C6ED8D7
+magnet:?xt=urn:btih:DC7C9BA88E06B5FCF9C3E05953C875910A35DAA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086053   (154428) от 23.12.2016
+###  Публикация: 1674868   (160697) от 07.11.2023
 
-Каталог | Peter Hahn (Весна-Лето 2017) [PDF] [De]
+Red Harvest - New World Rage Music (2001) Promo CD [APE|Lossless|image + .cue] <Industrial Metal, Death Metal, Thrash Metal>
 
->>Журналы
->>Женские журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PETER HAHN предлагает одежду для женщин, предпочитающих хорошее качество и классическую элегантность. Невероятный трикотаж: кашемир, чистая тасманская шерсть и SETALANA. На страницах журнала Вы сможете подобрать для себя не только классические модели, но трендовые для этого сезона. Платья, блузки и рубашки от спортивного шика до празднично-элегантного вида. Брюки (   Читать дальше...   )Жанр: КаталогФормат: PDF
+01. Intrusion
+02. Ad Noctum
+03. Move Or Be Moved (preview)
+04. Swallow The Sun(   Читать дальше...   )Жанр: Industrial Metal, Death Metal, Thrash MetalПродолжительность: 00:34:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA8876E5F5D5D6060A7B0C0360C51C00AFF9E4EB
+magnet:?xt=urn:btih:DD5FD02131CAB36D6B09C710441D2B804B79ED21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,161 +83,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 967126   (154427) от 28.12.2022
+###  Публикация: 1674949   (160696) от 07.11.2023
 
-Сборник инструментов Photoshop - DAZ3D - Ron's Deviney [ASL, ABR, PSD, PNG]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ron's Circle Designs предлагает вам различные варианты геометрических рисунков кругов, которые содержат 100 кистей Photoshop с высоким разрешением.
-Уникальные дизайны варьируются от рунных, астрологических, алхимических, киборгских, хэллоуинских, сакральной геометрии, племенных и мистических.
-Вы также найдете пентаграммы, элегантные и простые рисунки и многое другое..Формат: ABRРазрешение файлов: 5500x7200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1C0BA7813A9E031F8A0DD3AC04172A6B3B7E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676785   (154426) от 15.11.2023
-
-Topaz Photo AI 2.1.1 (x64) + All Models Portable by FC Portables [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0E55A1416D03C71C66E113CA33DCB57931BC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086154   (154425) от 23.12.2016
-
-Пресс-конференция Президента России В. В. Путина (23.12.2016) TVRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Путин провел 23 декабря 2016 ежегодную Большую пресс-конференцию для российских и зарубежных журналистов. Такого количества представителей СМИ еще не было: почти полторы тысячи человек. Кроме того, впервые в истории пресс конференцию перенесли на один день.Телекомпания: Россия 24Жанр: ДокументальныйПродолжительность: 03:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE4B70B33B51434C800C0D970F82079952B8CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434021   (154424) от 22.12.2020
-
-Cent Browser 4.3.9.238 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8946B1F2E9B3AB39FE234D2734724D7CD5D2E900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947925   (154423) от 28.12.2022
-
-Меркулов Алексей | Использование AutoCAD на 100% 2.0 (2015) PCRec [H.264/720p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео курс по практическому применению AutoCAD в любой области. 80% специалистов, даже работающих в AutoCAD несколько лет, не догадываются о том, что можно легко оптимизировать и ускорить свою работу с помощью программы.
-
-Поэтому мы создали видео обучение, которое поможет справиться с задачами современного проектирования в AutoCAD.
-(   Читать дальше...   )Жанр: AutoCADПродолжительность: 19:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127E2C155762EA2A26EF81325E7AD3F0258861BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347338   (154422) от 22.12.2019
-
-GroupsPro 4.1 [Multi/Ru]
+FSNotes 6.5.0 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Управляйте группами контактов и создавайте списки для массовых рассылок по эл. почте.
-GroupsPro позволяет создавать и упорядочивать группы контактов и создавать списки рассылки. Список рассылки состоит из членов групп или отдельных получателей.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2019Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2023Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Украинский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0767F4B6FEA35EECF546C26BAF9BD36F78839A1
+magnet:?xt=urn:btih:96D37790A2CE937C2C0BC1662C74DB44BB73489B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,26 +109,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676750   (154421) от 15.11.2023
+###  Публикация: 1674937   (160695) от 07.11.2023
 
-MailWasher Pro 7.12.188 RePack (& Portable) by elchupacabra [Multi/Ru]
+Cookie 7.1.5 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MailWasher Pro позволяет пользователям просматривать письма, находящиеся на различных почтовых аккаунтах, перед тем, как скачать их себе на компьютер. Благодаря MailWasher Pro вы сможете удалить или вернуть ненужные письма обратно отправителю с сообщением о том, что адресат неизвестен.
-MailWasher Pro включает антивирусную защиту, обеспечивает доступ по POP3, IMAP4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 12.0 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FBC235E9BDE7EC5C49257FFACAB6B65BBB2B929
+magnet:?xt=urn:btih:64D586F8B813FA01734D82F65F4542111CACDB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,28 +136,257 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194831   (154420) от 26.12.2017
+###  Публикация: 1674870   (160694) от 07.11.2023
 
-Горные лыжи. Кубок мира 2017–2018. Мадонна ди Кампильо (Италия). Мужчины. Слалом (22.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Red Harvest - Sick Transit Gloria Mundi (2002) Promo CD [APE|Lossless|image + .cue] <Industrial Metal, Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U.G.X.
+02. AEP
+03. Godtech
+04. Humanoia(   Читать дальше...   )Жанр: Industrial Metal, Death Metal, Thrash MetalПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9513060C8D7510EAA83031B35BAA6189B351B5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674782   (160693) от 07.11.2023
+
+Granada - Prisionego (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iman 03:44
+02. Prisionego 03:35
+03. Escupiendo al cielo 03:28
+04. Roto X dentro 03:39(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635A00D1C2E0609C93636311707AC987251F57EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675012   (160692) от 07.11.2023
+
+WiszdomStone - Rise (2009) [WavPack|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise    					       (05:51)
+02. Floods And Fires    			       (04:47)
+03. Unforgiven    				       (04:18)
+04. Take This Cup    				       (05:44)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DCEE32DF4D6D5A90ECD4487844FCFD4E8FA4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674920   (160691) от 07.11.2023
+
+Guillotine - Metal in the Vein (2007) [WavPack|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Metal in the Vein
+03. Violence and War
+04. Sexthrash(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D561590573CC8CF1E7ADF5A23C68DD9D04C45DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674912   (160690) от 07.11.2023
+
+Celestial Crown - Rebirth (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Doom Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaos Reigns Over 07:09
+02. Consumed by Fire 05:58
+03. Awaken 03:54
+04. Beyond the Horizon 05:00(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Black MetalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D934D8270F21971D718EFE84C8B3BBC0EF5C7F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674882   (160689) от 07.11.2023
+
+Saboter - Mankind Is Damned (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_160689.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Purifier
+2. Assassins
+3. Prevailing Dictators
+4. Marching Death(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC13EF8928DFD79FEEFD9B892C7ABB6F5F76A327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674853   (160688) от 07.11.2023
+
+Prestige - Reveal the Ravage (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocent 03:53
+02. Burn My Eyes 04:52
+03. Blessed Be 04:27
+04. Pick Your Poison 04:55(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB3A0F62B6B0F193BC4E0D6CB4F2C592539AD9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674391   (160687) от 07.11.2023
+
+Wizard - Head Of The Deceiver (2001) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evitum Okol
+02. Magic Potion
+03. Head Of The Deceiver
+04. Collective Mind(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8811F1955E0224734C2313685B6F1D1976308045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675002   (160686) от 07.11.2023
+
+Boxy SVG 4.15.0 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 декабря 2017 года, пятница. 19:45 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Мадонна ди Кампильо (Италия).
-Мужчины. СлаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:11:21
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2012-2023 Jaroslaw FoksaПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC789DEF8A705CF43B584DD12DF0EE5A1DD358A5
+magnet:?xt=urn:btih:520B903444F557DF1DFB7B067FA7DC2F3023B2F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,27 +394,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433920   (154419) от 22.12.2020
+###  Публикация: 1674899   (160685) от 07.11.2023
 
-Векторный клипарт - Happy Chinese New Year 2021 traditional greeting card design [EPS]
+GrimFaith - Preacher Creature (2013) [FLAC|Lossless|image + .cue] <Gothic Doom Metal>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-С китайским Новым 2021 годом!
-4 EPS + previewФормат: EPS
+01. Intro-1 (Beyond My Closed Doors) 01:05
+02. Abberation 05:23
+03. E.V.O.-3: Cyberlover 04:40
+04. Saint-Demonic Smile or Sex in Heaven (2012) 07:03(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:49:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:755A1F470D7E942463035B7B5DF6D6BE155BFB98
+magnet:?xt=urn:btih:620B673CBE214FAE01F39D0EE64C67D5A9746E06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,25 +423,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086189   (154418) от 23.12.2016
+###  Публикация: 1674859   (160684) от 07.11.2023
 
-Пресс-конференция Президента России В. В. Путина (2016.12.23) HDTV [H.264/1080i]
+Angel Dust - Enlighten The Darkness (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ежегодная большая пресс-конференция Президента РФ Владимира Путина, в ходе которой он отвечает на вопросы представителей СМИ мирового сообщества...Телекомпания: Россия HDЖанр: Пресс-конференцияСубтитры: ОтсутствуютПродолжительность: ~ 03:51:00
+01. Let Me Live
+02. The One You Are
+03. Enjoy!
+04. Fly Away(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:027B3283650026C00E2470ADD50484129614C225
+magnet:?xt=urn:btih:75D850B76CB30F6F805603A1E921CE137B3FF82A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +452,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518635   (154417) от 20.12.2021
+###  Публикация: 1674861   (160683) от 07.11.2023
 
-VA - Global Lounge Masters, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+Granada - Sincronizado (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tom Tom Club - Love to Love You Baby (4:28)
-02. Soulounge, Gabriel Gordon - Do You (3:30)
-03. Karen Gibson Roc - Coming Up from the Down (4:44)
-04. Michiko - Learning to Love (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:31:25
+01. Poseso 03:47
+02. Sincronizado 04:04
+03. Mensaje oculto 03:19
+04. Provocacion 04:11(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:941D365FFDB5FB2762F8053703F283AEB8A754F9
+magnet:?xt=urn:btih:03557961D6A9C5D46CDE4B02C7C43F775E09A4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,25 +481,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270891   (154416) от 21.12.2018
+###  Публикация: 1674779   (160682) от 07.11.2023
 
-Обои - Wallpapers Кошачьи #40 [JPG]
+Zombie Attack - Bonded By Beer (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
+01. IntroЖанр: Thrash MetalПродолжительность: 00:32:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B18AFBC4C34835C75A4E99331FDD9889C1D5F380
+magnet:?xt=urn:btih:8DAFEB35F5BA9B8E3A49E7179D6C2ACACE62C00D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,26 +507,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676843   (154415) от 15.11.2023
+###  Публикация: 1674986   (160681) от 07.11.2023
 
-Microsoft .NET 7.0.14 Runtime [Ru/En]
+SILKYPIX Developer Studio Pro 11 v.11.0.12.1 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
+SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD61FD47FF87D7F4BCBAFF419C5273DFA49EC281
+magnet:?xt=urn:btih:0FD0EFC197D23BD832553264299A28B1B00BBD49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,25 +533,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433778   (154414) от 22.12.2020
+###  Публикация: 1674989   (160680) от 07.11.2023
 
-Kdenlive 20.12.0 + Portable [Multi/Ru]
+Slidepad 1.4.6 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Kdenlive - бесплатный нелинейный видеоредактор, который удовлетворяет большинство задач пользователя, от базового редактирования видео до профессиональной работы. Присутствует возможность использовать любые аудио/видео форматы (например QuickTime, AVI, WMV, MPEG и пр.), поддерживается 4:3 и 16:9 соотношение сторон для PAL, NTSC и различных HD стандартов, в том числе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:170A68736945F6DA6289FFEFB6E62960A797A229
+magnet:?xt=urn:btih:BCB157676EB9D9250118218FB6A09712AF9D0FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,25 +561,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086116   (154413) от 23.12.2016
+###  Публикация: 1674975   (160679) от 07.11.2023
 
-Wondershare PDFelement with OCR 5.7.0 [Multi/Ru]
+MWeb Pro 4.5.1 [Multi]
 
 >>Программы для macOS
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wondershare PDFelement - программа для общего редактирования документов PDF формата, инструмент из серии все-в-одном. В функции редактирование входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR ( оптическое распознавание символов ), есть режим конвертирования документа в разные другие форматы (Поддерживает форматы Microsoft Word, Microsoft (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 декабря 2016Разработчик: WondershareПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
+MWeb поддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 CoderForArt IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53496102C491ABBD44953F01616042AFA3958851
+magnet:?xt=urn:btih:70BFB831AC489273BDE4E6FFD3849BFE992425DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,193 +588,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347187   (154412) от 22.12.2019
+###  Публикация: 1674774   (160678) от 07.11.2023
 
-Eric Legnini - Six Strings Under (2019) Bendo Music [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Mainstream Jazz>
+Asagraum - Veil of Death, Ruptured (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignem Purificat Lilitu
+02. Fearless Dominance
+03. Opus ad Errantem (instrumental)
+04. De verloren tijd(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FCF931D2EDFC1572BFC9982E76308600138022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674856   (160677) от 07.11.2023
+
+Angel Dust - Bleed (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleed
+02. Black Rain
+03. Never
+04. Follow Me (Part 1)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578122682174B711742E4210F536E91108C55F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674860   (160676) от 07.11.2023
+
+Angel Dust - Of Human Bondage (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Human Bondage
+02. Inhuman
+03. Unreal Soul
+04. Disbeliever(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2C1A33DC7254782838A470F88FFFB164C262CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674909   (160675) от 07.11.2023
+
+Darkside of Innocence - Infernum Liberus Est (2010) [FLAC|Lossless|image + .cue] <Symphonic Black Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Act I - Inferno 02:21
+02. Act I.I - Angel of Sin 04:23
+03. Act I.II - The Eve to a Colder Epoch 04:40
+04. Act II - Once upon Havoc and Despair 02:46(   Читать дальше...   )Жанр: Symphonic Black Gothic MetalПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4919B5D6639B3229F2983DBF8E103F0B370DC91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674926   (160674) от 07.11.2023
+
+Alan Pasqua, Peter Erskine, Darek Oles - Live In Italy (2022) Fuzzy Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Boda Boda [4:35]
-02. Doo We Doo [5:16]
-03. Breakfast At Dawn [5:04]
-04. Eterna Gioventu [3:43](   Читать дальше...   )Жанр: Contemporary Jazz, Mainstream JazzПродолжительность: 00:47:55
+01. Agrodolce [8:46]
+02. New Hope [7:49]
+03. Old School Blues [7:32]
+04. Nuages [5:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:09:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C504640C8064965FB3237E96255FAD8F0EC53115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194785   (154411) от 26.12.2017
-
-Yusef Lateef - Prayer To The East (1957) 1993, Savoy Jazz [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Night in Tunisia [09:55]
-02. Endura [13:10]
-03. Prayer to the East [08:19]
-04. Love Dance [06:46](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBBD55784A387F63DDF5C09D0EC1553B2F85C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518641   (154410) от 20.12.2021
-
-UctoX 2 v2.8.14 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154410.jpg" />
-</div>
-
-
-###  Подробнее
-
-UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
-Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
-Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Krystof VasaПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E9DB67368FF6CCEBED0F1349EFA98C22B9DED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347211   (154409) от 22.12.2019
-
-Type Fu 4.6.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип Fu 4.6.0 научит вас, как печатать быстрее, не глядя на клавиатуру, позволяя вам отточить свои навыки набора текста.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: Jaroslaw FoksaПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459EABBED9B56F75D6E76AE84286DF99CBC3BBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194784   (154408) от 26.12.2017
-
-Dollar Brand Duo - Good News from Africa (1973) 2008, Enja [FLAC|Lossless|tracks + .cue] <Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ntsikana's Bell [06:10]
-02. Msunduza [04:42]
-03. Good News / Swazi / Waya-Wa-Egoli [07:30]
-04. Adhan and Allah-O-Akbar [04:14](   Читать дальше...   )Жанр: Ethnic JazzПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4D04EE56466B9ED9C961D9684FDCAE8D1907AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676902   (154407) от 15.11.2023
-
-IObit Uninstaller Pro 13.2.0.3 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154407.jpg" />
-</div>
-
-
-###  Подробнее
-
-IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0492558AAF40AF29512C7508AF52297E73554679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270681   (154406) от 21.12.2018
-
-Альбина Нури | Пятый неспящий (2018) [MP3, Юлия Бочанова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбина Нури не боится шагнуть за границы непознанного. В ее мистических триллерах реальность переплетается с зазеркальем, и только во власти героев сделать выбор, на какой стороне остаться.
-Отношения Розы с родными всегда оставляли желать лучшего: мать постоянно читала нотации, теткино высокомерное покровительство раздражало, деду не было до нее дела. Она ни за (   Читать дальше...   )Жанр: Современные детективыИздательство: АудиокнигаПродолжительность: 06:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E570347D457DE9484DDA5A58D1ED158804754D6D
+magnet:?xt=urn:btih:38405881AD26119BBA0897193BC426F5165A19B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

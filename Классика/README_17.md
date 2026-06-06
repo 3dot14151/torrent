@@ -1,3 +1,61 @@
+###  Публикация: 1505164   (806301) от 26.10.2021
+
+VA - Piano Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Easy Listening>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vitaly Margulis - Nocturnes, Op. 9 No. 2, Andante in E-Flat Major (4:34)
+02. Henrik Mawe - Suite bergamasque, L. 75 III. Clair de lune (5:01)
+03. Vitaly Margulis - Waltzes, Op. 64 No. 1, Molto vivace in D-Flat Major Minute Waltz (1:53)
+04. Slovak Philharmonic Orchestra - Piano Concerto No. 5 in E-Flat Major, Op. 73 Emperor II. Adagio un poco moto (8:19)(   Читать дальше...   )Жанр: Classical, Instrumental, Easy ListeningПродолжительность: 02:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E4C85539ABD8DBE0BC5FAC79740065E882186E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198539   (806179) от 12.01.2018
+
+VA - Great Romantic Piano Favorites (The World's Most Beautiful Melodies) (1997) [FLAC|Lossless|image + .cue] <Classical, Easy Listening>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earl Wild and Royal Philharmonic Orchestra - Piano Concerto No. 2 In C Minor (Rachmaninoff) (13:25)
+02. The Virtuoso Piano Quartet - Malaguena (Lecuona) (4:02)
+03. Michael Reeves and National Philharmonic Orchestra - Theme From Sonata In C (Mozart) (2:26)
+04. Earl Wild and Royal Philharmonic Orchestra - Nocturne In A Flat (Chopin) (4:02)(   Читать дальше...   )Жанр: Classical, Easy ListeningПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A371E93D399C7DD9221B8AF3A3932B9E466E14DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384021   (805890) от 18.05.2020
 
 Lindsey Stirling - Warmer In The Winter (2018) Deluxe Edition [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Classical Crossover>
@@ -685,64 +743,6 @@ The London Promenade Orchestra - Beautiful Melodies With A Touch Of The Classics
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DCFBE216704AE39F73CE577040DC07ECE4AC175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204760   (784286) от 07.02.2018
-
-Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 No. 1, Overture
-02 Act I, No. 2, "Tocchiamo! a gaudio insolito" (Chorus)
-03 Act I, No. 3, "Ciel, ch'io respiri!"
-04 Act I, No. 4, "Salvami to, gran Dio"(   Читать дальше...   )Жанр: Opera,ClassicalПродолжительность: 02:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7CE141C9184E880DE6D27B32D4E6880A3690E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204816   (784278) от 07.02.2018
-
-Rossini - L'inganno felice (2008) 2CD [APE|Lossless|image + .cue] <Opera, Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Scene 1: Introduction
-02.Scene 2: Cosa dite! Ma cosa dite! (Tarabotto, Isabella)
-03.Scene 3: Ebben, che ascondi a Tarabatto (Isabella, Tarabotto)
-04.Scene 4: Qual tenero diletto (Bertrando)(   Читать дальше...   )Жанр: Opera, ClassicalПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A50DD31D639D43A56C1143E46AD6086FCDEB449
 ```
 
 https://mybot314.ru/tekegram_catalog/

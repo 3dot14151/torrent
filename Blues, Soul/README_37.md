@@ -1,3 +1,119 @@
+###  Публикация: 1433191   (158112) от 20.12.2020
+
+The Blues Hopman - Snooze You Lose (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Don't Know (6:28)
+02. Ludy Low (5:06)
+03. Live My Life (5:24)
+04. It's Too Late (8:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7469E0E94C2F036DE7D046982D2BC3A581B098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433591   (154996) от 22.12.2020
+
+Aaron Schembri - City Lights (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Lights (2:25)
+02. Don't Mean Nothing (feat. Normie Rowe) (3:51)
+03. Don't You Worry Now (feat. Ross Wilson) (3:57)
+04. Good Enough For You (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE2B47966071301F5F19BFFFA4A119F8B674E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676814   (154349) от 15.11.2023
+
+Jaz Blues - Evening Romantic Blues Collection (2022) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evening Blues Collection [04:46]
+02. Soothing for Trouble [03:55]
+03. Crazy Blues (Enjoy Fun & Freedom) [03:49]
+04. Love Ain't Wait [04:17](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 01:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7631363869046B6B7EC0476CCF3D40DF2D9FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434054   (153569) от 23.12.2020
+
+Oniblu - Play The Blues (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hide & seek (4:04)
+02. I want you (3:52)
+03. Goodbye yesterday (2:52)
+04. Play the blues (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6510F3A34B98EB3F0E89C624CB053CC2D31F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086225   (153303) от 24.12.2016
 
 Fiona Boyes - Professin' The Blues (2016) [MP3|320 Kbps] <Blues>
@@ -655,128 +771,6 @@ Zola Moon - 7 Альбомов (1995 - 2010) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595119   (132146) от 29.12.2012
-
-Fiona Boyes - 7 Альбомов (2000 - 2011) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2000 - Blues In My Heart
-2003 - Gimme Some Sweet Jelly Roll
-2004 - Live in Atlanta
-2006 - Lucky 13
-2008 - Live From Bluesville
-2009 - Blues Woman
-2011 - Blues For Hard TimesЖанр: Blues |Продолжительность: 05:47:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596160   (131568) от 30.12.2012
-
-Cafe R&B - 4 Альбома (1998 - 2012) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1998 - Black & White
-2002 - Blues and all the rest
-2005 - Very Live (2CD)
-2012 - American MusicЖанр: BluesПродолжительность: 04:08:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596401   (130922) от 31.12.2012
-
-Jools Holland & His Rhythm & Blues Orchestra -  3 Albums (2010-2012)  [MP3|320 кб/с]<R&B\Boogie\Jazz\Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джулиан Miles "Jools" Holland, кавалер Ордена Британской империи ,(родился 24 января 1958), английский пианист, руководитель оркестра, певец, композитор и телеведущий.  Он был одним из основателей группы Squeeze и его работа привлекла его со многими художниками, в том числе Стинг , Эрик Клэптон , Марк Нопфлер(   Читать дальше...   )Список альбомов:
-
-2010-Rockinghorse
-2011-Jools Holland & Friends
-2012-The Golden Age Of SongЖанр: R&B \ Boogie \  Jazz \ BluesПродолжительность: 03:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBDC7412BA576DA562E1B855516FD0B9F97FD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684139   (127998) от 14.12.2023
-
-Joe Bonamassa - Merry Christmas, Baby (2023) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Christmas, Baby (Alternate Take) (05:14)
- 02. Christmas Boogie (One Little Kiss) (06:54)
- 03. God Rest Ye Merry, Gentlemen (Irish Rendition) (02:16)
- 04. Lonesome Christmas (03:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D021C3A8AC338818031F0B89326352E800B448F
 ```
 
 https://mybot314.ru/tekegram_catalog/

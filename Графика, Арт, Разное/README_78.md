@@ -1,3 +1,107 @@
+###  Публикация: 925289   (538891) от 07.08.2015
+
+Картинки - Космос [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки на космическую темуФормат: JPGРазрешение файлов: 1600x1140 - 8000x5333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47E5D224207E9DC1A4C58A4CCF79B2879E20627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239509   (538877) от 05.08.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 322 [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538877.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPG, PNGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50AECDD08E2F3BA38BDCA111F22F94035E95B074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239513   (538875) от 05.08.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (162) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFAEB64E94B81EE0A49E4BD8C5132CAAAFC5C9E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239521   (538870) от 05.08.2018
+
+Обои - Сборник разнообразных обоев 3840x2400 #012 [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка картинок на различную тематику.Формат: JPG, PNGРазрешение файлов: 3840x2400
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84516B3D0E624E8E6504D59D4389C2B1AE06AF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239514   (538863) от 05.08.2018
 
 Обои - Desktop Wallpapers Full HD. Part (254) [JPG]
@@ -565,111 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FBC75E478E71AF6647A13BFB85347BE9B418B41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533625   (532520) от 10.08.2012
-
-[Wallpapers] Обои на тему Море
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличные Обои на тему Море! Всегда мечтал жить возле моря....
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFCE0E3A0809560D94EFC89115463D90B0B5D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533227   (532519) от 10.08.2012
-
-Artworks by Laurent Logicfun [Графика]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artworks by Laurent Logicfun
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F36C42E59661DC39065AEDD094E4F26EAC6194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533443   (532307) от 10.08.2012
-
-[Art] Rodney Matthews
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классика Art.
-Автор обложек для Thin Lizzy, Tygers of Pan Tang (Crazy Nights), Diamond Head (Am I Evil) (Borrowed Time), Praying Mantis (Time Tells No Lies, Predator In Disguise), Nazareth (No Mean City), Scorpions (Lonesome Crow), and Eloy (Metromania and the picture disc for Time to Turn).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622C6C9538CFD7D0025D2539F40CE72B1B525F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926906   (531481) от 11.08.2015
-
-Картинки - Музыка [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки на музыкальную темуФормат: JPGРазрешение файлов: 1920x1080 - 6144x4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6620D97EF0BED14852FB047F0B7A58C59AA15D
 ```
 
 https://mybot314.ru/tekegram_catalog/

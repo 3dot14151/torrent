@@ -1,3 +1,90 @@
+###  Публикация: 1214506   (763989) от 22.03.2018
+
+VA - Best Vocal Trance 2018 Vol.1 (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sam Laxton feat. Noire Lee  -  Thunderstorm (Extended Mix)  5:30
+02.  Nitrous Oxide feat. Jess Morgan  -  Golden Horizon (Extended Mix)  7:01
+03.  A.R.D.I. & Anna Lee feat. Natalie Gioia  -  We Are Believers (Original Mix)  6:04
+04.  Craig Connelly feat. Kate Miles  -  Lost Without You (Extended Mix)  6:54(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02636FECFFE5BC24C127FCA2D9F6A5F16A6E88C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394129   (763738) от 05.07.2020
+
+VA - Green Atmospheric Sound (2020) [MP3|320 Kbps] <Ambient, New Age, Relax, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763738.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mugs - Stranger
+002. Tonic Strings - Wind's Color
+003. Spheruleus - Light Through Open Blinds
+004. The Power Of Inner Peace - Mind Mantra(   Читать дальше...   )Жанр: Ambient, New Age, Relax, DowntempoПродолжительность: 10:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D594415E1DACDC5176E6D285E000DC3BFDDE0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394423   (763727) от 05.07.2020
+
+VA - Record Super Chart 643 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. twocolors - Lovefool 3:11
+02. Cream Soda & ХЛЕБ - Плачу на техно 2:40
+03. Topic feat. A7S - Breaking Me 2:47
+04. Little Big - Hypnodancer 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5DB8B7F5869DB8F9FDCCA141BCB0856F152CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279996   (763689) от 01.02.2019
 
 VA - The Disco Mind: Funky Edition (2019) [MP3|320 Kbps] <Funky, Disco House>
@@ -658,93 +745,6 @@ VA - Record Super Chart 572 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A3E4230A19EA4EB8D33E8D67A6EC4103C88217D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280576   (760421) от 03.02.2019
-
-VA - Trance Collection Vol.75 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.R.D.I. - Lost In The Dark (Extended Mix) 7:15
-02. Gayax & Calvin O'Commor - Only The Beginning (Extended Mix) 7:03
-03. Misja Helsloot - Let's Get Back (Original Mix) 5:23
-04. Binary Finary - 1998 (20th Anniversary Extended Remix) 7:19(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 09:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4C76CCE0EEB8382D5C393DEA095303AECA5523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394823   (760393) от 07.07.2020
-
-VA - Beatport Deep House: Electro Sound Pack #123 (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Edvard Hunger - Warning Of Dance
-002. Jack Trump - Trumpet And Sax
-003. Kosta - Deep Down
-004. Deep Massive - Minor Swing(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF51E962A4CFF5D918018A8BF7FB01E60442F3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522159   (760360) от 06.01.2022
-
-VA - Beatport Electro House: Sound Pack #391 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760360.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 391-й музыкальный релиз от Beatport в стиле Electro House вошло большое число прекрасных замыслов, которые в лучшем виде добрались до слушателя. Композиции, составляющие танцевальный сборник, занимательны и чрезвычайно легки для слуха. Каждый на релизе отыщет ту самую запоминающуюся мелодию что будет крутиться в голове творя отличное настроение.001. Croatia Squad - Drop That Skirt
-002. Gabriel Pinheiro - Different Now
-003. Ronnie Spiteri - Demons
-004. Alban Berisha - Mirage(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640AE275E15B154E450F21EE2006C9A2B9297C88
 ```
 
 https://mybot314.ru/tekegram_catalog/

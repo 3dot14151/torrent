@@ -1,3 +1,32 @@
+###  Публикация: 905566   (649266) от 06.06.2015
+
+Schubert - The Piano Sonatas (Wilhelm Kempff) (Vol.2) (2000) 3CDs [FLAC|Lossless]<Classical, Romantic Period, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata No. 4 in A minor, D. 537 (Op. posth. 164)
+01. Allegro ma non troppo (07:32)
+02. Allegretto quasi Andantino (06:10)
+03. Allegro vivace (04:41)(   Читать дальше...   )Жанр: Classical, Romantic Period, SonataПродолжительность: 03:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96777A398870580785418F568E8E0DE92AAD44F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033602   (637927) от 11.07.2016
 
 Maria Grinberg - Beethoven: Piano Sonatas (vol 1,2) 1968 (2 Альбома) [FLAC|Lossless|image + .cue] <Classical, Solo Instrumental, Piano>
@@ -737,35 +766,6 @@ Piano Sonata no21 in Bf, D960
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE862730A30D7B0DA411E7B54AE6ABDDF474615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943318   (449432) от 03.10.2015
-
-Beethoven - Piano Sonatas Nos.8, 14, 23 (Rudolf Serkin) (2003) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Romantic Period, Classical Period, Sonata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata No. 8 in C minor ("Pathtique"), Op. 13
-01. Grave - Allegro di molto et con brio (08:51)
-02. Adagio cantabile (05:34)
-03. Rondo Allegro (04:07)(   Читать дальше...   )Жанр: Classical, Chamber Music, Romantic Period, Recitals, Classical Period, SonataПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E1035171262EF73A2E87114D4CB4B9A8505B95
 ```
 
 https://mybot314.ru/tekegram_catalog/

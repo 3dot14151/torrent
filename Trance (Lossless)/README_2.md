@@ -1,3 +1,32 @@
+###  Публикация: 1125091   (773451) от 13.04.2017
+
+Yaroslav Kulikov - Once In A Dream (2011) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once In A Dream (8:56)
+ 02. After Life (8:57)
+ 03. You Can Fly (7:30)
+ 04. New Horizon (7:07)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0A08D937F588EEA5F4AEB48E0DD454CF0C230E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125047   (773317) от 13.04.2017
 
 VA - Armin van Buuren - A State of Trance 800 (The Official Compilation) (2017) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Progressive Trance, Uplifting Trance>
@@ -712,35 +741,6 @@ VA - Woman Trance Voices Vol. 13 (2015) [FLAC|Lossless|tracks+.cue] <Trance, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E15CC6495026238FC48DFE06395847B2E203F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403078   (695942) от 17.08.2020
-
-VA - Discover Trance 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sly One vs. Jurrane - Everything to Me (Original Mix) (8:36)
-02. Adam Foley - Fourteen Falls (Original Mix) (8:21)
-03. Gary Maguire - Secrets (Original Mix) (7:29)
-04. Tom Colontonio - Subdued (Mike Nichol Remix) (7:50)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B4F0AA5243412C3C8D9F9DCB8A8A6EBC38B9E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

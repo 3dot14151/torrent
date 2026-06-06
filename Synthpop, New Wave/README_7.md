@@ -1,3 +1,119 @@
+###  Публикация: 930467   (510785) от 27.08.2015
+
+Lazerhawk - Skull and Shark (2013) [MP3|320 кб/с]<Electronic, Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skull and Shark (04:50)
+02. Chaos (04:50)
+03. Lawless (04:26)
+04. The King of the Streets (04:57)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54388FF7C8CBBD624A2C840A3B8585CD3A12C096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932194   (509985) от 28.08.2015
+
+Gunship - Gunship (2015) [MP3|320 кб/с]<Electronic, Synthwave, Dreamwav>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mountain (4:25)
+02. Revel in Your Time (4:07)
+03. Tech Noir (4:57)
+04. Shadow Fury (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, DreamwaveПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9C2C492DAFC7BE20E053117EE46D0388A48E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316540   (505160) от 27.07.2019
+
+Profil - Profil (серия "Другие восьмидесятые") (1982) CD, Album, Remastered, 2016, Genetic Music [MP3|320 Kbps] <NDW, New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beruhren (Single Version)
+02. 1964
+03. Schwimmen im Geld
+04. Regennacht(   Читать дальше...   )Жанр: NDW, New Wave, Synth-popПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B061053D5F1ED537BE9862FCCE70CF4B1AAC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316854   (503971) от 28.07.2019
+
+Yello - 3 Editions (2012, 2017) Remixes [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - The Key To Perfection
+2017 - Frautonium (The Andrew Weatherall Remixes)
+2017 - Limbo (The Remixes)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945B6C03A4AF07020E30F6DB3EA705820F95E443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565210   (496648) от 22.07.2022
 
 Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
@@ -629,122 +745,6 @@ Koto - Masterpieces (1989) [OGG|485 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31F271FC0B66DC17CAE9666FAABD959F4F86CA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570768   (438301) от 19.08.2022
-
-A-Ha - Lifelines (2002) Deluxe Edition, Remastered, 2019, Warner Music [OGG|485 Kbps] <New Wave, Synthpop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifelines
-02. You Wanted More
-03. Forever Not Yours
-04. There's a Reason for It(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 02:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441E89362247D2F2FBFAA616A4C933B54EB32073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945014   (437578) от 08.10.2015
-
-Hurts - Surrender (2015) Deluxe Edition [MP3|320 кб/с]<Synthpop, Pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrender
-02. Some Kind of Heaven
-03. Why
-04. Nothing Will Be Bigger Than Us(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35603F44878A987F06053B974EF3A11B16DE029F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571663   (425505) от 25.08.2022
-
-Sandra - Curated By Blank & Jones – So80s (Soeighties) Presents Sandra, 2CD (2012) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Magdalena (Extended Version)	7:11
-02. In The Heat Of The Night (Extended Version)	7:24
-03. Little Girl (Extended Version)	5:21
-04. Innocent Love (Extended Version)	6:46(   Читать дальше...   )Жанр: Synth-popПродолжительность: 02:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E209CC2FDCDF72104258A5419487690CE3946314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572212   (423517) от 26.08.2022
-
-A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps] <Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move To Memphis
-02. I've Been Losing You
-03. The Living Daylights
-04. Crying In The Rain(   Читать дальше...   )Жанр: New Wave, Synth-pop, Soft RockПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD57BA9B8D8506B924390CBDDDDBD8F77A6FEE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1541656   (637509) от 07.04.2022
+
+VVitchesmoon - Lilith, Star of Sorrow (2022) [MP3|320 Kbps] <Melodic Death, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Garden of Death [00:05:09]
+02 Fallen Light of Eden [00:08:00]
+03 Grail (Lucifer's Descent) [00:05:52]
+04 It Comes at Dusk [00:07:30](   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A93998F64EE5A2E4931AA78849DCDECE3894D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541424   (637507) от 07.04.2022
 
 The Violent Inzident - This Is Nu Metal! (2022) [MP3|320 Kbps] <Nu-Metal>
@@ -717,35 +746,6 @@ Drowning The Light - From The Abyss (2015) [MP3|320 кб/с]<Raw Black Metal, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B624A0DD7958070F3FCD074F673A3DF57326549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294358   (629982) от 07.04.2019
-
-Silver Bullet - Mooncult (2019) [MP3|320 Kbps] <Power Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629982.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - 1590 Edinburgh (Intro) (2:05)
- 2 - She Holds the Greatest Promise (5:06)
- 3 - Forever Lost (4:45)
- 4 - Maiden, Mother and Crone (4:47)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E582FC9C7D283F4E180372257576F194C9FEB1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

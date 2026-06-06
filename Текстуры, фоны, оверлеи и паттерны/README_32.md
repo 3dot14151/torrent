@@ -1,3 +1,55 @@
+###  Публикация: 1791873   (21234) от 16.04.2025
+
+Фоны - STCrafts - Creative Fabrica - French Cottagecore Blue Floral Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синие цветочные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E82B4308782BF3F39977F516630B1FC61C60AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791886   (21230) от 16.04.2025
+
+Фоны - STCrafts - Creative Fabrica - Neon Yellow Damask Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неоново-жёлтые Дамасские цифровые бумажные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D6864C741609D838A8D264948F91E84426ED1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791888   (21222) от 16.04.2025
 
 Текстуры - STCrafts - Creative Fabrica - Luxury Indigo Texture Digital Paper [PNG]
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C39B82F29BACDFAA0E40F9CA5A030A3034FFAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796032   (18394) от 13.05.2025
-
-Паттерны - Free PSD Templates - Tropical Patterns [JPG, PNG, AI, PSD, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тропические орнаменты (паттерны) в векторе и растре с дополнениями.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 1496 x 1490 - 2986 x 2319
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61DD052B7BCA740FCD5527E72EAEB5C3EE2E2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796698   (17780) от 19.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Starry Night Watercolor Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельные фоны с изображением звёздной ночи.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF489405CC6BBB22FC57FCF4259B8F0CCA7A62EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

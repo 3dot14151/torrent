@@ -1,3 +1,119 @@
+###  Публикация: 1239501   (538982) от 05.08.2018
+
+Limelight - Special Love - Re-Tubed (2018) 2CD, Special Edition [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Love (06:24)
+02. Hold Me Tigh (07:03)
+03. Call Me (07:02)
+04. I Want Your Love (07:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA50E04D2205DEEC4CD133E65B659F8F5DC3D364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239414   (538873) от 05.08.2018
+
+VA - New Italo Disco Top 25 Compilation Vol.9 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limelight - Forever Lovers (Re-Tubed Radio) 4:29
+02. Angelico - Forever Love (Short New Generation Dance Mix) 4:04
+03. Ken Martina - Another Melody (Short NRG Mix) 4:39
+04. Tommy Sun - Dancers (Mega Short Dance Mix) 5:16(   Читать дальше...   )Жанр: Italo-Disco, NuDisco, HiNRG, DanceПродолжительность: 01:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A1F6519EE13AC6C8EB0BC393AB37516C5D4660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050582   (536577) от 09.09.2016
+
+Charlie Mike Sierra - On The Moon (1977) LP [MP3|320 Kbps] <Electronic, Disco, Ambient>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственный  проект французкого исполнителя музыки в стиле спейс-диско Charlie Mike Sierra (настоящее имя - Raymond Jeanno).01. Venus (4:33)
+02. Battle Of The Stars (4:13)
+03. Lunar Orbital (3:54)
+04. On The Moon (7:08)(   Читать дальше...   )Жанр: Electronic, Disco, AmbientПродолжительность: 00:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA23569D46FAAD9C2CD9AA1EB8D24AC5A787E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558052   (535705) от 18.06.2022
+
+The Freedom Machine - 2 Albums (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Samba (2:33)
+02. Disco Coutry (3:38)
+03. Free Love (4:40)
+04. Disco Samba (Instrumental) (2:34)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7A075171B11F9F2E7B190CEAB1DC2BE74A2A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558182   (533654) от 19.06.2022
 
 Midnight Magic - Do It 'N Dance (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -635,119 +751,6 @@ King Sporty - Mr. Rhythm (1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C691EAD2E01218CFD86779E1A2F7D78E55313B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318285   (496586) от 05.08.2019
-
-Tight Fit - The Lion Sleeps Tonight (1982) Vinyl Rip [MP3|320 Kbps] <Pop, Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lion Sleeps Tonight    [03:29]
-02. Fantasy Island    [03:36]
-03. Hearts Of Stone    [04:09]
-04. Break Hearts Of Glass    [03:21](   Читать дальше...   )Жанр: Pop, Disco, ElectronicПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E636F0F46CD90385B1875C26035B0E6FDB8CB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243095   (496002) от 25.08.2018
-
-Angie Gold - 4 Albums (1982-2012) [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя Angelina Fiorina KyteСписок альбомов:
-1982 - A Lady Of Gold
-1986 - Applause
-1988 - Angie Gold(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 03:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC9D852F7F82E843B9F5CF1629099C97D22FEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565360   (494665) от 23.07.2022
-
-Bananarama - Masquerade (2022) [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494665.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Favourite (3:07)
-2. Stay Wild (3:48)
-3. Velvet Lies (2:48)
-4. Masquerade (4:14)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8C751A4F15759B0AF8083A816910C28EA8B066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565355   (494564) от 23.07.2022
-
-Bad Boys Blue - 25-The Long Mixes (2022) [MP3|320 Kbps] <Disco, Dance, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A WomanЖанр: Disco, Dance, HouseПродолжительность: 02:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49108438C0B73AAA2A6D3C47862090D9218D7FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

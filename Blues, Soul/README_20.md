@@ -1,3 +1,61 @@
+###  Публикация: 918829   (586001) от 16.07.2015
+
+B.B. King - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Introduction (3:29)
+02.  The Thrill Is Gone (5:04)
+03.  Sweet Little Angel (5:11)
+04.  Nobody Loves Me But My Mother (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C6471B257BAFAB33E4CF3060AAE50DF219F75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918920   (584935) от 17.07.2015
+
+Isaac Farr Trio - Blue Highway (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Highway (02:34)
+02. Circles (03:40)
+03. The Music (03:53)
+04. Sweet Lucy (03:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D195940088A1064FE8EC437035AB2452E29BBF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918867   (584886) от 17.07.2015
 
 Big James And The Chicago Playboys - The Big Payback (2012) [MP3|320 кб/с]<Blues>
@@ -693,70 +751,6 @@ Lil' Cliff & the Cliffhangers - The Lovin' Kind (2011) [MP3|320 кб/с]<Blues /
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:808988848416720A7EE153BDB01185A47E7953C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529229   (569337) от 30.07.2012
-
-VA - Crucial Acoustic Blues (2007) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Guy  & Junior Wells - High Heel Sneakers (4:57)
-02. Lonnie Mack with Stevie Ray Vaughan - Oreo Cookie Blues (4:52)
- 03. Carey&Lurrie Bell - Stop Running'Round (4:24)
- 04. Steady Rollin' Bob Margolin with Nappy Brown - Downin The Alley (4:17)
- 05. Saffire - The Uppity `Blues Women - Sloppy Drunk (3:09)
- 06. Koko Taylor with Keb'Mo' - The Man Next Door (5:14)
- 07. John Jackson - Railroad Bill (4:02)
- 08. Johny Winter - Evil On My Mind (2:21)
- 09. Cephas & Wiggins - Trouble In Mind (3:07)
- 10. Sonny (   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1F1E85F288731D282B6D8A7BE093747D62BD9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922575   (568231) от 29.07.2015
-
-Marvin Gaye - Les Genies du Rock - Live (1993) [MP3|320 кб/с]<Soul,Funk,R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I heard it through the grapevine (4:57)
-02.  Come get to this (3:00)
-03.  Let's get it on (5:20)
-04.  God is love (2:32)(   Читать дальше...   )Жанр: Soul,Funk,R&BПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94988D0AE896166157C2EFEBA0E803C1CAB9212A
 ```
 
 https://mybot314.ru/tekegram_catalog/

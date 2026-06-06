@@ -1,3 +1,90 @@
+###  Публикация: 1342587   (222597) от 03.12.2019
+
+Kalax - III (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, 80s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 86' (3:50)
+ 02. Let Go (feat. Anton Vic) (4:50)
+ 03. Dream (5:05)
+ 04. Not Alone (feat. Player One) (5:17)(   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave, 80sПродолжительность: 01:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C37E31EC276D08F97FAB7F5F0954CA3E4CEBB2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585321   (222529) от 21.10.2022
+
+2raumwohnung - Club Mix Collection (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electro House, Indie Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wir Werden Sehen (Solomun Vox Remix) (7:17)
+ 02. Das Ist Nicht Das Ende Baby (Westbam/ML Re-Rub) (5:25)
+ 03. Bei Dir Bin Ich Schön (Ian Pooley Remix) (6:20)
+ 04. Mir Kann Nichts Passieren (Glove Grand Disco Remix Edit) (4:37)(   Читать дальше...   )Жанр: Synthpop, Electro House, Indie DanceПродолжительность: 02:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B2181B4B940E9AC705390C583D1BAF337AB8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651657   (221181) от 07.08.2023
+
+Philtron - None (1997) [FLAC|Lossless|image + .cue] <Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 No One To Blame 4:39
+02 Nowhere Girl
+04:09
+03 Higher 4:17(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB87AE7ACE22A23865667AF8831B956C8DA6B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343268   (220151) от 05.12.2019
 
 Frankmusik - Day Break (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Electropop>
@@ -656,93 +743,6 @@ Analog '82 - Sunsets and Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AB1225F06451D3A5D056A69FCFD9257F2BBE770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657610   (192436) от 04.09.2023
-
-The Midnight - Red, White and Bruised: The Midnight Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Dream Wave, Electronic, Songwriter, Synth Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heroes (Live) [00:06:11]
-02. Change Your Heart or Die (Live) [00:03:13]
-03. Brooklyn. Friday. Love. (Live) [00:04:08]
-04. Gloria (Live) [00:04:39](   Читать дальше...   )Жанр: Dream Wave, Electronic, Songwriter, Synth PopПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAEA008B26A168B94666712FBD60F3B09ADC1657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588645   (191357) от 05.11.2022
-
-Soft Cell - *Happiness Not Included (2022) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Happy Happy 4:46
-02. Polaroid 4:41
-03. Bruises On My Illusions 4:45
-04. Purple Zone (With Pet Shop Boys) 3:11(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2D00AD5E3E8A0C98136C0CD3F5CF4BAEFC09C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589710   (189654) от 11.11.2022
-
-a-ha - True North (2022) [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm In (5:06)
-02. Hunter In The Hills (4:11)
-03. As If (4:56)
-04. Between The Halo And The Horn (4:11)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CA0BF491A1110DB81A31598EFBDE30EA94BACE
 ```
 
 https://mybot314.ru/tekegram_catalog/

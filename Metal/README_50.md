@@ -1,3 +1,32 @@
+###  Публикация: 910005   (624213) от 19.06.2015
+
+Telergy - Hypatia (2015) [MP3|320 кб/с]<Epic / Symphonic / Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scene, No. 1
+02. Astronomer
+03. Scene, No. 2
+04. Philosopher(   Читать дальше...   )Жанр: Epic / Symphonic / Progressive MetalПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D621941F7D8D803D5D85AFDD4B609C4BF1C104D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909983   (624068) от 19.06.2015
 
 Savatage - Return To Wacken (2015) [MP3|320 кб/с]<Progressive / Heavy Metal>
@@ -719,35 +748,6 @@ Tears of Heaven - 2 Albums (2015, 2022) [MP3|320 Kbps] <Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62913532BEAFB3EA163B49733002692C598FB1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911378   (616583) от 23.06.2015
-
-Vangough - Living Madness (2015) [MP3|320 кб/с]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depths of Blighttown (Live)
-02. Afterfall (Live)
-03. Separation (Live)
-04. Infestation (Live)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8534AD1B7848C97133AE5149BA6172DF6488F12
 ```
 
 https://mybot314.ru/tekegram_catalog/

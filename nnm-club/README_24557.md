@@ -1,22 +1,22 @@
-###  Публикация: 472444   (97480) от 23.03.2012
+###  Публикация: 1740343   (105915) от 01.08.2024
 
-Формула 1. Гран-При Малайзии. 2-ая свободная практика (2012) HDTV [1080i]
+Газета | Народный совет №30 (16 июля 2024) [PDF]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:40:10
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76EF954EB8C0FD769CC7384F5CBE91A529E7D916
+magnet:?xt=urn:btih:474B52EE68A9FBA354E42BE7704D7C3A1BBFDB9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472050   (97479) от 23.03.2012
+###  Публикация: 1740248   (105914) от 01.08.2024
 
-[Wallpapers] Desktop wallpapers (22.03.12)
+Jeff Coffin - Only the Horizon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Here We Go (8:11)
+02. Yesterday's Dream (4:24)
+03. Pharoah Rise (7:32)
+04. A Hat For My Beard (4:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:233F40E3E7A4E3F750613649302FCF92748AA6D1
+magnet:?xt=urn:btih:C0FE022624B31BB2D386A5EA8CF7827BC4DDCB4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472043   (97477) от 23.03.2012
+###  Публикация: 1740337   (105913) от 01.08.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (22.03.12)
+Газета | Народный совет №29 (9 июля 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB89B0F8576D8ECBE05DC750E26B68D20DB71636
+magnet:?xt=urn:btih:550E54075FF5ACA50542C89CCE9388FB5B47A2AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472044   (97476) от 23.03.2012
+###  Публикация: 1740240   (105912) от 01.08.2024
 
-[Wallpapers] Best HD Wallpapers Pack (22.03.12)
+Erin Stevenson - Cover Girl Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. I Need Your Lovin' (4:38)
+02. Everlasting Love (4:13)
+03. Perfect Island Night (5:02)
+04. Save Your Love For Me (4:39)(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:51:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE479A87E60327744187EA637DA804824BA2AB53
+magnet:?xt=urn:btih:B3681FE153BEC1349EA1B14707D62C14CFB0B2D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,29 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472401   (97472) от 23.03.2012
+###  Публикация: 1740255   (105911) от 01.08.2024
 
-[Wallpapers] HD Pictures №7
+Газета | Народный совет №25 (11 июня 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №7
-Название: HD Pictures №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6612A261603468982326119ADE089A6577951A5D
+magnet:?xt=urn:btih:51A156273AE56F4FB2A48527CD1D2122C3D4301C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,25 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472265   (97471) от 23.03.2012
+###  Публикация: 1740256   (105910) от 01.08.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (24.03.12)
+Газета | Народный совет №26 (18 июня 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC291A407757D4E69E3A079CCEE4B731C7281D62
+magnet:?xt=urn:btih:7D63F4FF6251FE9CBAF4FCCD1BD8E948E5573ACF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,25 +160,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472054   (97470) от 23.03.2012
+###  Публикация: 1740386   (105909) от 01.08.2024
 
-[Wallpapers] Films Wallpapers (22.03.12)
+Ron Keel - Keelworld (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Hollywood (3:27)
+02. Hard on the Outside (Heart on the Inside) (5:02)
+03. Moving Target (4:21)
+04. Five O'clock Shadows (6:03)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:51:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00B23C5E0D2CE8771071563801792973E0767880
+magnet:?xt=urn:btih:06119F79DE773A26ADF1E0E672AEA002CE585F31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,25 +189,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471881   (97469) от 23.03.2012
+###  Публикация: 1740229   (105908) от 01.08.2024
 
-Водная жизнь (серия 3 из 26) / Water Life (2007) BDRip [720p]
+Adrian Iaies - Cada mañana te trae (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:29:27
+01. In a Twelve Mood (5:17)
+02. Dignidad (6:15)
+03. Cada mañana te trae (7:01)
+04. Al paso que vamos (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA98D70C168CA289DD2E5AF21318A74D6F546EAA
+magnet:?xt=urn:btih:2DC1C8F16B1365A3EAC419ADB6FC6A138B7C40FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,29 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472418   (97468) от 23.03.2012
+###  Публикация: 1740350   (105907) от 01.08.2024
 
-[Wallpapers] Nature Pictures №34
+Газета | Народный совет №31 (23 июля 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №34
-Название: Nature Pictures №34
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3CB1E89F8B59EFFB1AF71EE14FE2616A2AD5C13
+magnet:?xt=urn:btih:8664316CF7AA3DFD2C0B0B8A8632FDAE8FA3ACBD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -240,25 +244,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472071   (97467) от 23.03.2012
+###  Публикация: 1740187   (105906) от 01.08.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (23.03.12)
+Kazaky - The Hills Chronicles (2014) [WavPack|Lossless|image + .cue] <Synth-pop, Electro House>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01		Symphony No. 404	1:09
+02		Game Over	2:50
+03		I Can't Stop	3:10
+04		Last Night	3:28(   Читать дальше...   )Жанр: Synth-pop, Electro HouseПродолжительность: 00:40:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0B3A07E60DF26FC47C0F7996AE5199CE87E2A3C
+magnet:?xt=urn:btih:2F0F2FFA948488C71A9194659AFB5DBA1314D248
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -266,25 +273,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472270   (97466) от 23.03.2012
+###  Публикация: 1740371   (105905) от 01.08.2024
 
-[Wallpapers] Best HD Wallpapers (24.03.12)
+Armin Van Buuren - Live at Tomorrowland Winter 2024 (Mainstage) [Highlights] (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Electronic>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01 - Live at Tomorrowland Winter 2024 (Intro)Жанр: Trance, Progressive Trance, ElectronicПродолжительность: 00:42:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8291924B466B48325091C7628CE00FF82C32D43
+magnet:?xt=urn:btih:CC6F6EDB9B2317042A007C62EEC63EAADECB0DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,25 +299,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472078   (97465) от 23.03.2012
+###  Публикация: 1740277   (105904) от 01.08.2024
 
-[Wallpapers] Best HD Wallpapers Pack (23.03.12)
+NanoStorm - Mister Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Progressive Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Compass
+02. Hall of Dreams
+03. Seven Signs
+04. Message from the Ghosts(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:47:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA020B7BAB07EC430B344C75A683E0D21699C80B
+magnet:?xt=urn:btih:48681A9FE8BEFF10E3FFB8A5B256CE5FD74AE0FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,25 +328,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471876   (97463) от 23.03.2012
+###  Публикация: 1740254   (105903) от 01.08.2024
 
-Водная жизнь (серия 2 из 26) / Water Life (2007) BDRip [720p]
+Akroasis - Hubris (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:28:01
+01 - Nemesis
+02 - Most Atrocious Deed
+03 - Insult The Gods
+04 - Before A Fall(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEEC196C490C5CD2A47C4CF6D0B57BA0DFB2491A
+magnet:?xt=urn:btih:1E5DE0F1231A061F01407472C0429C26D676E1B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,25 +357,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472051   (97462) от 23.03.2012
+###  Публикация: 1740259   (105902) от 01.08.2024
 
-[Wallpapers] Best Mixed Wallpapers (22.03.12)
+Газета | Народный совет №28 (2 июля 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4578BF2B7C9150B646C6584B836F3B590A94096E
+magnet:?xt=urn:btih:38C1C31EA4938A1B9C0E01ADA127E05FBD22F3FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,25 +383,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472053   (97461) от 23.03.2012
+###  Публикация: 1739918   (105901) от 01.08.2024
 
-[Wallpapers] Girls Wallpapers (22.03.12)
+Bright Light Bright Light - Life Is Easy (2014) 10th Anniversary Deluxe Edition, 2024, YSKWN! [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Dance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Everything I Ever Wanted [00:04:16]
+02. There Are No Miracles [00:04:12]
+03. I Wish We Were Leaving (feat. Elton John) [00:03:59]
+04. An Open Heart [00:03:42](   Читать дальше...   )Жанр: Synthpop, DanceПродолжительность: 01:56:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16407446C489124AFE97712CB2A2BE3469F863FA
+magnet:?xt=urn:btih:746EE602694A058513A1DF54135B1E8A6A4C00E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,25 +412,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471615   (97456) от 22.03.2012
+###  Публикация: 1740233   (105900) от 01.08.2024
 
-Буги-вуги / Boogie Woogie (2009) DVD5
+Connor Sablan - Hot Pot (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Владелец галереи современного искусства Арт Спиндл горит желанием купить картину «Буги-вуги». Это полотно украшает дом Альфреда Ринегольда, который не желает его продавать ни за какие деньги. Помимо Спиндла, на «Буги-вуги» положил глаз еще один коллекционер. Желающих купить шедевр немало, и всех их связывают непростые личные отношения…Жанр: Драма, Комедия, МелодрамаРежиссер: Дункан УордАктеры: Джиллиан Андерсон, Алан Камминг, Хэзер Грэм, Дэнни Хьюстон, Джек Хьюстон, Кристофер Ли, Джоанна Ламли, Саймон МакБерни, Мередит Остром, Шарлотта РэмплингПеревод: Многоголосый закадровыйПродолжительность: 01:30:32
+01. Dreams Of Clouds (0:45)
+02. Wakin' Up, Pt. 1 (2:09)
+03. Wakin' Up Pt. 2 (6:48)
+04. Hummingbird (6:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:26
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E1F59DA9C04BD9D07C494443FAC231456E111BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,25 +441,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471772   (97455) от 22.03.2012
+###  Публикация: 1740241   (105899) от 01.08.2024
 
-BurnAware Free 4.8 Beta 2 [Rus/Eng/Ukr]
+HPM & Vega - Game On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BurnAware - простая, но могучая программа для записи и копирования всяких дисков - CD, DVD, Blu-Ray, HD-DVD и копирования CD и DVD. Программа может исполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; мультисессии и многое другое. Имеется многоязычный интерфейс, (   Читать дальше...   )Язык интерфейса: Rus/Eng/Ukr
+01. Dragon Fighter (3:41)
+02. Beach Racer (3:51)
+03. Fantasy Flight (4:54)
+04. Way of the Samurai (6:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:15
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CD53F07E5EA2BF10CAE033BB51B8BE71B109E272
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,33 +470,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471878   (97453) от 22.03.2012
+###  Публикация: 1740162   (105898) от 01.08.2024
 
-Janice Finlay - Anywhere But Here (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz>
+Sarke - Endo Feight (2024) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_97453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The Houston Shuffle
-2. Anywhere but Here
-3. Bye Bye Blackbird
-4. When I Go Away
-5. The Pillaging Pug
-6. Good Neighbours (Make Great Fences)
-7. Remember Me
-8. Song for Selim
-9. A Harbinger of Swing to Come - Movements I & II2011Жанр: Jazz, Mainstream JazzПродолжительность: 01:04:56
+1. Phantom Recluse
+2. Death Construction
+3. Lost
+4. Abyssal Echoes(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:36:51
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:450C299520B4493D49E94B5147BA0D9BA5C2DE56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,26 +499,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471572   (97452) от 22.03.2012
+###  Публикация: 1740236   (105897) от 01.08.2024
 
-Раймонд Чандлер | Китайский жадеит [2001] [MP3]
+Emaginario - Interlude of the Duende (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цикл: John Dalmas
-Оригинальное название:2001Жанр: Детектив
+01. Beginning With A Groove (3:29)
+02. Continuance (4:33)
+03. Roaming (3:52)
+04. Solace and Descent (4:12)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:432AAA5F97125DB437A4FEA7B197E74E4ED61429
+magnet:?xt=urn:btih:FA83D5DAB6C888992CB3885A726E5497B541F504
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,34 +528,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471509   (97449) от 22.03.2012
+###  Публикация: 1740245   (105896) от 01.08.2024
 
-VA - XXXL Клубный Весна (2012) [MP3|192 kbps]<Club | Dance>
+Immanuel Trio - Divinity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ritmo Playaz - Everybody Loves The Sunshine (Mike La Funk Remix)
-02. DJ Shevtsov feat. Shena - Face Control (Marty Fame Radio Edit)
-03. Shakira feat. Pitbull - Rabiosa (DJ Pasha Lee & DJ Dmitriy Tsoy Remix)
-04. Morandi - Serenada (Roma Star Remix)
-05. DJ Mafia - Love (DJ Kapuzen & DJ Paul Taylor Remix)
-06. Cabballero - Paris Latino 2k11 (Sean Finn Remix)
-07. Kevin R feat. Naomy - Kiss Me (Damien N-Drix Remix)
-08. Akcent - My Passion (Emin K & Ansarov Remix)
-09. Sander Van Doorn - Koko (Original Mix)
-10. DJ Vengerov feat. Plazma - Angel of Snow (Radio Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 08:23:24
+01. Divinity (5:48)
+02. The Walk (5:42)
+03. Don't Get Eaten By a Whale (5:12)
+04. Words To Calm a Storm (3:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:244458298CC507A5E3291D285D28A519ECB2AEA7
+magnet:?xt=urn:btih:F53E680354468407211F84288B4B941C438B4C7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,34 +557,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470558   (97443) от 22.03.2012
+###  Публикация: 1740231   (105895) от 01.08.2024
 
-Various Artists - Tranceffect 17 (2012) [MP3|320 кб/с]<Trance>
+Bria Skonberg - What It Means (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sound Players- Baiana (Paul Miller Vs Ronald de Foe Remix)
-02. Tiddey-Savage Emotions (am Reconstruction 2011)
-03.C-Systems- Daylight (Trance Arts Dub)
-04.Sophie Sugar- Day Seven (am Reconstruction 2010)
-05.Matt Davey- Apocalypse (Matt Skyer Remix)
-06.Talla 2XLC & Skysurfer- Terra Australis (Jorn Van Deynhoven Remix)
-07.Thrshold- Bad Promoter (Club Mix)
-08. Mosahar- Trance 2008 (TrancEye Remix)
-09.Nurettin Colak Conception (Arctic Moon Remix)
-10.Plastic Boy- Silver Bath (Glyn Waters Remake)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:56
+01. Comes Love (4:30)
+02. Sweet Pea (3:40)
+03. Do You Know What It Means to Miss New Orleans (4:13)
+04. The Beat Goes On (6:51)(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:55:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:832469C8237D598969050E9926F9A7634DE8DE68
+magnet:?xt=urn:btih:9B737AD3E6A87926CD8FEBD4B06E658512F7C841
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,34 +586,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471309   (97441) от 22.03.2012
+###  Публикация: 1740247   (105894) от 01.08.2024
 
-VA - Organic Wick (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+Jan Wouter Oostenrijk - Maghreb Jazz Guitar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Silicon Sound - Hyperion (Screenagers remix) 08:24
-02. Cabal - Roll The Drums 07:44
-03. Osher & Avshi - The 60s 08:14
-04. Interval - Nautilus (original mix) 07:31
-05. Sideform - Santo Daime (Relativ remix) 08:42
-06. Twina and Aza Syndrom - Cutting Edge (Science remix) 07:52
-07. Dimension X - Night Sensations 09:45
-08. Ace Ventura & Intelabeam - The John (Mute remix) 08:52
-09. Aqualize - Land of 2 Suns (Klopfgeister remix) 10:02
-10. NOK - Messed Up 08:07(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:20:46
+01. L Blaed I Musiqya (3:36)
+02. Nardis (3:56)
+03. My Favourite Things (4:52)
+04. Haghighi (5:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BEF255561CAF4D4C5A0AC7FC4664C3576434025
+magnet:?xt=urn:btih:BACF7956D4820DE59CB9E5615610EB90F8719588
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,29 +615,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471980   (97440) от 22.03.2012
+###  Публикация: 1740230   (105893) от 01.08.2024
 
-[Wallpapers] HD Pictures №6
+Big Steel Train - #BST24 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Country Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №6
-Название: HD Pictures №6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Get Up, Get Out, Get Down (3:23)
+02. Blame It On Love (3:48)
+03. Freedom (3:06)
+04. A Hundred Ways (3:10)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:34:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23163F83939E5FF186C063FC0DDD96F690842ED1
+magnet:?xt=urn:btih:E3FA5165FC3FB10036D8E57D40575A522BDCCB9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,25 +644,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471884   (97439) от 22.03.2012
+###  Публикация: 1740289   (105892) от 01.08.2024
 
-Водная жизнь (серия 4 из 26) / Water Life (2007)  BDRip [720p]
+Twilight Force - Studio Albums (4 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:27:31
+Twilight Force — шведская симфо-пауэр-метал группа, известная своими фантастическими текстами и костюмами в стиле LARP, в которых группа выступает на сцене.2014 - Tales Of Ancient Prophecies
+2016 - Heroes of Mighty Magic
+2019 - Dawn of the Dragonstar
+2023 - At The Heart Of WintervaleЖанр: Symphonic Power MetalПродолжительность: 03:49:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFF763FB9D51FE7772BEA9C9903999239DB43432
+magnet:?xt=urn:btih:AD589F083EA91A4EDC8B7244B1533D2143A25F54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,34 +673,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470990   (97438) от 22.03.2012
+###  Публикация: 1740292   (105891) от 01.08.2024
 
-SRS - Совместный [DNИL, DiZou, Benny] (2012) [MP3|256, 320 кб/с]<Rap, Hip-Hop>
+Аркадий Гайдар | Судьба барабанщика (2007) [MP3, Денис Кулютников]
 
->>Архив торрентов
->>Архив Музыки
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (DiZou, DNИL, Benny)
-02. О своём (Benny, DNИL, DiZou, Alex Grey, SLY)
-03. Отрадный (solo: DNИL)
-04. Возвращение (DNИL & KSENIA)
-05. Все реже (DNИL & DiZou)
-06. Каждому своё (DNИL & DiZou)
-07. НеделА (DiZou, DNИL, Benny)
-08. Давай братан (solo: DiZou) 256 кб/с
-09. Время (DNИL & DiZou)
-10. Пару историй (Benny & DNИL)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 01:22:22
+Серия/Цикл: Аудиокнига.
+Аркадий Петрович Гайдар (1904–1941) – известный советский детский писатель, участник Гражданской и Великой Отечественной войн. О своей повести «Судьба барабанщика»" А.П. Гайдар писал так: «Эта книга не о войне, но о делах суровых и опасных – не меньше, чем сама война». Повесть очень ждали. Гайдар к тому времени уже был практически классиком (   Читать дальше...   )Жанр: Русская литература для детей, классика, повестьИздательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 03:40:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F021582CD9904FB29AFFBA08EADF2E645C623D8F
+magnet:?xt=urn:btih:7CC49C2948F2ECEAE831890BC21FE4749425B741
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,33 +700,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471442   (97437) от 22.03.2012
+###  Публикация: 1740257   (105890) от 01.08.2024
 
-Borknagar - Urd (2012) [MP3|192 кб/с]<Black Metal / Progressive Viking/Folk Metal>
+Газета | Народный совет №27 (25 июня 2024) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Epochalypse 06:08
-2. Roots 05:55
-3. The Beauty of Dead Cities 04:15
-4. The Earthling 06:51
-5. The Plains of Memories 04:27
-6. Mount Regency 06:08
-7. Frostrite 04:50
-8. The Winter Eclipse 08:45
-9. In a Deeper World 05:422012Жанр: Black Metal / Progressive Viking/Folk MetalПродолжительность: 00:53:01
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A21BBAD42D6D82304EB39EFA7302D9765B4C1751
+magnet:?xt=urn:btih:9DBD20F589A7E418E5704568AF8ED5B5426E81D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

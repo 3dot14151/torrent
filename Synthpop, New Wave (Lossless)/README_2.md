@@ -1,3 +1,61 @@
+###  Публикация: 1461171   (1021963) от 09.04.2021
+
+Siamese Youth - Echoes of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Now (3:38)
+02. So Far from Home (3:33)
+03. Young Nights (3:50)
+04. Making Me High (3:38)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E471B7A54215B3EDD2BBA1B5670BB2083EADCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461175   (1021950) от 09.04.2021
+
+W O L F C L U B (Wolfclub) - Just Drive - Part 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Drive (feat. Summer Haze) (3:32)
+02. A Sea of Stars (feat. Dora Pereli) (3:19)
+03. Fever Dream (feat. Dora Pereli) (3:57)
+04. Shoulder Blades (4:32)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B825EEBD8445F877FE7103D07AAF5AABE8B22A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461155   (1021936) от 09.04.2021
 
 VA - Pure Synthpop, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -687,64 +745,6 @@ Space Project - The Return Of Space Raiders (2008) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAD137E8949C4CACFDAFD5DB94DF784F5A55C695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354532   (987881) от 22.01.2020
-
-Alphaville - Salvation (1997) Reissue 2000, Metropolis Records [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Inside Out [5:17]
- 02 - Monkey In The Moon [3:53]
- 03 - Guardian Angel [4:14]
- 04 - Wishful Thinking [3:48](   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD27FB51CD789F28C36903233BA671F0679C6271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354808   (986975) от 23.01.2020
-
-Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will-o-the-wisp
-02. You are the one
-03. Happy people
-04. Dreamland (feat. Years & Years)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F289E7D50E4A9F2AA00FA0B36ACD1D8763EFB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

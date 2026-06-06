@@ -1,3 +1,61 @@
+###  Публикация: 1505894   (801812) от 29.10.2021
+
+VA - Chillout Orange, Vol. 7: Relaxing Chillout Vibes (2021) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Kay, Samanta Liza - Summer Love / You Are Still Here (Ibiza Mix) (4:21)
+02. Martin Hiska - Intimate (4:28)
+03. The Soul Crusaders - Heroes (5:46)
+04. Ian Otta - Flowerfields (5:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B16611B2F2C490CA4EE31D8AADA001D7D56415C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505893   (801811) от 29.10.2021
+
+VA - Chillout Orange, Vol. 6: Relaxing Chillout Vibes (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - La Nuit (Original Mix) (5:46)
+02. The Soul Crusaders - In My Dreams (7:31)
+03. Eivissarts - Solaris (Original Mix) (5:05)
+04. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCE14889BF6D23E0673257437E87C6440ACBF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199256   (801708) от 15.01.2018
 
 Борг/Макинрой / Borg McEnroe (2017) WEB-DLRip [576p] iPad
@@ -648,64 +706,6 @@ VA - Toxic Lounge Tunes, Vol. 5 (2013) [AAC|~331 Kbps] <Downtempo, Lounge, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F173C8919E8EFF7F3F8D758039549F0999583ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506420   (800265) от 31.10.2021
-
-Chrizz Morisson - Magic Worlds (2021) [AAC|~326 Kbps] <Dance, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chrizz Morisson, Timi Kullai, Lightwarrior - Let's Get Up (Radio Mix) (4:47)
-02. Chrizz Morisson, Latisha Van Simon - Near Me (Cm Tropical Mix) (3:41)
-03. Chrizz Morisson, Timi Kullai - Here I Go (Radio Mix) (3:23)
-04. Chrizz Morisson, Latisha Van Simon - From Here on Up (Cm Tropical Mix) (3:20)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99C10E3E4DFC5C6B5B729300C57A0C641AB7A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506421   (800264) от 31.10.2021
-
-Chrizz Morisson - Universe (2021) [AAC|~330 Kbps] <Dance, House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chrizz Morisson, Rick De Hey, Timi Kullai - Blue (Da Ba Dee) (Radio Mix) (3:40)
-02. B.G. The Prince Of Rap, Chrizz Morisson, Timi Kullai - Sugar (House Radio Mix) (3:23)
-03. Chrizz Morisson, Fio - Feel Free (Radio Mix) (3:49)
-04. Chrizz Morisson, Marko Skye - Calling of My Heart (Airplay Radio Mix) (3:44)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8380402504CB26E9EA68A536F3A08FB8CEEE7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

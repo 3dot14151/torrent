@@ -1,3 +1,32 @@
+###  Публикация: 932165   (508926) от 29.08.2015
+
+Halsey - BADLANDS (2015) Deluxe Edition [MP3|320 кб/с]<Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castle
+ 02. Hold Me Down
+ 03. New Americana
+ 04. Drive(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE9F78EC8E546F194F9F7694699B6E279355564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538792   (507465) от 25.08.2012
 
 Roxette - It's Possible (Unofficial Release) & The Sweet Hello, The Sad Goodbye (Bassflow Remake) (2012) [MP3|~245 кб/с (V0)]<Pop, Pop-Rock>
@@ -731,35 +760,6 @@ Autumn Hill - Anchor (2015) [MP3|320 кб/с]<Country Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F4C97387E2272B80061AD959A0A348B1E54BE3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936967   (492372) от 13.09.2015
-
-Superhumanoids - Do You Feel OK? (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anxious In Venice (04:08)
-02. Oh Me I (04:21)
-03. Norwegian Black Metal (04:01)
-04. Touch Me (03:55)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C07E99B94833A0C9D134DBDA4CCF2312666510F
 ```
 
 https://mybot314.ru/tekegram_catalog/

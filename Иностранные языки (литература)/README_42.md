@@ -1,3 +1,329 @@
+###  Публикация: 460914   (79604) от 02.03.2012
+
+Н.И. Жукова | Шведский без репетитора (2004) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель этого учебного пособия — помочь вам
+• овладеть разговорной речью;
+• освоить чтение шведской периодики.
+Первая часть книги дает основы базовой грамматики шведского языка и лексический минимум,(   Читать дальше...   )Жанр: Изучение иностранных языковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C464798D73D00ACA8A7B64095E4C0864583244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456968   (78068) от 23.02.2012
+
+ЕШКО | Итальянский для начинающих (1992) [MP3 + PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый, кто побывал в Италии, навсегда сохранит в памяти очарование этой красивой страны и темперамент ее жителей. Путешествия по городам с многовековой историей – Флоренции, Венеции, Риму – наглядно свидетельствуют о том, что культурное наследие Италии – одно из самых удивительных на свете. Итальянский язык считается одним из самых мелодичных и певучих языков мира. (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5320F08A9A3A83FBB1C6AAA953C0EA6AE0820E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785727   (69199) от 17.03.2025
+
+Марина Кулинич | Лингвокультурология юмора (на материале английского языка) (1999) [DOC]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена лингвистическому изучению юмора на материале английского языка. Рассматриваются проблемы социолингвистики, этно-лингвистики, прагмалингвистики и лингвистической семанотики при описании способов выражения юмора на уровне слова, предложения и текста. Анализируются юмористические речевые акты и формы бытования юмора в англоязычной культурной общности: (   Читать дальше...   )Жанр: Монография. Лингвокультурология. Этнолингвистика.Издательство: СамГПУФормат: DOCКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9F6250259A08E8D7045DDAF214430CDE7B18D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706996   (63017) от 14.03.2024
+
+Веня Пак | +300 английских слов и выражений (2024) [PDF] [AD]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63017.jpg" />
+</div>
+
+
+###  Подробнее
+
+✅Трендовая лексика
+Слова собраны по 15 самым популярным темам, чтобы ты точно чувствовал себя уверенно в любой ситуации: от похода к врачу до переговоров на работе
+✅Словарики с картинками
+Все существительные, прилагательные и глаголы представлены картинками для быстрого восприятия и легкого запоминания лексики(   Читать дальше...   )Жанр: Английский языкИздательство: LinguatripФормат: PDFКачество: Изначально электронное (ebook)Реклама: Сторонние наложение на страницы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF366E537639F4FAEF29644F6244F154B011380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247488   (62513) от 19.03.2024
+
+Х.Х. Исматуллаев | Самоучитель узбекского языка [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_62513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самоучитель узбекского языка - Книга помогает в короткие сроки овладеть навыками устной узбекской речи. Книга включает 21 урок и состоит из 3х частей. Самоучитель идеально подойдет для начинающих изучать узбекский язык самостоятельно.
+I часть—«Фонетический курс»— включает 6 уроков. Задача данной части: раскрыть элементарные особенности звукового строя узбекского (   Читать дальше...   )Издательство: "Укитувчи"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DD43CABA5B8A147D83765A566000F85481E260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 198497   (62512) от 19.03.2024
+
+М. Махадов | Самоучитель таджикского языка [1993] [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_62512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее учебное пособие "Самоучитель таджикского языка" составлено для тех, кто не знает или плохо владеет таджикским языком. Оно состоит из 20 уроков. Каждый урок рассчитан на 4-5 часов занятий. Учебный материал построен так, чтобы облегчить усвоение особенностей таджикского разговорного языка. Грамматические правила и формы даются в свободном положении (   Читать дальше...   )Издательство: МаорифФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796BBF9B24DEB7366EFF1A534B483E303FE76B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725495   (55389) от 25.05.2024
+
+Carl W. Hart | The Ultimate Phrasal Verb Book: For ESL and EFL Students (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Presents 400 common phrasal verbs as they are used in everyday English. Updated information includes the most commonly used phrasal verbs, hundreds of examples in context and hundreds of exercises to increase fluency and prep for the TOEFL, and more.
+Updated to reflect questions found on the most recent ESL tests, this book (3rd ed.) presents 400 common phrasal verbs (   Читать дальше...   )Жанр: Учебное пособиеЯзык: английскийИздательство: Barron's Educational SeriesФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B273F64343477922F28BBE357591CE3312FFFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726156   (55212) от 27.05.2024
+
+Dorling Kindersley | Ultimate Visual Dictionary (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55212.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Ultimate Visual Dictionary is a visual dictionary of over 33,000 frequently explored places and things, from the origins of the universe to modern technology.
+The section is divided into 14 main sections, including Animals, Railroads and Railroads, Music, and others, each with its own table of contents, allowing readers to find a graphic definition of an object (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Penguin Random HouseФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5919DAF4906ABAD2B49F2F5565FB303D929771C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726852   (54882) от 30.05.2024
+
+Adrian Wallwork | Jokes: Have a Laugh and Improve Your English (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jokes are a perfect format for learning vocabulary, idiomatic expressions, and grammar.
+The book also contains exercises designed to reveal whether you have understood the joke or not:
+A joke is presented to you but with the paragraphs mixed up. Your task is to put them in the correct order.
+Several two-line jokes are presented together. The task is to match the (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0C8B10CACA9783AE7E843C22F10698452DAF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726925   (54797) от 31.05.2024
+
+Jean Yates | Practice Makes Perfect English Vocabulary for Beginning ESL Learners. Practice Makes Perfect (2021) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54797.jpg" />
+</div>
+
+
+###  Подробнее
+
+The go-to guide for learning and reinforcing American English vocabulary for beginning ESL learners—now enhanced with audio recordings through the McGraw-Hill Language Lab app
+English Vocabulary for Beginning ESL Learners helps you develop your vocabulary and comprehension skills with practice in word building, analyzing new words, and using them in conversation. (   Читать дальше...   )Жанр: учебникЯзык: английскийИздательство: McGraw-HillФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3BE40541807CF9D0FBAA1ACD0A5E25B54278B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727238   (54674) от 01.06.2024
+
+Mark Lester | English Verb Tenses Up Close (2012) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Solve the mysteries of English verbs.
+Practice Makes Perfect: English Verb Tenses Up Close puts the spotlight on this tricky grammar trouble spot. It boasts plenty of opportunities for practicing your language skills, as well as extensive examples based on a conversational style that will keep you engaged. The book also features a unique answer key that gives you (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57E0AE5B603547218B4EBCCC97F45D964F1CE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728053   (54238) от 05.06.2024
+
+Andrew Scott Conning | The Kodansha Kanji Learner's Course (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54238.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Step-by-Step Guide to Mastering 2300 Characters is a complete guide to mastering all the kanji needed for genuine literacy in Japanese. It anchors a comprehensive kanji learning system, supported by the KLC Graded Reading Sets, the KLC Green Book, the KLC Wall Chart, and keystojapanese.com (a user-support website for forming study groups, exchanging tips, and tracking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Kodansha USAФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966F8A8F12270C65B46E2D9C6A025081819171D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728127   (54173) от 06.06.2024
 
 Angeles Gavira, Christine Stroyan, Angela Wilkes (еditors) | Spanish English Bilingual Visual Dictionary (2017) [PDF] [EN]
@@ -371,330 +697,6 @@ Rules / explanations.(   Читать дальше...   )Жанр: учебно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC0124C77E3BF966E5B837BF12DDA5D08E4E3B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729755   (53517) от 12.06.2024
-
-Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53517.jpg" />
-</div>
-
-
-###  Подробнее
-
-TOEFL iBT recycles opinion-based and fact-based arguments for testing purposes from start to finish. If you want a high score, you need essential argument scoring strategies. Learn how to maximize scoring by rhetorically analyzing all reading, listening, speaking and writing tasks.
-
-TOEFL iBT от начала до конца использует аргументы, основанные на мнениях и фактах, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Nova PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715D24F212003636D31D0ED782DFED5315683BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729947   (53447) от 13.06.2024
-
-Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn over 500 words and move up a level with our course book English Unlocked! Over 100 pages of quality learning. Your complete, self-study English learning pack.
-Inside...
-How to learn English with us.
-How to access Hot English.(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Hot English PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729889   (53429) от 13.06.2024
-
-Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53429.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Complete Guide to Japanese Kanji: (JLPT All Levels) Remembering and Understanding the 2136 Standard Characters includes: Clear, large-sized entries, All of the General Use Joyo Kanji Characters, Japanese readings and English meanings, stroke-count, stroke order, usage examples, mnemonic hints for easy memorization.
-This book is essential to anyone who is planning (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Tuttle PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694FCFBB3F2F0059BD04B7C066AC096A08FDA040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729994   (53425) от 13.06.2024
-
-Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um curso para estrangeiros. (2 издание) (2006) [PDF] [PT]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Falar, ler, escrever português - Um curso para estrangeiros. Livro do aluno (com a nova ortografia). Este livro, através de método estrutural-comunicativo, leva o aluno totalmente principiante a entender, falar, ler e escrever português com fluência e segurança, em nível de linguagem coloquial correta. É destinado a adultos (   Читать дальше...   )Жанр: учебное пособиеЯзык: португальскийИздательство: Editora Pedagogica E UniversitariaФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3C6A64105D054650E9AAF5BE824E889D690137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730121   (53344) от 14.06.2024
-
-Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53344.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Language Files: materials for an Introduction to Language and Linguistics" has become one of the most widely adopted, consulted, and authoritative introductory textbooks to linguistics ever written. The scope of the text makes it suitable for use in a wide range of courses, while its unique organization into student-friendly, self-contained sections allows (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Ohio State University PressФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6437FFBC83466B028F2FDDD63E19795B5E383E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730102   (53300) от 14.06.2024
-
-Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53300.jpg" />
-</div>
-
-
-###  Подробнее
-
-The stories, events, and teachings contained in the scriptures of the Old and New Testaments of the Bible, from Genesis to Revelations explained with accessible text and bold graphics.
-The Bible Book explores the ideas and beliefs key to the teachings of the most widely printed religious book of all time. This highly visual book highlights more than 100 of the most (   Читать дальше...   )Жанр: познавательная религиозная  литератураЯзык: английскийИздательство: D.K. PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730336   (53231) от 15.06.2024
-
-Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfect Phrases for ESL: Conversation Skills is filled with hundreds of ready-to-use English phrases to help you navigate your way through social and business situations. There are phrases for talking with friends, offering opinions, collaborating with co-workers, addressing misunderstandings, and more. The book also includes common slang expressions you can use (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730355   (53196) от 15.06.2024
-
-Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth edition (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53196.jpg" />
-</div>
-
-
-###  Подробнее
-
-The concise clarity of this book makes it a handy reference for anyone interested in good writing-as well as a quick and ideal guide for freshman composition courses, writing courses across the disciplines, and as a supporting text in courses that require clear and direct writing. Style: The Basics covers the elemental principles of writing that will help students (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E416F10F811A7EE26633C8CECD81EF672328FEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730316   (53194) от 15.06.2024
-
-Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (2018) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comprehensive subject review for every section of the exam
-Valuable practice with complex reading comprehension passages and higher-level math problems
-7 full-length practice tests (4 in the book, 3 online) with detailed answer explanations
-Drills for each test section—Reading, Writing and Language, and Math(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Princeton ReviewФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730568   (53105) от 16.06.2024
-
-Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53105.jpg" />
-</div>
-
-
-###  Подробнее
-
-French Conversation is the go-to guide for expanding conversational fluency. Organized into 11 units, it presents realistic everyday dialogues, followed by helpful instruction on correct syntax and word usage, as well as lots of conversation-ready phrases.
-Inside... you'll learn how to Engage in dialogues that illustrate practical conversations. Expand your French (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730512   (53100) от 16.06.2024
-
-Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth edition (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legal English is a professional language. This book is designed for law students who have followed their law studies in a language other than English. Textbooks on English law are too detailed for those who want to understand English legal terminology rather than English law itself. Legal dictionaries are useful but, as the words are ordered alphabetically, terms (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Eleven International PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18755FDA78A431A8EC3EBCF7450AE1F988BD0387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730899   (52888) от 18.06.2024
-
-Rod Ellis, Natsuko Shintani | Exploring Language Pedagogy through Second Language Acquisition Research (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52888.jpg" />
-</div>
-
-
-###  Подробнее
-
-The ideal text for all students studying language teaching methods, language teacher education, English teaching methodology and second language acquisition modules in advanced undergraduate and postgraduate/graduate TESOL and Applied Linguistics courses.
-Routledge Introductions to Applied Linguistics is a series of introductory level textbooks covering the core (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
 ```
 
 https://mybot314.ru/tekegram_catalog/

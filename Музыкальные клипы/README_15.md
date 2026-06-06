@@ -1,3 +1,55 @@
+###  Публикация: 663800   (750690) от 02.06.2013
+
+Винтаж - Знак Водолея (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483AA5E6CC8E03A37F8D2E4141EAA4930E0D3F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663793   (750682) от 02.06.2013
+
+Ани Лорак - Оранжевые сны (2013) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087A024763672B1F59F6A639B9991C0991A7DC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 323682   (746871) от 15.04.2011
 
 [FR] Zaz - Zaz / Limited Special Edition (Интервью + Концерт + Видеоклипы) (2010) DVD5
@@ -646,64 +698,6 @@ VH1 All Classics Hits (2005) 10xDVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286385   (708721) от 04.03.2019
-
-Сборник клипов - Multinational Dance Hits - Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернациональный сборник танцевальных клипов, во имя мира во всем мире. Лучшее 2014 - 2019 г. Много позитива, тропического солнца и теплого моря в зимнюю стужу. Это 1я часть. Обложка и блины для дисков в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Multinational Dance Hits - Intro
-01. Dan Balan & Tany Vander & Brasco - Lendo Calendo
-02. Andrew Rayel & Emma Hewitt - My Reflection
-03. Jorge Gonzalez - Tu Boquita(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 05:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAE013E8E5CE504BCC9B3E06EE6AAC4D3EC494C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025184   (705582) от 14.06.2016
-
-VA - Millenium Melody 6 (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник популярных клипов01 Lana Del Rey - High By The Beach
-02 Taylor Swift - Style
-03 ZHU - Faded
-04 Fly Project feat. Misha - Jolie(   Читать дальше...   )Производство: РоссияЖанр: РорПродолжительность: 01:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF0D23F93EF1FB3776A119A42991B2A75CCD98F
 ```
 
 https://mybot314.ru/tekegram_catalog/

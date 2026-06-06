@@ -1,3 +1,143 @@
+###  Публикация: 465083   (81043) от 09.03.2012
+
+Ice MC - Disco Collection (2001) [MP3|320 кб/с]<Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laika
+02. Scream
+03. Easy
+04. OK Corral
+05. Dolce Vita
+06. Gone With The Wind
+07. Cinema
+08. Think About The Way
+09. It's a Rainy Day
+10. Russian Roulette(   Читать дальше...   )2001Жанр: EurodanceПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66687A10653F15C2EEEB30C4398E8C1ED4F03B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464810   (81030) от 09.03.2012
+
+Alphaville - 18 Legendary Hits (2003) [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81030.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wishful Thinking Physical 5:52
+2. Sounds Like A Melody 4:23
+3. Guardian Angel 4:11
+4. Big In Japan 3:52
+5. Forever Young 3:42
+6. Sensations 3:58
+7. Jerusalem 3:32
+8. Control 3:32
+9. Soul Messiah 4:52
+10. Jet Set 3:33(   Читать дальше...   )2003Жанр: Pop, DiscoПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3E4B25582975BFEAE1004EC74D695B4E997765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464963   (80997) от 09.03.2012
+
+Savage - Gold (1994) [MP3|320 кб/с]<Pop, Italo Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_80997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry Tonight (3:50)
+02. Only You (3:36)
+03. Radio (4:38)
+04. A Love Again (5:24)
+05. Fugitive (6:42)
+06. Time (4:38)
+07. Computerized Love (3:35)
+08. Celebrate (3:02)
+09. Love Is Death (3:41)
+10. I'm Losing You (3:22)(   Читать дальше...   )1994Жанр: Pop, Italo DiscoПродолжительность: 01:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6758B2183FC7D6693259B1DA8565EBF10ED10032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464852   (80961) от 09.03.2012
+
+Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames Of Love (4:03)
+02. Bolero (4:06)
+03. Slice Me Nice (5:27)
+04. Lady Of Ice (4:38)
+05. L.A.D.Y. O. (4:23)
+06. Chinese Eyes (4:29)
+07. Latin Fire (4:07)
+08. Bodyguard (6:27)
+09. Fools Cry (5:37)
+10. Way Of Love (4:26)(   Читать дальше...   )2007Жанр: Disco, PopПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686800487AE1B343E3EDA7D1B14F9EFABFC46FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463191   (80695) от 07.03.2012
 
 ABBA - Collected (2011) [MP3|320 кб/с]<Pop, Disco>
@@ -648,122 +788,6 @@ VA - Italo Strikes Back (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:442330AA72B28E82F625146C1A9DAB4063C67CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776550   (71175) от 02.02.2025
-
-VA - Italo Strikes Back (1997) [MP3|320 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valerie - The Night
-02. Good Vibes - Survivor
-03. Cascada Feat. Mirabella - Fotonovella
-04. Syn-Tonic - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66935EBE8CEA3B3DDD70B7737E03577482552964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776729   (71164) от 02.02.2025
-
-VA - Italo Strikes Back Vol. 2 (1998) 2 CD [MP3|320 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J.V.P. - Rofo's Theme
-02. Xenon - Firewalker
-03. Matura - Commanchero
-04. DJ Jacques - Malestripper(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 02:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B90618AE046DC98B4F08D83C437A9356DDE25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779216   (70567) от 15.02.2025
-
-VA - Billboard Top Hits 1977 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heatwave - Boogie Nights
-02. Alan O'Day - Undercover Angel
-03. Daryl Hall And John Oates - Rich Girl
-04. Peter Frampton - I'm In You(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4491ED213700004BC81C11888F63EEE0686BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779288   (70540) от 16.02.2025
-
-VA - Billboard Top Hits 1978 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - We Are The Champions
-02. Nick Gilder - Hot Child In The City
-03. Bonnie Tyler - It's A Heartache
-04. Abba - Take A Chance On Me(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACF89801BAF9CE8D134B63201B47860DFA251C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

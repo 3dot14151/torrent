@@ -1,3 +1,61 @@
+###  Публикация: 1467219   (1017724) от 04.05.2021
+
+Vivaldi · Tartini · Boccherini - Cellokonzerte - Cello Concertos (1978) 1989,  Deutsche Grammophon ‎; Серия: Galleria [FLAC|Lossless|image + .cue] <Baroque, Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto No. 2 D-dur
+1 Allegro 6:43
+2 Adagio 5:09
+3 Allegro 4:48(   Читать дальше...   )Жанр: Baroque, ClassicalПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BC1C958B3EA0AE74B7B6F5F8B8810807941E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467680   (1017559) от 05.05.2021
+
+Marais - Dialogues: Pieces en re mineur Livre I & Pieces en sol majeur Livre I (2015) [FLAC|Lossless|image + .cue] <Classical chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pièces En Ré Mineur (11:48)
+1 Prélude 2:14
+2 La Folette 1:28
+3 Sarabande 3:11(   Читать дальше...   )Жанр: Classical chamberПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98079315A74AFCBDC3BCD6579D93EDEEF0C4CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467787   (1017526) от 05.05.2021
 
 Изысканная элитарность. «Созвездие хитов. Классика» - J.S. Bach, Beethoven, Bizet, Brahms, Wagner, Vivaldi, Глинка, Grieg, Liszt, Massenet, Paganini (2008) [FLAC|Lossless|tracks + .cue] <Classic ...
@@ -708,79 +766,6 @@ Antonio Lucio Vivaldi-New Discoveries Modo Antiquo Federico Maria Sardelli (2008
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D990C9FA48968D75B43A0A908588EC714C5A370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599846   (996829) от 15.01.2013
-
-Муслим Магомаев - Арии из опер Муслим Магомаев (2002) [MP3|320 кб/с]<Classical>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ариозо Дон Жуана
-02.Ариозо Кончака
-03.Ариозо Онегина
-04. Ария Аслан шаха
-05.Ария Гасанхана
-06.Ария Гремина
-07.Ария Игоря
-08.Ария Каскара
-09.Ария Мардана
-10.Ария Риголетто(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA89DED14128C0FE42B9219071A9AFC1C8D5EF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603824   (996684) от 16.01.2013
-
-Wolfgang Amadeus Mozart–Complete Church Sonatas Wiener Akademie organ conductor Martin Haselbock (2005)/[WavPack (iso.wv)|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996684.jpg" />
-</div>
-
-
-###  Подробнее
-
-P.S.
-"Я не вполне уверен в том, что ангелы, намереваясь воздать хвалу Господу, играют именно Баха,
-но я уверен вполне, что друг для друга они играют Моцарта, и господь радуется, слушая их..."
-Карл Барт.(   Читать дальше...   )1.	Sonate C- Dur für Orchester und Orgel KV 329 (317a) (März 1779?)	[04:25]
-2.	Sonate A-Dur KV 225 (241b) (1775/76)	[03:57]
-3.	Sonate B-Dur KV 68 (41i) (1772)	[04:04]
-4.	Sonate D-Dur KV 69 (41k) (1772)	[03:52]
-5.	Sonate F-Dur KV 145 (124b) (1772)	[03:04]
-6.	Sonate F-Dur KV 224 (241a) (1775/76)	[04:19]
-7.	Sonate Es-Dur KV 67 (41h) (1772)	[02:23]
-8.	Sonate C-Dur KV 328 (317c) (1779)	[04:29]
-9.	Sonate C-Dur für Orchester und Orgel KV 263 (1777)	[02:45]
-10.	Sonate G-Dur KV 241 (1775/76)	[03:47](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A26384F717A0F476C4FCA9A9AD27B4594DB94D
 ```
 
 https://mybot314.ru/tekegram_catalog/

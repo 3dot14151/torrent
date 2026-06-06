@@ -1,3 +1,55 @@
+###  Публикация: 1370467   (896861) от 27.03.2020
+
+Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Welicoruss - Siberian Heathen HordeЖанр: Symphonic Black MetalПродолжительность: 00:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA077C0DA401DE771FFA7DB0074270AD8EF1BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370383   (896789) от 27.03.2020
+
+Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kreator - 666 - World DividedПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC16AC00C258849B28DD85D03CAEB3A7A2FE55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370470   (896755) от 27.03.2020
 
 Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
@@ -647,61 +699,6 @@ A History of Rock за 15 минут. 348 рок звёзд, 84 гитарист
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F43FC0F1B877CAC8CB25B3951883AFCF24DB5708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372669   (883628) от 04.04.2020
-
-Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Heavy Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Testament - Children Of The Next Level (2160) PCMПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8265FC9DCCB4E9CA444D1A61FDABD9EC1CFF02CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372777   (883626) от 04.04.2020
-
-Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM, Dark Electro>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883626.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2008 Hocico - Drowning - Banned (480)
-002 2009 Hocico - Born To Be (Hated) (Metetelo Por El Culo) (480)
-003 2011 Hocico - Bite Me! (1080)
-004 2015 Hocico - Bienvenido A La Maldad (1080)(   Читать дальше...   )Производство: Out Of LineЖанр: Aggrotech, EBM, Dark Electro, Electro-IndustrialПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9B8DF6AE67E058A3E5362ADD4324810DB1B6FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

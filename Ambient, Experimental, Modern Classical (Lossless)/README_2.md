@@ -1,3 +1,32 @@
+###  Публикация: 1480924   (1008596) от 01.07.2021
+
+beatfarmer - The Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Light (06:03)
+ 02. Teatime (ambient mix) (07:34)
+ 03. The Moon Called Out to Me (09:14)
+ 04. Dawn Breaking (06:19)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B3764D6F24E93FE9092452BA237398DFD61E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056205   (1008536) от 01.07.2021
 
 Eluvium (Matthew Robert Cooper, Martin Eden) - Discography 30 Releases (2003-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Modern Classical, Drone, Experimental>
@@ -705,35 +734,6 @@ Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D118F05BCCC219730154303CE5C79193BEF9FCC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356031   (980523) от 29.01.2020
-
-Ed Carlsen - Morning Hour (2019) Moderna Records [FLAC|Lossless|WEB-24Bit|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Light (01:43)
-02. Whisper (03:22)
-03. The Gallery (03:31)
-04. Words (04:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36549A0144731C458A2AD5888C5F3F142DE5E213
 ```
 
 https://mybot314.ru/tekegram_catalog/

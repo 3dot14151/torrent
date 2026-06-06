@@ -1,3 +1,32 @@
+###  Публикация: 1007836   (814834) от 18.04.2016
+
+Максим Фадеев - Oil plant (2016) [MP3|320 кб/с] <Chillout, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814834.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. #1 11:21
+2. #2 04:09
+3. #3 07:28
+4. #4 03:12(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE02EB91B8CAB9809CF0DF0876AD913888B08E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197695   (813918) от 08.01.2018
 
 David Hollandsworth - Voices of Peace (2018) [MP3|320 Kbps] <New Age, Ambient, Modern Classical>
@@ -713,35 +742,6 @@ Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8154AA91BDCF72D5937F9967FE23AF083BF7613C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276736   (787614) от 17.01.2019
-
-VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Sunshine - Alala (Intro Chill Mix)
-02. Illegal Substances - Lost Civillization (Edit)
-03. Ufomatka - Sunrise On Venus
-04. The Same Old Souls - Strange Light Anomalies(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 03:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EF0BA8E934DB69AFD18A8263A2D394BFF6DA9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

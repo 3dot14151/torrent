@@ -1,3 +1,90 @@
+###  Публикация: 1272215   (145543) от 26.12.2018
+
+Duran Duran - The Biggest And The Best (2012) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, Pop-Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is There Something I Should Know? (4:12)
+02. The Reflex (7' Version) (4:26)
+03. A View To A Kill (3:37)
+04. Rio (5:37)(   Читать дальше...   )Жанр: Synthpop, New Wave, Pop-Rock |Продолжительность: 02:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1878471B706C70F46846E2BB20C421710FD94F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272107   (145537) от 26.12.2018
+
+VA - Space Holidays Vol. 10 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NM - Interstellar Discovery (4:06)
+02. SynthOne - Electric Legend (5:39)
+03. Rama - Organix (5:13)
+04. Galaxy Hunter - Space Ship Two (One) (Instrumental) (5:35)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 02:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31774A27BFDC81338726C5686647AF06A4169C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272102   (145500) от 26.12.2018
+
+BELLATRIX - I Love KOTO - Covers and Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acknowledge
+02. Chinese Revenge
+03. Dragon's Legend
+04. Jabdah(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3E8B5DF77B75A198DA0F26DFC816596B412F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272474   (144630) от 27.12.2018
 
 SZMC - Dark Energy (The Album) (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
@@ -658,93 +745,6 @@ Starcadian - Sunset Blood  (2013) Special Edition, Remastered, 2023 , Starcadian
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73F024A2B5E211125464AAF0FF1EAB0EEB333ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686139   (126599) от 22.12.2023
-
-горные цветы¿ - Психический коллапс (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth-Pop, Synth-Wave, Lo-Fi, Dark-Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:01:20]
-02. Снова слушать и молчать [00:02:49]
-03. Выход [00:01:55]
-04. Среда [00:02:38](   Читать дальше...   )Жанр: Synth-Pop, Synth-Wave, Lo-Fi, Dark-WaveПродолжительность: 00:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2347402A92ECC26DB07B3BB0342EA2344916D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686962   (126239) от 24.12.2023
-
-VA - Turbo Drive, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NightCrawler - Nemesis (3:56)
-02. Turbo Knight - Rasengan (5:08)
-03. Jessy Mach - You Can Change (4:10)
-04. New Arcades - Solace (4:05)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E05DEC74037EFC7410C5A320A374DA74D8349A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686960   (126236) от 24.12.2023
-
-VA - Turbo Drive, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betamaxx - Integrated Circuitry (4:02)
-02. Le Matos - Overdog (6:30)
-03. Absolute Valentine - She Is a Dancer (4:22)
-04. Das Mortal - The Curse (3:26)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAFFC7875B4620BFB775A27F43E6540AD2CCAB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

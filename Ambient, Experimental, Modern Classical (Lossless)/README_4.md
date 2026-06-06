@@ -1,3 +1,32 @@
+###  Публикация: 759260   (909124) от 21.02.2014
+
+Sinepearl - Cycles Within Cycles Within (2014) [FLAC|Lossless|WEB-DL]<Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great Wobble (14:28)
+ 02. Miryjudi Goes South (10:05)
+ 03. Illusion Of Control (8:52)
+ 04. Light Of The First Quarter (6:48)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46EAF7806353C888A1628662CADDFFB8B51CE395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491661   (908724) от 26.08.2021
 
 Xu & Darren Harper - Arising & Ceasing Of Things (2021) Rottenman Editions [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -707,35 +736,6 @@ Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC 2.0|44.1/24|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:721A619BA56015EF8AC1688C5E93EC5E2C4C7D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379680   (837701) от 30.04.2020
-
-Juta Takahashi - Collection 7 Releases (2007-2019) Lunisolar Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pleochroism (14:22)
- 02. Faint Light (10:54)
- 03. Pleochroism 2 (20:50)
- 04. Soarer (15:54)Тип издания: CD, WebЖанр: AmbientПродолжительность: 06:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F180D3EDC728550786B3A9F36228F80D81149B1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

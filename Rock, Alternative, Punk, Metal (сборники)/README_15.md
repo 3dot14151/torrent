@@ -1,3 +1,148 @@
+###  Публикация: 1385833   (795836) от 27.05.2020
+
+VA - Classic Rock Drive (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795836.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Supertramp - Give A Little Bit 4:08
+002. The Doobie Brothers - Listen to the Music 3:47
+003. Queen - Somebody To Love 4:56
+004. Eagles - Take It Easy (2013 Remaster) 3:32(   Читать дальше...   )Жанр: RockПродолжительность: 10:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C65FE94DE6C2569EE4F5BA7359C70BC931EAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012152   (795565) от 29.04.2016
+
+VA - Alternative Spring by Evaluator Pt.1 (2016) [MP3|192-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Decyfer Down - Believe in Me
+02. Hour 24 - Take Me Away
+03. Throw The Fight - Bury Me Alive
+04. Cilver - It's My Life(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1E262817EA7BBB920997B85EEBD54D8B0B3B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386251   (795197) от 28.05.2020
+
+ACDC - 100% ACDC live! (2020) 3CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock N Roll Train (Live at River Plate Stadium, Buenos Aires, Argentina - December 2009)
+02. Whole Lotta Rosie (Live)
+03. Problem Child (Live Tv Appearances 1976 - 1978)
+04. Problem Child (Live)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 14:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5269D02B9AAEE79881259936632948137E4AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386484   (794402) от 29.05.2020
+
+VA - Led Zeppelin & worshippers - Live! (2020) 3CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Led Zeppelin - Heartbreaker (2007 Remastered Live Version from The Song Remains The Same)
+02. Led Zepagain - Immigrant Song
+03. Led Zeppelin - Over The Hills And Far Away (2007 Remastered Live Version from Song Remains The Same)
+04. Letz Zep; Billy Kulke; Andy Gray - Immigrant Song (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 24:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC0C51AF5946255DDFCA73F8CFD4E66765E476E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386443   (794395) от 29.05.2020
+
+Slade - 100% Slade in live! (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear Me Calling (Live; 2009 - Remaster)
+02. Rock 'n' Roll Preacher (Slade On Stage 1982)
+03. Darling Be Home Soon (Live; 2009 - Remaster)
+04. Everyday (Slade Alive! Vol. 2 1978)(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 02:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE559BA1CA40EFE6DCC7CE021E49998774D46CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122233   (794370) от 05.04.2017
 
 VA - Rock Anthem Classics (2017) [MP3|320 Kbps] <Rock Anthem Classics>
@@ -600,151 +745,6 @@ VA - The correct Legend of Rock (2020) 6CD [MP3|320 Kbps] <Rock, Hard Rock, Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB3B9CBC3F4BDAB931989A1737489F81A39F5628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204215   (784886) от 05.02.2018
-
-VA - Rock Burning Sounds (2018) [MP3|320 Kbps] <Rock, Alternative, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784886.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Moles - Out of Control
-002. NRBQ - Yes, I Have A Banana
-003. David West - Reds for the Blues
-004. Guano Apes - Open Your Eyes(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 08:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3424632F3F64263C07BA066B194C9713961CEDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389575   (784240) от 11.06.2020
-
-VA - 80s Alternative (2020) [MP3|320 Kbps] <Alternative,  Indie Rock, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784240.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Smiths - This Charming Man (Single Version; 2008 Remaster) (2:43)
-2. The Cure - Pictures Of You (Remastered) (7:28)
-3. Joy Division - Love Will Tear Us Apart (3:26)
-4. David Bowie - Let's Dance (2018 Remaster) (4:09)(   Читать дальше...   )Жанр: Alternative,  Indie Rock, RockПродолжительность: 04:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783C05C9CE2D7E4894DD8E69833FAB038053ABCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389606   (784214) от 11.06.2020
-
-VA - Music for You vol.4 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solence - 4 Good Reasons (03:17)
- 02. Solence - Animal In Me (03:07)
- 03. Solence - Blackout (03:20)
- 04. Solence - Paralyzed (03:52)(   Читать дальше...   )Жанр: Rock, Metal, Progressive MetalПродолжительность: 03:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAAE3359870B0F1296738FF1F862606D5D98263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389858   (783893) от 12.06.2020
-
-Twisted Sister - The Platinum Collection (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783893.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. What You Don't Know (Sure Can Hurt You) (04:46)
- 02. We're Not Gonna Take It (03:41)
- 03. Love Is For Suckers (03:26)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78F087FDA03DB3350E0A46C6B682A18FF398C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389869   (783867) от 12.06.2020
-
-Led Zeppelin - 100% Live albums (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Shook Me (23/3/69 Top Gear; 2016 Remaster)
-02. Communication Breakdown (Live on Tasty Pop Sundae from BBC Sessions; 2016 Remaster)
-03. No Quarter (2007 Remastered Live Version From The Song Remains The Same)
-04. Dazed and Confused (3/23/69 Top Gear; 2016 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 09:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6873933DD31D960AE142071294A8B67B158B456D
 ```
 
 https://mybot314.ru/tekegram_catalog/

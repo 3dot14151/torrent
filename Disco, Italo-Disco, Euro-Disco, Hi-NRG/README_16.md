@@ -1,3 +1,61 @@
+###  Публикация: 1135591   (681103) от 19.05.2017
+
+Persia - Persia (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comme Ci Comme Ca (5:06)
+02. Hotcakes (3:34)
+03. Love Hit Us Like A Stonebolt (4:36)
+04. Need Another Night With You (4:12)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5A302F5459A5E400468969652694FB357A5807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222978   (680920) от 01.05.2018
+
+Leroy Gomez & Santa Esmeralda - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родился в городе Cape Cod, штат Массачусетс. В возрасте 14 лет уже сформировал свою собственную группу. После работы с местными группами и освоив вокал и саксофон был привлечен на тур с Tavares по США, Канаде и Европе, где влюбился в Париж и решил сделать его своим домом. Первый солист группы Santa Esmeralda. Альбом "Don`t Let Me Be Misunderstood" получил (   Читать дальше...   )Список альбомов:
+1977 - Santa Esmeralda Starring Leroy Gomez - Don't Let Me Be Misunderstood
+1978 - Leroy Gomes - Gipsy Woman
+1978 - Leroy Gomez - Number One Man(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B90F3C18214810AD9E34CDF5954CC927ACF43E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290553   (676460) от 21.03.2019
 
 Dennis Parker - Like An Eagle (1979) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -688,64 +746,6 @@ VA - Nu Disco (2015) [MP3|320 кб/с]<House, Disco, Indie Dance, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54B27A12AC5D269D0EB2A5957C660A3C8473BB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539433   (658199) от 25.03.2022
-
-VA - Italo Disco Legacy (2017) Original Motion Picture Soundtrack [MP3|320 Kbps] <Electronic, Stage & Screen, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fred Ventura - The Years (12'' Maxi Version) (6:17)
-02. Body Electric - Magic Electronic (Previously Unreleased 12'' Maxi Version) (7:17)
-03. Simona Sierra - Muchacho (12'' Maxi Version) (6:00)
-04. Alba - Philomena (6:46)(   Читать дальше...   )Жанр: Electronic, Stage & Screen, Italo-DiscoПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A809772B34BBFF1B996A0C47FC41976627E3C881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539748   (657268) от 26.03.2022
-
-Fat Larry's Band - Lookin' For Love (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lookin' For Love (5:32)
-02. Here Comes The Sun (5:22)
-03. Last Chance To Dance (5:21)
-04. Like To Get To Know You Better (5:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630C572B327D20C8A1EB49E28D31B8DD7BDFC10E
 ```
 
 https://mybot314.ru/tekegram_catalog/

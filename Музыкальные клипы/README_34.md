@@ -1,3 +1,170 @@
+###  Публикация: 588767   (157289) от 13.12.2012
+
+Top Of The Pops 70s (vol.1) (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rolling Stones – "Brown Sugar"
+02. Badfinger – "Come And Get It"
+03. Rare Bird – "Sympathy"
+04. The Who – "Won’t Get Fooled Again"(   Читать дальше...   )Жанр: Музыка, Rock, Glam RockПродолжительность: 01:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A5BE3552FCF83F69E413E6EF1BB37D5E360F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676388   (157090) от 13.11.2023
+
+IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: K-PopПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B347E627EEA7140082399B28F15A50F52462789B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432919   (156220) от 21.12.2020
+
+ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156220.jpg" />
+</div>
+
+
+###  Подробнее
+
+ABBA - The Winner Takes It AllЖанр: музыкальный клипПродолжительность: 00:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD95242E17C393C1EF50FA1552E26A4AEEA4B866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967800   (155824) от 23.12.2015
+
+VA - Зимний марафон № 213: Новогодний Хит Драйв (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (21.12.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Before You Exit - Model (Official Video) (00:03:50)
+02. Bigudi Show - Буду Круче (Official Video) (00:03:17)
+03. Chris Rea - Driving Home For Christmas (1988) (00:03:57)
+04. Dan Balan - Плачь (Премьера!) (00:04:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, SynthpopПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CEAD075E5D7E30FE3D5D0B79011E4091DA9948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346824   (155074) от 21.12.2019
+
+George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песня британского поп-дуэта Wham!, выпущенная рекорд-компанией Epic Records в 1984 году, в формате double A-side с «Everything She Wants». Она была написана Джорджем Майклом, участником дуэта. Песня перепевалась многими артистами на протяжении последующих лет.
+
+Джордж Майкл - британский певец, поэт и композитор греческого происхождения. За время музыкальной карьеры (   Читать дальше...   )Жанр: ПопСубтитры: Английские (full)Продолжительность: 00:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9D81CA5ABFAD45B132959531D7C9782BC94563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194834   (153164) от 26.12.2017
+
+Сборник клипов - Ballads and Lyrics от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153164.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+103 Rod Stewart - Rhythm Of My Heart
+104 Richard Marx - Right Here Waiting
+105 Александр Иванов - Ну и пусть(   Читать дальше...   )Жанр: Pop, RockФормат: MKVПродолжительность: 03:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F21EDBA2632A9A87ABD47320CB1743FD0D4103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588823   (152776) от 14.12.2012
 
 Яжевика - Это любовь (OST "Дневники Доктора Зайцева") (2012) [H.264/1080p] WEBRip
@@ -557,173 +724,6 @@ Ellie Goulding ft. Juice WRLD – Hate Me(   Читать дальше...   )Ж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2F18FB8E31B7B5E76099D9689E74783FC9CBAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088344   (137594) от 31.12.2016
-
-Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник хороших танцевальных клипов для поднятия настроения от Dj Gioma01. La Bouche - Sweet Dreams  [03:15]
-02. Afric Simone - Hafanana [03:35]
-03. Pink Floyd - The Wall  [03:25]
-04. Boney M - Daddy Cool [02:40](   Читать дальше...   )Жанр: Remix, ElectronicРежиссер: GiomaПродолжительность: 02:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CBBEB57F0EF02221D9A751BDECC1CE66EC8381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196096   (137540) от 31.12.2017
-
-Europa Plus TOP 40 декабрь (2017) WEB-DL
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137540.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последний день уходящего года представляю последний в этом году хит-парад от Europa Plus. Надеюсь, он позволит вам весело провести Новогоднюю ночь. Всех с наступающим 2018 годом!01. Post Malone - rockstar ft. 21 Savage  (4:02)
-02. ZAYN - Dusk Till Dawn ft. Sia  (5:37)
-03. Imagine Dragons - Whatever It Takes  (3:40)
-04. Merk & Kremont - Sad Story (Out Of Luck)Производство: Different countriesЖанр: Музыкальные клипыРежиссер: Europa PlusАктеры: См. треклистПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 02:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E92943ACBA55A6AF7F1E1CE043FDB8CA6F0A0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349297   (137461) от 31.12.2019
-
-Сборник клипов 03 (2019) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за декабрь 201901_Егор Крид - Love is
-02_Martin Garrix, Matisse & Sadko feat. Michel Zitron - Hold On
-03_Indigo, Jahn, Slavon - Новогодняя
-04_Tinashe - Stormy Weather(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A473324C9F434B14503A5C434786EFA7CB20ABF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337257   (137434) от 31.12.2016
-
-Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный вступительный ролик некогда популярной игры
-"Legacy Of Kain - Soul Reaver". При этом разбавлен не менее
-замечательным хитом группы "RAMMSTEIN"Жанр: Ужасы, Фэнтези, КороткометражныйРежиссер: WitcherIv@nАктеры: Raziel, Kain, Malky, Duma...Перевод: ОригиналПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B6D4E637483C45DD10D80C6AF12948874B0B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592232   (135403) от 23.12.2012
-
-Xenia - Understand (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592231   (135370) от 23.12.2012
-
-Plies - Hunna (2012) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
 ```
 
 https://mybot314.ru/tekegram_catalog/

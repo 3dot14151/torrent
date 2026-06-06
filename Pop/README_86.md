@@ -1,3 +1,350 @@
+###  Публикация: 1200595   (795471) от 21.01.2018
+
+Кар-Мэн - Звездная коллекция (2001) [FLAC|Lossless|image + .cue]<Electro-Pop, Techno, Disco>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London, Good bye
+02. Бомбей буги
+03. Чио Чио Сан
+04. В Багдаде все спокойно(   Читать дальше...   )Жанр: Electro-Pop, Techno, DiscoПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E9B65FE61E424198A206859E4AC6877AA779CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012060   (795464) от 29.04.2016
+
+Silver Pozzoli - The Original Maxi-Singles Collection (2015) [MP3|320 кб/с] <Italo-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Around My Dream (Vocal Version)
+02. Step By Step (Club Mix)
+03. From You To Me (Vocal Version)
+04. Pretty Baby (Vocal Version)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1D3AF518F5B7AC7FD26F6E7505ED48B0CD209C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385925   (795277) от 28.05.2020
+
+Lapsley / Låpsley / - Through Water (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through Water (03:01)
+02. My Love Was Like the Rain (04:12)
+03. First (03:20)
+04. Ligne 3 (04:01)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93BCD38BBEC445164D7064131A4B45092790D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385817   (795273) от 28.05.2020
+
+VA - Dance Club 2020.02 (2020) Explicit [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ily (i love you baby) (feat. Emilee) - Surf Mesa
+02. Stupid Love - Lady Gaga
+03. Physical - Dua Lipa
+04. In Your Eyes (feat. Alida) - Robin Schulz(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C462ACF8CF1B7DAA8EEA51BEA519E2D6986A82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386233   (795272) от 28.05.2020
+
+Elite - Premiere (1980) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys On Hollywood Blvd (8:00)
+02. Poppers (7:54)
+03. Reach For Me (Can't You See Lovin' Me) (8:42)
+04. Papa Was A Rolling Stone (10:22)Жанр: Electronic, DiscoПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5163A4D3AD417BF3EE9219EE1BA19995949315BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386169   (795268) от 28.05.2020
+
+Giorgio Farina - Discocross (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farina's Suite (14:55)
+02. Tawawa's (5:49)
+03. Suite Slide Return (10:02)Жанр: Electronic, DiscoПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED776CC019D42D09B7DE7224AFA7F9B979BACF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386147   (795264) от 28.05.2020
+
+VA - Latin Music Summer Party (2020) [MP3|320 Kbps] <Latin, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Fonsi, Daddy Yankee, Justin Bieber - Despacito (Remix) 03:51
+02. Luis Fonsi, Stefflon Don - Calypso 03:22
+03. Sebastian Yatra, Mau y Ricky - Ya No Tiene Novio 03:21
+04. Luis Fonsi, Ozuna - Imposible 02:41(   Читать дальше...   )Жанр: Latin, Pop, DanceПродолжительность: 01:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFA7B153EA4E343CF6F6E1B2CB1F4DCF6992B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386280   (795194) от 28.05.2020
+
+Lady Gaga - Chromatica (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chromatica I
+02. Alice
+03. Stupid Love
+04. Rain On Me (feat. Ariana Grande)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34336F56D6620288E60E269C01DEA367D3CC2A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274025   (795049) от 05.01.2019
+
+VA - Best of Hands Up Freaks 2k18 (Deejay Edition) (2018) [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luke Smash - Erase You (Hands Up Freaks Remix Edit)
+02.  Grrtz - Light up the Night (Hands up Edit)
+03.  Marious - Dragons (Radio Mix)
+04.  Jinpachi Futushimo - Maximum Overload 2k18 (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7B62FBAC65CD0606F74486F3F91E00FC4AA440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274045   (795048) от 05.01.2019
+
+VA - Abriss Ski Hits 2018 - Die XXL Apres Ski Schlager Discofox Hits bis zum Karneval und Fasching 2019 (2018) [MP3|320 Kbps] <Schlager, Pop, Party>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jägermeister DJ Alex, Matty Valentino - Auffe aufn Berg
+02. Ingo ohne Flamingo - Saufen morgens, mittags, abends
+03. DJ Apres Ski Hits - Johnny Däpp
+04. Isi Glück feat. Jägermeister DJ Alex - Ich will zurück zu Dir (Hände hoch Après Ski)(   Читать дальше...   )Жанр: Schlager, Pop, PartyПродолжительность: 05:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADC41C4F1DE02DAC80AF0D8C29D498E91C6A68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274015   (795047) от 05.01.2019
+
+Black Level - Disco Action (1976) LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Pilot (4:16)
+02. Sexy Walkin' (4:34)
+03. Speedy Walk Machine (3:41)
+04. Please Touch My Body (6:25)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0BDC7F3BD00D2EC57E7E2D91DF6147581D1358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274103   (795046) от 05.01.2019
+
+Little Mix - LM5 (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The National Manthem
+02. Woman Like Me (Feat. Nicki Minaj)
+03. Think About Us
+04. Strip (Feat. Sharaya J)(   Читать дальше...   )Жанр: Pop, R&B, Hip-HopПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F0952F6E3E5BE736258A8F7FF81A394E096E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274073   (795034) от 05.01.2019
 
 Mode-One - Коллекция (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
@@ -397,351 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E2F2A98FBF06EA151C6C680EF0DB554DD72986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509347   (794829) от 12.11.2021
-
-Ёлка - Без обид (2021) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794829.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Об альбоме (Intro)
-2. Космос (Intro)
-3. Космос
-4. Моя звезда (Intro)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029903043E74E4FA81711CFEB52775AC1AD5C764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200918   (794815) от 22.01.2018
-
-VA - From Russia With Italo Disco Vol. I-VIII (2012-2014) 10CD, Compilation, Full Set Limited Edition [MP3|320 Kbps] <Italo-Disco, Synth-Pop, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic System D.J. - I Wanna Touch Your Body Now (Extended Version) (6:44)
-02. Siberian Heat - Flute Cries (Maxi Version) (8:11)
-03. Dyva - Harsh Wind (Duro Mix) (7:01)
-04. Squash Gang - When I Close My Eyes (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Synth-Pop, Hi-NRGПродолжительность: 12:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEDB9CE679FF0552D5930DC197B4BC43F33CFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200667   (794740) от 22.01.2018
-
-VA - Disco 80's vol.1 (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue System - My Bed Is Too Big (3:16)
-02. Fancy - Bolero (Hold Me in Your Arms Again) (5:38)
-03. Den Harrow - Don't Break My Heart 2001 (Soft Radio Mix) (2:59)
-04. Eddy Huntington - U.S.S.R. (5:52)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF3E573DEAC4FE86A7D58166FC5A74AC3176DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012210   (794496) от 30.04.2016
-
-Zucchero - Black Cat (2016) [MP3|320 кб/с] <Pop, Rock, Folk, Blues>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Partigiano Reggiano
-02. 13 Buone Ragioni
-03. Ti Voglio Sposare
-04. Ci Si Arrende Featuring Mark Knopfler(   Читать дальше...   )Жанр: Pop, Rock, Folk, BluesПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0115B63723236ADC29F4FC919EA414CDBA2354B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386361   (794438) от 29.05.2020
-
-VA - Beautiful POP Ballads (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cucumbers - Bridge of Love
-02. Case In Point - A Kiss On the Cheek
-03. Andy L - You Can Count On Me
-04. Adagio Music - Still On My Mind(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8C9F67B598FD5C8089CBCE17A072EFA97D9EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386415   (794391) от 29.05.2020
-
-Lady Gaga - Chromatica (2020) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chromatica I (01:00)
-02. Alice (02:57)
-03. Stupid Love (03:13)
-04. Rain On Me (with Ariana Grande) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C5B40D6907CF59E65561A32134FB747E68A21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012251   (794283) от 30.04.2016
-
-VA - Disco 80's Maxi Club Hits Vol. 1-3 (Remixes & Rarities) (2012) [MP3|320 кб/с] <Italo Disco, Eurodisco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Albert One - Heart On Fire (Special Maxi Mix) (05:33)
-02 Baltimora - Living in the Background (Maxi Mix) (06:06)
-03 David Lyme - You Are My Desire (Maxi Mix) (05:57)
-04 Den Harrow - You Have a Way (Maxi Mix) (05:51)(   Читать дальше...   )Жанр: Italo Disco, Eurodisco, SynthpopПродолжительность: 03:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BA880E56407BB849283C38DC039BF6307AA107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200258   (794065) от 23.01.2018
-
-Eleven - 11 (2012) [MP3|320 Kbps] <Dance, Synthpop, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 11:11
-02. Love Comes from Yourself
-03. Hollow Earth
-04. Another Life(   Читать дальше...   )Жанр: Dance, Synthpop, ElectroПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBB2BB65963DFB35DEB1DC4568B4F00A38E46FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509495   (794029) от 13.11.2021
-
-Kylie Minogue - DISCO (2021) Guest List Edition [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic [00:04:10]
-02. Miss A Thing [00:03:56]
-03. Real Groove [00:03:14]
-04. Monday Blues [00:03:09](   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 01:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A554A8019A6659A34AF83879194ADBA9BD47A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201066   (793947) от 23.01.2018
-
-Ханна - Мысли. Часть 1 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не вернусь
-2. Глаза
-3. Буду
-4. Изучай меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD4B50777F1EAEB85808488B8E31DB19E5DE19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201029   (793938) от 23.01.2018
-
-Ministry Of Beat - 100% Strength (2018) [MP3|320 Kbps] <Dance, Eurobeat, Electro>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – That’s Physical
-02 – Muscle Games
-03 – Lost In Your Mind
-04 – Adrenalin Love(   Читать дальше...   )Жанр: Dance, Eurobeat, ElectroПродолжительность: 03:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0721705A89DE81A9072554D7CFAAB8B61F5207A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201104   (793809) от 23.01.2018
-
-Mylene Farmer  - Rolling Stone (2018) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mylène Farmer - Rolling StoneЖанр: PopПродолжительность: 03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E772B1CDEC0AA2B5DA567532496388BFEA2033
 ```
 
 https://mybot314.ru/tekegram_catalog/

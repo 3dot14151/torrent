@@ -1,3 +1,32 @@
+###  Публикация: 1285352   (716679) от 28.02.2019
+
+Moreza - Fragrance (2019) [MP3|320 Kbps] <New age, Nuevo Flamenco, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fragrance (5:28)
+02.King Of Guitarras (feat. Lorenzo De Medici) (4:44)
+03.Love Story (4:29)
+04.Miss Guitar (5:42)(   Читать дальше...   )Жанр: New age. Nuevo Flamenco, ChilloutПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797DCAF72F5D0FA2A4E5DBE4E6947405FC56E3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024650   (716020) от 09.06.2016
 
 Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) Live [MP3|320 кб/с] <New age, Meditative>
@@ -725,35 +754,6 @@ Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027834   (694697) от 20.06.2016
-
-Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ufology
-02. Saucers over Stonehenge
-03. Suspended Animation
-04. Roswell (feat- Annaspaceia)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

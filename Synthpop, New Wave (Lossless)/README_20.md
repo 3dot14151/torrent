@@ -1,3 +1,90 @@
+###  Публикация: 1339288   (267113) от 18.11.2019
+
+DEADLIFE - Rebel Nights (2019) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:15)
+ 02. Summer Mist (3:53)
+ 03. Blue Gum (3:44)
+ 04. Never Forget (5:30)(   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave, DarkwaveПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5743C05F95B511EB74DB1AB8BCAA129BFE9F913C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190552   (266915) от 10.12.2017
+
+New Order - Singles (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop, Pop-Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ceremony (4:39)
+ 02. Procession (4:29)
+ 03. Everything's Gone Green (4:11)
+ 04. Temptation (5:24)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop-RockПродолжительность: 02:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60601CD8CC1197CE7164CDC200DC573BF51FFE2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191528   (264106) от 14.12.2017
+
+New Order - Music Complete (2015) [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop, Pop-Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Restless (5:28)
+ 02. Singularity (5:37)
+ 03. Plastic (6:55)
+ 04. Tutti Frutti (6:23)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop-RockПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF56146E50E9C5DA72BCB2C9F3D5CF431E2AD63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340479   (263746) от 23.11.2019
 
 VA - Synthwave Dreams, Vol. 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
@@ -664,93 +751,6 @@ Midnight Fury - Metamorph (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1308D6A24F215BE318894ABF196882245A06D01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571467   (239967) от 22.08.2022
-
-Space - Deeper Zone (1980) 1996, PolyGram [FLAC|Lossless|image + .cue] <Electro, Synthpop, Instrumental, Space Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deeper Zone (7:16)
-02. Inner Voices (3:32)
-03. Space Media (3:29)
-04. Mixed Up (5:44)(   Читать дальше...   )Жанр: Electro, Synthpop, Instrumental, Space RockПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB6B80C0520F9E27AD53A95CEB0258A18E4205F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635243   (239569) от 27.05.2023
-
-Public Domain Resource - AntiGravity (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1000 Letters From Iwo Jima
-02. Obsession
-03. Dunes
-04. A.N.A.(   Читать дальше...   )Жанр: Synth-pop, ElectroПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B08629F5C636F99EFDF5C545085B7F6345815FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623933   (238281) от 03.04.2023
-
-ЧеширSky - Allсезон (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Утопаyou [00:02:59]
-02. Горизонт [00:03:02]
-03. Loveтайм [00:02:54]
-04. Нашроман [00:03:51](   Читать дальше...   )Жанр: New Wave, ElectronicПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14578CBF4431486812FE1CF4F6E91716C3C718C
 ```
 
 https://mybot314.ru/tekegram_catalog/

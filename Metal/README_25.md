@@ -1,3 +1,32 @@
+###  Публикация: 1112372   (843191) от 08.03.2017
+
+Earthists. - Dreamscape (2017) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamscape (04:01)
+02. Footprints (04:20)
+03. Absolutely Zero (03:24)
+04. Resonating Light (ft. Ichika) (04:02)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E35D8FA64DF9482147DA18B790CE355CD358B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500099   (842600) от 05.10.2021
 
 Black Sabbath - Heaven and Hell (1980) 2xCD, Deluxe Edition, Reissue, Remastered, 2021, Rhino Records [MP3|320 Kbps] <Heavy Metal>
@@ -732,35 +761,6 @@ In Extremo - Kompass zur Sonne (2020) [MP3|320 Kbps] <Folk Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA6665CD5E46E693D8FADFFA5B5FA52F74C693C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116435   (824582) от 19.03.2017
-
-Turmion Katilot - Dance Panique (2017) [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Panique (03:46)
-02. Veren Maku (03:29)
-03. Surutulitus (05:01)
-04. Kyynelten Tanssi (03:52)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC883015747BBFF5250DED01CA7D0EB193AEFC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

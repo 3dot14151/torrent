@@ -1,3 +1,102 @@
+###  Публикация: 1585586   (220305) от 23.10.2022
+
+Various - The Best Of Duets (2000) 4 CD [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.B.King & Eric Clapton - Riding With The King
+02. Elton John & Rendy Newan - It's Tough To Be God
+03. Celin Dion & Andrea Bocelli - The Prayer
+04. Pet Shop Boys & Lisa Minelli - Losing My Mind(   Читать дальше...   )Жанр: PopПродолжительность: 05:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2690327DF9003D229F51A0C26B8FD9A063CDCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586556   (220114) от 11.12.2012
+
+Tina Turner - All The Best (2012) [MP3|320 кб/с]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steamy Windows
+02. The Best
+03. Private Dancer
+04. In Your Wildest Dreams
+05. I Don't Wanna Lose You
+06. Something Beautiful Remains
+07. Be Tender With Me Baby
+08. Why Must We Wait Until Tonight
+09. Help!
+10. Goldeneye(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A63CBED7E7346C5B7142BA09B289410D468242A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587057   (219905) от 11.12.2012
+
+Joe Dassin - Grand Collection (2001) [MP3|320 кб/с]<Chanson, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Salut
+02 L'ete indien
+03 Les Champs-Elysees
+04 Et si tu n'existais pas
+05 Il faut naitre a Monaco
+06 A Toi
+07 Ca va pas changer le Monde
+08 L'equipe a Jojo
+09 Salut les Amoreux
+10 L'amerique(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21F8D2FBFE3681E484CCF53E30E9368A55E45B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585855   (219608) от 24.10.2022
 
 VA - Ballermann Fruehlingsalarm (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
@@ -656,93 +755,6 @@ VA - Winter Party 2016 (2015) [MP3|320 кб/с] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E903BB153ED4D47CD918EDCEDC04574C9868755F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343616   (216144) от 07.12.2019
-
-Blue System - Maxi & Singles Collection (2019) Dieter Bohlen Edition, 3CD [MP3|320 Kbps] <Pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216144.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Sorry Little Sarah 3:31
-02. Big Boys Don't Cry 3:11
-03. Gangster Love (Maxi Version) 4:28(   Читать дальше...   )Жанр: Pop, Euro-DiscoПродолжительность: 03:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D7FA0969A2BA929CC1323C861C9FFEECE79397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270195   (216050) от 17.12.2018
-
-VA - Now That's What I Call Merry Christmas (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - Mistletoe
-02. Ariana Grande - Winter Things
-03. Pentatonix – Mary, Did You Know?
-04. Sam Smith - Have Yourself A Merry Little Christmas(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591E50CB07D170D54B50D150F7D63D2BD7E1E985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270126   (215880) от 17.12.2018
-
-VA - NRJ Christmas Hits (2018) [MP3|320 Kbps] <Pop, Electropop, Hip Hop, Reggae>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215880.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ariana Grande - Santa Tell Me
-02. Kendji Girac - Pour Oublier
-03. Pink - Secrets(   Читать дальше...   )Жанр: Pop, Electropop, Hip Hop, ReggaeПродолжительность: 02:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA5810568E919632F37CA52B1D16D9F81C1340B
 ```
 
 https://mybot314.ru/tekegram_catalog/

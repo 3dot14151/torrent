@@ -1,3 +1,96 @@
+###  Публикация: 818350   (608975) от 02.07.2017
+
+ALiCE'S EMOTiON - 49 альбомов (2005-2017) Touhou Vocal, Vocaloid /Doujin/ [FLAC|tracks] <Hardcore, Techno, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2015.05.10 (AECD-042) Precious Ray (Reitaisai 12)
+2016.04.24 (AECD-044) HOOTER (M3-37)
+2017.05.07 (AECD-046) SELECTiONS (Reitaisai 14)Тип издания: DoujinЖанр: Hardcore, Techno, ElectronicФормат: Touhou Vocal, VocaloidПродолжительность: 01:18:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889021F7BC231AC27758488EB652898203BA7B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818355   (608970) от 02.07.2017
+
+A-One | A1 - 36 альбомов (2008-2017) Touhou Vocal, KanColle /Doujin/ [FLAC|tracks] <Electronic, Eurobeat, Trance, J-Pop>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2016.10.08 (AONE-0038a) Lunatic Scarlet (Kouroumu 12)
+2016.12.29 (AONE-0038) TOHO EUROBEAT VOL.14 Koumakyou (C91)
+2017.05.07 (AONE-0040) TOHO EUROBEAT VOL.15 Mystic Dreams (Reitaisai 14)Тип издания: DoujinЖанр: Electronic, Eurobeat, Trance, J-PopФормат: Touhou VocalПродолжительность: 01:00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF973622AA74596BB0848442A23BE29C2DC43C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354069   (605253) от 26.06.2011
+
+Huang An - 5 albums (1993-1999) [FLAC|Lossless]<Chinese,Mandarin pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_605253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 样样红
+02. 传灯
+03. 美人风箏
+04. 爱与喜欢之间
+05. 福星高照
+06. 新駌鸯蝴蝶梦
+07. 救姻缘
+08. 野火在轻轻的烧
+09. 明明知道相思苦
+10. 陪你到天涯(   Читать дальше...)Жанр: Chinese,Mandarin popПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546035   (604429) от 25.04.2022
 
 Dexcore - Metempsychosis (2020) 2CD, Extra [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore, J-Rock>
@@ -442,6 +535,76 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362134   (572973) от 12.07.2011
+
+Jero - Yakusoku (2009) [MP3|192 kbps]<Enka>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_572973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Eisa
+2 - Tokyo Hyoryuu
+3 - Argentine Touhikou
+4 - Shiren
+5 - Hare Butai
+6 - Kyoko to Takashi
+7 - Rurou no Machi
+8 - Osaka Jewel
+9 - Na no Hana Hata Detsukamaete
+10 - UmiyukiЖанр: EnkaПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C52B5ECA465047AD37CAE5357D009F1CAF400A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 363095   (567657) от 15.07.2011
+
+Yuhki Kuramoto - Romancing Strings. Anthology (2011) [MP3|192 kbps]<New Age, Neo-classical, Instrumental, Piano>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_567657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shape of Love
+02. Timeless Love
+03. Heartstrings
+04. Second Romance
+05. In a Beautiful Season
+06. Flying Merry-Go-Round
+07. Forest
+08. In An Old Castle
+09. Noble Mind
+10. Sonnet of Fountain(   Читать дальше...)Жанр: New Age, Neo-classical, Instrumental, PianoПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74512E3710899E8DEFB8A59D767892EA2E5C6A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529188   (564458) от 01.08.2012
 
 AAA - 15 альбомов, 35 сингла (2005-2012) [MP3|128-320 кб/с]<J-Pop, Dance>
@@ -604,151 +767,6 @@ Fuling Cat Mark — 8 альбомов (2013-2019) Touhou Vocal /Doujin/ [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:337CDD71BEB5F622B1298DD8BCAA00266F84E5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308796   (553485) от 16.06.2019
-
-Anokthus — 3 альбома (2013-2017) [FLAC|Lossless|tracks] <Industrial, Techno, Hardcore, Noise, Dubstep, Drum & Bass>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2013.10.26 APOTHEOSIS (M3-32)
-2014.04.27 THI (M3-33)
-2017.08.11 ANIMASOLA EP (C92)Тип издания: CommercialЖанр: Industrial, Techno, Hardcore, Noise, Dubstep, Drum & BassПродолжительность: 00:01:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39CD32E9816A84D69F4F85125FF6E4B9152FB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309396   (550976) от 19.06.2019
-
-Hellion Sounds — 10 альбомов (2010-2020) Anime Games, Touhou Instrumental /Doujin/ [FLAC|Lossless|tracks] <Heavy Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2011.12.31 (HSCD-0008) Last Floor (C81)
-2012.05.27 (HSCD-0009) Scent Games (Reitaisai 9)
-2014.08.17 (HSCD-0010) Red Rezome (C86)Тип издания: DoujinЖанр: Heavy MetalФормат: Anime Games, Touhou InstrumentalПродолжительность: 00:08:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2B47B4A89B823842AD64A7B7878736AA20A120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309397   (550974) от 19.06.2019
-
-Eternal Melody — 5 альбомов (2016-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Rock, Gothic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2018.04.29 (EMCD-0013) End Of The World (M3-41)
-2018.08.10 (EMCD-0014) Fairytail (C94)
-2018.12.30 (EMCD-0015) Absolute White (C95)Тип издания: DoujinЖанр: J-Rock, GothicФормат: Touhou VocalПродолжительность: 00:02:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319E5047AB3222AE2F969B028D76470DEDEB4B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937774   (550912) от 19.06.2019
-
-k-waves LAB — 16 альбомов (2008-2014) Anime, Touhou Instrumental /Doujin/ [FLAC|Lossless|tracks] <Instrumental, Folk>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2013.08.12 (KWL-0008) 幽かのたまゆら (C84)
-2013.12.30 (KWL-0009) EORZEAN MINSTRELS' STORY (C85)
-2014.08.16 (KWL-0010) 旅情逃飛行 (C86)Тип издания: DoujinЖанр: Instrumental, FolkФормат: Anime, Touhou InstrumentalПродолжительность: 00:06:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BD660BA5C2E113F36EE820F0E7CAEB3D8939BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818329   (550846) от 19.06.2019
-
-Jerico's Law — 16 альбомов (2010-2019) Touhou Instrumental /Doujin/ [FLAC|Lossless|tracks] <Hardcore, Trance, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(2016.10.30) EDAMAME!!! (M3-38)
-(2019.04.28) Ultimate match (M3-43)
-(2019.05.05) Dream Extraction (Reitaisai 16)Тип издания: DoujinЖанр: Hardcore, Trance, ElectronicФормат: Touhou InstrumentalПродолжительность: 00:12:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E314996001A6CD0F5F238E210A8C1C3F8ECE02C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

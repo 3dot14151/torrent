@@ -1,3 +1,90 @@
+###  Публикация: 1367716   (914004) от 17.03.2020
+
+VA - Deep Uplifting Vibes (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914004.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aurosonic Feat. Cathy Burton - Eternal (Original Mix)
+002. Danny Stephen & Astony - Piccadilly (Mbx Remix)
+003. Dj T.H. Ft Andromeda - Sands Of Time Feat. Andromeda
+004. Morgan Page & Matt - The Longest Road To The Ground(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 09:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D05F49767A8478817ABF09A194C21093E8680EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367718   (913996) от 17.03.2020
+
+VA - Beatport Vocal House: Electro Sound Pack #25 (2020) [MP3|320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913996.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tefo - Emaweni
+002. Mr Black And Blue - Know What Love Is (Radio Edit)
+003. Key - Better Come With Me
+004. Da Chick - Watch Me Go(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1FA1F7965BCE9D34FA7D5FC19E20EB4316140C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490996   (913949) от 23.08.2021
+
+VA - Progressive Classics (2021) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913949.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Vidal & Greenage - Summer Rain (Cj Art Downbeat Mix)
+002. Alexander Saykov - Boulevard (Original Mix)
+003. Axel Terblanche - Diurnal (Original Mix)
+004. Diego Ferran - My Paradise (David Duque Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60AC79265BD17D14FC7F5494BE708AD522886C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367708   (913944) от 17.03.2020
 
 VA - NME Exclusive Megamixes Vocal Trance (2020) [MP3|320 Kbps] <Vocal Trance, Electro>
@@ -658,93 +745,6 @@ VA - Trance Elegance On This Year 008 (2017) [MP3|320 Kbps] <Trance, Melodic, Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06FA928DEDD7B55E33C465ED6F3B5052950891EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098491   (908723) от 30.01.2017
-
-VA - Record Super Chart #472 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hardwell & Quintino - Baldadig (Extended Mix)  3:40
-02.  Грибы - Копы (Vincent & Diaz Remix)  4:10
-03.  Ofenbach - Be Mine (Amice Remix)  3:23
-04.  Clean Bandit feat Sean Paul & Anne-Marie - Rockabye (Denis First Remix)  4:08(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7D26479256D35F950483443CBACB3D1AC1D4AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098392   (908705) от 30.01.2017
-
-VA - Deep House Collection Vol.106 (2017) [MP3|192-320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908705.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexander B - I See (Cosmic Cowboys Summer Remix) 9:04
-002. Almost Home - Girls (Original Mix) 5:28
-003. AN - TI - I Hurt You (Original Mix) 6:48
-004. Angelo F - Mambo Night (Original Mix) 6:00(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51432739E12E58085D0B82BAB6E97DE3D4D277A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991004   (908201) от 27.02.2016
-
-VA - After Eight Vol 4 (25 Bar Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key Of Dreams - Rainy Days
-02. The Contact Project - Silver One
-03. Sensotango - Libre
-04. Francesco Demegni - Lethal Lady(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF70B0340129C6B8574C4080188FC28CFB73D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

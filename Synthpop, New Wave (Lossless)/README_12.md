@@ -1,3 +1,61 @@
+###  Публикация: 1296971   (606805) от 20.04.2019
+
+Jay-Jay Johanson - Tattoo (1998) [FLAC|Lossless|tracks + .cue] <Electro, Trip Hop, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Even In The Darkest Hour (03:53)
+02. Quel Dommage (04:17)
+03. Murderans (00:32)
+04. Milan, Madrid, Chicago, Paris (04:11)(   Читать дальше...   )Жанр: Electro, Trip Hop, Synth-popПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB5A9C74285427AA8A707121292E834815552B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296981   (606795) от 20.04.2019
+
+Japan - Exorcising Ghosts (1984) Anthology [FLAC|Lossless|tracks + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Methods Of Dance (06:50)
+02. Gentlemen Take Polaroids (07:04)
+03. Quiet Life (04:52)
+04. Nightporter (06:48)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E442422C552E03436745597CB8E9EDB4FDFFA41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296973   (606417) от 20.04.2019
 
 Kompromat - Traum und Existenz (2019) Clivage Music [FLAC|Lossless|WEB-DL|tracks] <Electro, Synth-pop, EBM, Techno>
@@ -685,62 +743,6 @@ VA - 80's Generation vol. 1 (2002) [FLAC|image + .cue]<Synthpop, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5092F085C975833AA85039A942F76895C8DC157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233794   (576226) от 02.07.2018
-
-Kristine - Kristine (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Love (4:50)
-02. The Danger (3:40)
-03. Summer Long Gone (4:17)
-04. The Rhythm of Love (3:40)(   Читать дальше...   )Жанр: Synthwave, Retrowave, Synth-popПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A8D54F4CA0E5E9AF33D5625C6B2FD41B41B8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303717   (567449) от 24.05.2019
-
-MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SKURM - Baa (Long Away) (MRUKS Remix)
-02. SKURM - VIT16 (MRUKS Remix)Жанр: Funky, RetrowaveПродолжительность: 00:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CA597B385026B2585231EF1E6B1995B8ADDE7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

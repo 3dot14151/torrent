@@ -1,3 +1,61 @@
+###  Публикация: 1129489   (720463) от 29.04.2017
+
+Tom Hooker - Back In Time (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Want To Fight (5:44)
+02. King Of The World (5:13)
+03. I Want You Tonight (5:45)
+04. Give Me Your Love (4:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA735088CD372D08D13A546852A1D6B9FC86331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129802   (720332) от 29.04.2017
+
+Den Harrow - The 12'' Collection 1984-1987 (2015) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad Desire (12'' Version) 6:31
+02. Future Brain (12'' Version) 5:32
+03. Bad Boy (12'' Version) 5:49
+04. Make Ends Meet (12'' Version) 5:37(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFD35017B44D97CAF71E5748C9C958163BE343A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400408   (719016) от 05.08.2020
 
 VA - Italo Disco 80 Legends, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
@@ -692,64 +750,6 @@ Nation In Blue - Nothing Less (2016) [FLAC|Lossless|tracks] <Euro-Disco, Italo-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:408DFFB7AB5E3E086BA2F58CBBC28821D5EA98AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031288   (668431) от 03.07.2016
-
-Savage - Greatest Hits And More (1990) Unofficial Release [APE|Lossless|image + .cue] <Italo-Disco, Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ten Years Ago (Dub Intro)
-02. I'm Loosing You
-03. Goodbye
-04. Jane(   Читать дальше...   )Жанр: Italo-Disco, Europop, DiscoПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC265094EB10B2A17BB46C3C7FDE88DCC7B18FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224021   (668107) от 08.05.2018
-
-The Three Degrees - Greatest Hits (1998) [FLAC|Lossless|image + .cue] <Disco, Soul, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Jump The Gun
-02.	Long Lost Lover
-03.	Red Light
-04.	Together(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A44A42E2C91A06CFA0AB1B5EEF788BA501E79D
 ```
 
 https://mybot314.ru/tekegram_catalog/

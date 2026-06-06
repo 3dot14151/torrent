@@ -1,3 +1,235 @@
+###  Публикация: 1867449   (1066839) от 26.04.2026
+
+Marianne Faithfull - Broken English (1979) Reissue, Remastered, 1999, Island Records [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066839.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Broken English 4:35
+2		Witches' Song 4:44
+3		Brain Drain 4:12
+4		Guilt 5:00(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDF2D1075F1ED0B86A112B44781E6E1B95C49B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867616   (1066837) от 26.04.2026
+
+All About Eve - Scarlet and Other Stories (1989) [FLAC|Lossless|image + .cue] <Folk Rock, Alternative Rock, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066837.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Road To Your Soul	5:20
+2		Dream Now	3:07
+3		Gold And Silver 3:59
+4		Scarlet	3:48(   Читать дальше...   )Жанр: Folk Rock, Alternative Rock, Goth RockПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6450C3A03C2BB8086B829E2A49DBE67AD63ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866991   (1066594) от 
+
+The Shadows - At Their Very Best (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066594.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Apache	2:57
+2		Man Of Mystery	1:59
+3		Shindig	2:18
+4		Wonderful Land	2:16(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C23BDF3370B4BE1EB44E710EFC9B52B78C504BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866754   (1066531) от 22.04.2026
+
+Jesse Winchester - Third Down, 110 To Go (1972) Remastered, 2006, Wounded Bird Records [FLAC|Lossless|image + .cue] <Rock, Folk, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066531.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Isn't That So?	2:26
+2		Dangerous Fun	2:05
+3		Full Moon	2:04
+4		North Star	2:00(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 00:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D718A54390D6A8E25C3F7F24B51625A81AF86CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866575   (1066439) от 22.04.2026
+
+Looking Glass - Brandy (You're A Fine Girl) (1997) Compilation [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066439.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Brandy (You're A Fine Girl)	3:07
+2. Jimmy Loves Mary-Anne	3:24
+3. Highway To Hollywood	2:57
+4. Are You Dreamin' (Money In My Pocket)	2:59(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13C49B15B7B37B8B29A3BD2A4E8470855F24B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866752   (1066241) от 21.04.2026
+
+Emmylou Harris - The Ballad Of Sally Rose (1985) [FLAC|Lossless|image + .cue] <Folk, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066241.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		The Ballad Of Sally Rose 2:47
+2		Rhythm Guitar 3:19
+3		I Think I Love Him/You Are My Flower 1:16
+4		Heart To Heart 2:27(   Читать дальше...   )Жанр: Folk, Country RockПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392624587C2ADC0BA039B154EF4B199C63C09601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865855   (1065889) от 
+
+David Foster - David Foster (1986) [FLAC|Lossless|image + .cue] <Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065889.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Love Theme From St. Elmo's Fire (Instrumental)	3:33
+2		Theme From The Color Purple (Mailbox / Proud Theme)	3:48
+3		Flight Of The Snowbirds	5:28
+4		All That My Heart Can Hold	3:43(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F307C443BA6299635796FED612151E6EAD282D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866091   (1065846) от 19.04.2026
+
+Emmylou Harris - Elite Hotel (1975) Reissue, Remastered, 2014, Reprise Records [FLAC|Lossless|image + .cue] <Country Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065846.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Amarillo 3:05
+2		Together Again 3:56
+3		Feelin' Single- Seein' Double 2:34
+4		Sin City 3:57(   Читать дальше...   )Жанр: Country Rock, FolkПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C68BBD0B214C04F1A590228D8286FFADE6D15FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865600   (1065663) от 16.04.2026
 
 Various - Baladas Heavy De La Emisión Pirata (1998) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <AOR, Acoustic, Arena Rock>
@@ -513,238 +745,6 @@ Suzi Quatro - Freedom (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65182E7802AB324099028925031CF365CD060F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860393   (1061944) от 21.03.2026
-
-VA - Rock Anthems (The Ultimate Collection) (2017) 5 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Heavy Metal, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hole Hearted (Extreme) [3:39]
-02. Too Much Too Young (Little Angels) [4:23]
-03. I'm The Man (Anthrax) [3:04]
-04. Cosmetic Punk (Thunder) [3:37](   Читать дальше...   )Жанр: Rock, Pop Rock, Heavy Metal, Garage RockПродолжительность: 6:24:54.013 (1 018 445 988 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC6688875E6DB00A5C6DCC9F10EA043ECA60525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860147   (1061908) от 21.03.2026
-
-VA - This Is... 1974 (2008) [FLAC|Lossless|tracks + .cue] <Hard Rock, Alternative Rock, Pub Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mud - Tiger Feet (3:53)
-02. Suzi Quatro - Devil Gate Drive (3:47)
-03. The Arrows - Touch Too Much (3:00)
-04. Kenny - The Bump (2:35)(   Читать дальше...   )Жанр: Hard Rock, Alternative Rock, Pub RockПродолжительность: 01:07:18.453 (178 095 792 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6C38C890B22CB425A9DBE272AED0A80FE399D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860270   (1061713) от 20.03.2026
-
-Aerosmith - Aerosmith (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It (3:40)
-02. Somebody (3:45)
-03. Dream On (4:27)
-04. One Way Street (7:02)(   Читать дальше...   )Жанр: RockПродолжительность: 02:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E8632621879C78765F1CAF5DB0F21917334073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859968   (1061612) от 18.03.2026
-
-Ron D Bowes - ooh la la. (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fried Brains 3:39
-02. Jinx 4:17
-03. Backyard Blues 4:04
-04. Honey Bee 3:16(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CBC4BC7E9F1A65F13DE67AF03FC590A36038DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859610   (1061205) от 17.03.2026
-
-VA - Rockin' 70s (2004) 3 x CD, Compilation [FLAC|Lossless|image + .cue] <Blues Rock, Classic Rock, Country Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ted Nugent - Cat Scratch Fever (3:40)
-02. Ram Jam - Black Betty (3:57)
-03. Boston - More Than A Feeling (4:43)
-04. Blue Oyster Cult - (Don't Fear) The Reaper (5:08)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Country Rock, Garage RockПродолжительность: 02:47:13.867 (442 493 520 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F6E6F0C05D5D860E93B4253BC50C8D159FB0DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859659   (1061204) от 17.03.2026
-
-VA - Rock (93 Original Hits) (2009) 6 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poison - Unskinny Bop (3:49)
-02. Thunder - Backstreet Symphony (4:23)
-03. Gary Moore - Empty Rooms (4:16)
-04. Saxon - Wheels Of Steel (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:36.880 (940 956 408 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC949E7420372957FBE2081278F6F89140A81D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858584   (1060619) от 12.03.2026
-
-VA - This Is... 1973 (2008) [FLAC|Lossless|tracks + .cue] <Classic Rock, Soft Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wizzard - See My Baby Jive (4:58)
-02. Mud - Dyna-Mite (2:58)
-03. Suzi Quatro - Can the Can (3:34)
-04. Electric Light Orchestra - Roll Over Beethoven (4:32)(   Читать дальше...   )Жанр: Classic Rock, Soft Rock, Hard RockПродолжительность: 01:17:01.707 (203 817 264 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0C88E7D3F8D16712D462B13D9EF0ADE2599356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858280   (1060258) от 10.03.2026
-
-VA - Greatest Ever! 70s Rock (2016) 3 x CD Box Set [FLAC|Lossless|tracks + .cue] <Rock, Sost Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss - Rock & Roll All Nite (2:57)
-02. Warren Zevon - Werewolves Of London (3:26)
-03. David Essex - Rock On (3:23)
-04. Thin Lizzy - The Boys Are Back In Town (4:26)(   Читать дальше...   )Жанр: Rock, Sost Rock, Pop RockПродолжительность: 03:26:54.213 (547 466 808 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042AF1EE4B3161C1FECC4C0E7D294D8D373A10AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1323685   (433894) от 05.09.2019
+
+Журнал | Alles Auto DE №9 (сентябрь 2019) [PDF] [De]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433894.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сентябрьском выпуске ALLES AUTO предлагается сравнение кем приятней водить между Honda Civic Type R и Ford Fiesta ST. Всю информацию о новой Skoda Octavia также можно найти в брошюре.
+А так же в номере: BMW 1er \u0026 3er Touring, Mercedes CLA Shooting Brake, Mercedes EQC, Renault Clio, Audi SQ8 TDI, Porsche Cayenne Coupe, Ford Mondeo Traveler Hybrid, Nissan Leaf (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A319ED0DC2BC64DC4F6AA1D48162ADD3056EDDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323700   (433888) от 05.09.2019
 
 Журнал | Autopista ES №34 (август 2019) [PDF] [Es]
@@ -644,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA4A398EBAD3235C556E3DC9A017E74A49A79FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711195   (412356) от 16.10.2013
-
-Журнал | Автомир [Украина] №42 (октябрь 2013) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412356.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB12C49D575EA2EB89C5FFBE2AE64B10252415D
 ```
 
 https://mybot314.ru/tekegram_catalog/

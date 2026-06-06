@@ -1,3 +1,90 @@
+###  Публикация: 1456354   (1025109) от 22.03.2021
+
+VA - The Deep Sleep Music (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз "The Deep Sleep Music" несомненно понравиться почитателям атмосферной и спокойной музыки. Судя по названию, под звучание такой музыки удастся хорошо выспаться и отдохнуть. Отличная пластинка, что безукоризненно вписывается в настрой вечернего нуара. Приятного Вам отдыха!001. Lemongrass - Smooth Moments
+002. Marie Therese - Silencio
+003. Mirage Of Deep - From Heaven & Earth
+004. Eskadet & Amethyste - Aurora(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E9650BF9319FE8974A13C3FA65E60F51312030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457011   (1024637) от 25.03.2021
+
+VA - Beatport Hypnotic Trance: Sound Pack #261 (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушая композиции 261-го релиза транс-музыки от Beatport, невольно проникаешься мелодией и ритмом этой музыки и представляется, буд-то ты совершаешь полёт на космоплане в глубоком космосе, видишь блеск звёзд, бездонную глубину чёрных дыр и затаив дыхание, восторгаешься столь величественной красотой мироздания.001. Mike Rivera - Klarinette
+002. Madwave - Eternal Spirit
+003. Megara Vs Dj Lee - United Nation
+004. Dj Tomsten - Wet Dipper(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86C15EEB382B8A8C45246CE54F63DF5599AC7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457023   (1024634) от 25.03.2021
+
+VA - Ladies Moment: Vocal House (2021) [MP3|320 Kbps] <Vocal House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасная музыка, приятный женский вокал, великолепные стихи о любви, об этом прекрасном чувстве, наполняют собой сборник «Ladies Moment». 150 треков от исполнителей со всех концов Европы уже ждут Вас.001. Takis Ft Goody Grace And Tory Lanez - Wait For Me
+002. Morgan Page And Mark Sixma - Our Song
+003. Timmy Trumpet & Gabry Ponte - Mad World
+004. Eltonnick feat Ntefo Ntshabele - Reason(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 10:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D9143E970A02B52CE1EDECFC14960481E2086C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457020   (1024632) от 25.03.2021
 
 VA - E-Dance: Essential Techno Sound (2021) [MP3|320 Kbps] <Club, Dance, Techno, EDM, Tech House>
@@ -658,93 +745,6 @@ VA - The Music Of Healing (2021) [MP3|320 Kbps] <Ambient, New Age, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B62159C2129D7515354A291F70BEC0F99D3A7D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460957   (1022252) от 07.04.2021
-
-VA - Night Rider 1 (2021) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022252.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tinlicker, Helsloot, Hero Baldwin - Tell Me (3:23)
-002. Gorgon City - Trapdoor (4:08)
-003. Nora En Pure - Enchantment (3:43)
-004. Solomun - Home (3:41)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506CE9FC30AFFCCCE83CC371F428F23C4211EDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460782   (1022251) от 07.04.2021
-
-VA - TOP 40 PromoDJ Апрель 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Юля Орешко - Далеко от Земли
-02.Юля Орешко - Lullaby
-03.Черчиго — Летать
-04.Корвин и Созыкин - В Облака (luk bootleg)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 03:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21EEB3CD011D41621C415FFCEE746058D92E5E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461013   (1022120) от 08.04.2021
-
-VA - Beatport Hardstyle Dance: Electro Sound Pack #271 (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Hardcore>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агрессивная, уничтожающая все на своем пути музыка с очень бешенным ритмом, полная индустриальных звуков, криков, шопота, скрежетов и воев синтезаторов. Живая и разрушительная энергия звука, музыкальный армагеддон в чистом виде!001. Tha Playah - The Awakening
-002. Nightshift - Cold Blood
-003. Vein - Ultimate Seduction
-004. Unnatural Selection - Quantum Tractate Delirium(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, HardcoreПродолжительность: 09:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443B838F134E5056A3BFD2FDBC3426E5B37B2C84
 ```
 
 https://mybot314.ru/tekegram_catalog/

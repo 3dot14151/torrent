@@ -1,3 +1,81 @@
+###  Публикация: 1145519   (621537) от 25.06.2017
+
+Sabayon 17.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64] 8xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен новый  релиз дистрибутива Sabayon Linux 17.06, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8EC769781DD786E31D823E08986A10B59394BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910869   (619959) от 21.06.2015
+
+Mageia 5 Cauldron [i586] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619959.jpg" />
+</div>
+
+
+###  Подробнее
+
+После года разработки доступен релиз Linux-дистрибутива Mageia 5, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), универсальная DVD-сборка (1 Гб), минималистичный образ для установки по сети (40 Мб) и набор Live-сборок на базе GNOME и KDE с различными наборами локализации. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DEE83BCFB324BE4B11BB90D803747A876B57EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910867   (619621) от 21.06.2015
+
+Mageia 5 Cauldron [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619621.jpg" />
+</div>
+
+
+###  Подробнее
+
+После года разработки доступен релиз Linux-дистрибутива Mageia 5, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), универсальная DVD-сборка (1 Гб), минималистичный образ для установки по сети (40 Мб) и набор Live-сборок на базе GNOME и KDE с различными наборами локализации. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872DC0B47F1DD854EB2BDA2F9E3BE8F102553F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910872   (619615) от 21.06.2015
 
 Mageia 5 Cauldron Live [i586, x86-64] 4xDVD, 2xCD
@@ -481,6 +559,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300896   (582024) от 14.05.2019
+
+Red Hat Enterprise Linux 8.0 [x64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_582024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat опубликовала релиз дистрибутива Red Hat Enterprise Linux 8. Установочные сборки подготовлены для архитектур x86_64, s390x (IBM System z), ppc64le и Aarch64, но доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise Linux 8 распространяются через Git-репозиторий CentOS. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30249402F9FBBE0E3AEC45796EBFBC42EC1FB6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920407   (580007) от 22.07.2015
 
 Calculate Linux 14.16.2 (MATE) [i686,amd64] 2xDVD
@@ -579,114 +683,6 @@ Fedora 26 [x86-64] 3xDVD, 3xCD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A857F5E562E5E3D10D8EF5756287008BB2B843D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150993   (575689) от 17.07.2017
-
-RFRemix [Russian Fedora Remix] 26 [i386, x86-64] 3xDVD, 3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одновременно с официальным релизом Fedora 26 выпущен Russian Fedora Remix 26. Для загрузки подготовлены продукты Fedora Workstation, Fedora Server Сборки сформированы для архитектур x86, x86_64
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF9B10959EA48CE67451E1F8488C5F687C18704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688972   (573539) от 13.08.2013
-
-Sabayon 13.08 (Multi DE) Поддержка анонимного доступа в сети [x86-64] (5xDVD, CD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
-
-Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux Kernel 3.10.4 с поддержкой BFQ iosched, обновлена поддержка ZFS file system, GNOME 3.8.4, KDE 4.10.5, MATE 1.6.2, Xfce 4.10, LibreOffice 4.1, UEFI SecureBoot для 64-bit образов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2A91B6628F5FEAEE09ECC4C7E86831E79C3A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688985   (571619) от 14.08.2013
-
-Sabayon 13.08 (Multi DE) Поддержка анонимного доступа в сети [x86] (5xDVD, CD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
-
-Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux Kernel 3.10.4 с поддержкой BFQ iosched, обновлена поддержка ZFS file system, GNOME 3.8.4, KDE 4.10.5, MATE 1.6.2, Xfce 4.10, LibreOffice 4.1, UEFI SecureBoot для 64-bit образов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21053F9F40987AF72F87F2E9D3DD790A96897974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304017   (566854) от 24.05.2019
-
-OpenSuse Leap 15.1 [x86_x64] 3xDVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566854.jpg" />
-</div>
-
-
-###  Подробнее
-
-После года разработки состоялся релиз дистрибутива openSUSE Leap 15.1. Выпуск сформирован с использованием базового набора пакетов из находящегося в разработке дистрибутива SUSE Linux Enterprise 15 SP1, поверх которого поставляются более новые выпуски пользовательских приложений из репозитория openSUSE Tumbleweed. Для загрузки доступна универсальная DVD-сборка, размером (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C4FB08D0F4062C52DF73C9582536F521CF48157
 ```
 
 https://mybot314.ru/tekegram_catalog/

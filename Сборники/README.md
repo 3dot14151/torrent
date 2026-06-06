@@ -1,5 +1,31 @@
 https://t.me/izofen
-###  Публикация: 1870403   (1069169) от 
+###  Публикация: 1873289   (1071173) от 27.05.2026
+
+Сборники - Film-Space - The Ultimate Master Bundle V2 [CUBE, WAV, MOGRT]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071173.jpg" />
+</div>
+
+
+###  Подробнее
+
+JustKay представляет Master Bundle. Этот огромный набор содержит обширную библиотеку LUT-фильтров, звуковых эффектов и музыки.Формат: CUBE, WAV, MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD3D2BC24FB0FB86D17D389DA1E1D446B156350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870403   (1069169) от 11.05.2026
 
 Сборники - Creative Market - Aura - spring vibes - 6963198 [PNG, JPG]
 
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4808AA2DB8A7535E1068A0A2E77A26E67305A1F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467244   (1017819) от 03.05.2021
-
-Сборник - Joel Grimes - Beauty Brushes NEW BUNDLE + Bonus Brushes - Rain & Splashes [ABR, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите плоское тусклое изображение в невероятный портрет студийного вида всего несколькими щелчками мыши.Формат: ABR, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5D6CC7243FD93EADF1D167AE0BBCC7B90E5DA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1478646   (1010192) от 20.06.2021
+
+VA - Acoustic Summer 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Wild World (Acoustic) (03:20)
+02. Shannon & Keast - Do I Wanna Know (Acoustic) (04:17)
+03. Logan York - Cheerleader (Acoustic) (03:36)
+04. Talisha Karrer - Everybody Hurts (Acoustic) (03:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D45AF5D5E0EA4EB4EF907D7CE452F61B75B9D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478647   (1010176) от 20.06.2021
+
+VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - Break My Heart (Acoustic) (03:34)
+02. Nora & Will - My Future (Acoustic) (03:19)
+03. Shannon & Keast - Falling (Acoustic) (03:59)
+04. Logan York - Señorita (Acoustic) (04:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050EF2820DF47712D0E735C0EF6FCAD7B16D2257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479073   (1009857) от 22.06.2021
+
+Percy Faith - Columbia Singles Volume III 1959-1967 (2005) [FLAC|Lossless|image + .cue] <Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Theme From "Advise And Consent" 2:42
+02 Theme From "Lawrence Of Arabia" 2:35
+03 Kurt Weill's Melody From "Mahoganny" 2:38
+04 Love Me Now 2:26(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C975D6D2112222C3DC73673FBA9AC179542C7FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479410   (1009720) от 23.06.2021
+
+VA - Acoustic Pop 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Stay With Me - Live At Abbey Road Studios (3:46)
+02. Katy Perry - The One That Got Away - Acoustic (4:19)
+03. Sarah Jarosz - I Still Haven't Found What I'm Looking For (3:32)
+04. Milo Meskens - Daddy Issues - Acoustic Version (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DE311485477A0D300A34A41150651B9E08BB04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479524   (1009600) от 24.06.2021
+
+Melanie C - In And Out Of Love (Acoustic) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In And Out Of Love (Acoustic)
+02. Who I Am (Acoustic)
+03. Never Be The Same Again (Acoustic)
+04. Too Much (Acoustic)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881360CD3407F5280DDF17F0D7D616CEAA3FE235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479490   (1009586) от 24.06.2021
+
+VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart - You're In My Heart (The Final Acclaim)
+02. Tamia - Officially Missing You
+03. Jess Glynne - I'll Be There (Acoustic)
+04. Donna Lewis - I Could Be the One(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E4D548DFCBC86E8270840F7BD4C4186B297238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479598   (1009559) от 24.06.2021
 
 VA - Female Voices (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -572,180 +746,6 @@ a-ha - Minor Earth | Major Sky (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DDEF740A66B25A704C2D549A46B3D18C5BBBA95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488051   (1002493) от 09.08.2021
-
-VA - 100 Hits Number 1's (2018) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002493.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждого исполнителя есть несколько хитов, которые мы называем номер 1. Это по мнению большинства - вершина достижений каждого из исполнителей. Вот три года назад Demon Music Group решила собрать под обложкой одного бокссета такие высшие достижения некоторых исполнителей и дать возможность слушателям вспомнить и насладиться ещё раз хитами прошлого. Вряд ли Вы для (   Читать дальше...   )CD1:
-01. Britney Spears - …Baby One More Time  (3:31)
-02. Justin Timberlake feat. Timbaland - Sexyback  (4:03)
-03. Shakira feat. Wyclef Jean - Hips Don’t Lie  (3:39)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 02 ноября 2018Жанр: Pop, Rock, DanceПродолжительность: 06:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE4F3E95494B5BF7A7600AADDF4AD4C13C9D75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351247   (1002425) от 09.01.2020
-
-a-ha - Lifelines (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifelines (Demo) (5:16)
-02. You Wanted More (Demo) (4:01)
-03. Forever Not Yours (Demo) (4:12)
-04. There's A Reason For It (Demo) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD51D4A73CCBDFA44B27A40800C62D9F626F9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351360   (1002188) от 10.01.2020
-
-Georgia - Seeking Thrills (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Started Out (03:41)
-02. About Work the Dancefloor (03:28)
-03. Never Let You Go (03:47)
-04. 24 Hours (03:05)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A57316BE7ADB7FDC5C92AD9C7361E135AE8E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351714   (1001916) от 11.01.2020
-
-VA - Acoustic 90s and 00s Covers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Freed From Desire 3:05
-02. Shannon & Keast - Hey Ya! 3:14
-03. Meg Birch - Runaway 3:37
-04. The Shaken Bakers - 4am 2:46(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 02:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D39FA40B6F24CAF138F08DD77350AA13158E964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351797   (1001638) от 12.01.2020
-
-a-ha - East Of The Sun West Of The Moon (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/18. Early Morning (Early Version) (2:43)
-02/18. East Of The Sun (Early Version) (5:35)
-03/18. I Call Your Name (Instrumental Demo) (2:13)
-04/18. Slender Frame (Demo) (3:54)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749AFA4E504C88642A9BBC65D182AB02AAA63ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352551   (1000869) от 15.01.2020
-
-a-ha - Memorial Beach (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Is The Night For All (Demo) (3:29)
-02. Cold As Stone (Demo) (8:32)
-03. Angel In The Snow (Demo) (3:25)
-04. Locust (Demo) (4:35)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1EE60CB572B010E7B54F90945339FC15EDDFB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

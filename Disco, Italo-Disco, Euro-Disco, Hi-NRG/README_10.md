@@ -1,3 +1,61 @@
+###  Публикация: 1390655   (782632) от 16.06.2020
+
+Dee D. Jackson - 2 Albums (1978, 1980) LP Mint [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dee D. Jackson (рус. Ди Ди Джексон, полное имя Дейдр Элен Козьер - англ. Deirdre Elaine Cozier; род. 15 июля 1954, Оксфорд, Великобритания) - британская певица, композитор. Данные альбомы из-за былой популярности не нуждаются в своем представлении. Обложки альбомов, а так же название второго альбома в этом итальянском издании, отличаются от привычных. Спасибо  Dymokust (   Читать дальше...   )01. Automatic Lover (4:06)
+02. Red Flight (4:13)
+03. Galaxy Of Love (4:50)
+04. Meteor Man (4:45)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036C0E1081AFE28D050D575133B7A8879A7D42FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206815   (781713) от 15.02.2018
+
+VA - Disco 80's Vol.2 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blanco Y Negro Music - I Love Disco Diamonds (Hidden Track) (0:07)
+02. Bolero - I Wish (7:52)
+03. Danny Keith - Keep On Music (6:42)
+04. Grant Miller - Colder Than Ice (5:36)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9817C16FE21CB6CDC40C4C599116F088E17900AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391127   (781025) от 20.06.2020
 
 VA - Another Side Of Fancy Part Three (2020) 2CD, Compilation, Remastered [MP3|320 Kbps] <Euro-Disco>
@@ -684,64 +742,6 @@ Venise - The Best Disco In The City (1978) LP [MP3|320 Kbps] <Electronic, Funk S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06E858EC74B667E8115B75AE8B0C5F9E598816EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278820   (767742) от 27.01.2019
-
-Crypton - 3 Singles (1981-1984) 7" [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger In Space (4:17)
-02. Movin' On (3:18)
-03. Galaxy Drive (3:21)
-04. Time Is On Your Hands (3:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C400A1C95DCA04FE05D144506FE01F4B82DBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125744   (767090) от 16.04.2017
-
-A La Carte - Sun Sun Summertime (1989) Vinil-Rip [MP3|320 Kbps] <Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-Sun Sun Summertime
-Put Your Hand On Your Heart
-Take Me To Your Heart(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD26DD0069647CE7054D3700E6CDC4228C868725
 ```
 
 https://mybot314.ru/tekegram_catalog/

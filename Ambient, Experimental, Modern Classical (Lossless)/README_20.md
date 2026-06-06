@@ -1,3 +1,119 @@
+###  Публикация: 1650152   (207503) от 31.07.2023
+
+Beheat Gorum de Mentheurd - The Voyage Of Life (2016) [FLAC|Lossless|image + .cue] <Electronic, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chapter I: Genesis
+02. Chapter II: Youth
+03. Chapter III: The Ages of Life
+04. Chapter IV: Old Age (Part I)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B867270BA0D2F84327EBBD69BF2B4F0DAB93BFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653946   (205918) от 18.08.2023
+
+Sam Goku - The Things We See When We Look Closer (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Broken Beat, Progressive Electronic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow River Drone (03:18)
+02. Cycles (03:35)
+03. Lotus Drive (05:27)
+04. Libellenflug (05:35)(   Читать дальше...   )Жанр: Ambient, Broken Beat, Progressive ElectronicПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53830F21F462891DC405151E7BE582B78C518077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585203   (204994) от 21.10.2022
+
+Jean-Michel Jarre - OXYMORE (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AGORA (Binaurel Headphone Mix) [00:01:34]
+02. OXYMORE (Binaurel Headphone Mix) [00:04:46]
+03. NEON LIPS (Binaurel Headphone Mix) [00:04:28]
+04. SONIC LAND (Binaurel Headphone Mix) [00:06:01](   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 2 CD, 01:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CA6B2A38ED86B07ED3C677C828A63CA3C14B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656590   (203128) от 31.08.2023
+
+Devil Doll - Sacrilegium (1992) Reissue, Remastered, 2019, Hurdy Gurdy Records [FLAC|Lossless|image + .cue] <Experimental, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrilegium (43:32)
+01.2 (silence) (03:32)
+01.3 Coda (01:40)
+01.4 (silence) (10:12)Жанр: Experimental, AmbientПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68117C3A13DF9951E86868427178601AC06B9E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658571   (191216) от 08.09.2023
 
 Eguana - One Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Downtempo>
@@ -616,119 +732,6 @@ Slow Dancing Society - Discography 25 Releases (2006-2018) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0636A07F34A08CB3D030C445E8C8CE0E9FAE49BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433665   (156476) от 21.12.2020
-
-Choir of King's College, Cambridge and Daniel Hyde - Carols From King's (2020 Collection) (2020) [FLAC 24/48.0|Lossless|WEB-DL|tracks] <Ambient, New Age, Easy Listening>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once in Royal David's City (Live) (5:14)
-02. A Maiden Most Gentle (Live) (3:03)
-03. There is No Rose of Such Virtue (Live) (1:57)
-04. Herefordshire Carol (This is the Truth Sent from Above)Жанр: Ambient, New Age, Easy ListeningПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F41186D905D7004B32926DB55A7C090BA17E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194883   (152406) от 27.12.2017
-
-Stanislav Vdovin | Unit 21 | Initial Run - Collection 11 Releases (2007-2017) Occasion [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Experimental, IDM, Abstract, Techno, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Big Picture (06:28)Тип издания: CD, WebЖанр: Techno/MinimalПродолжительность: 00:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005D536703B0854940A3C8E4257E1E954D8F718A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194978   (152382) от 27.12.2017
-
-VA - The Hues of Infinity (2015) Projekt [FLAC|Lossless|tracks+.cue] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Roach - The Function Inside The Form (Excerpt) (05:46)
- 02. Steve Roach - Etheric Imprints (Excerpt) (09:44)
- 03. Erik Wøllo - Pathway (06:31)
- 04. As Lonely As Dave Bowman - Failure Of The AE-35 Unit Radio Antenna (07:23)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D5FF8061EB4F58E31AF8D0F6FD5FD427545FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194900   (152377) от 27.12.2017
-
-CoH - CoHgs (2017) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experimental, Minimal, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exercise in Colour (feat. Ann Demeulemeester) (05:44)
- 02. Sleepwalker (feat. Anna Yamada) (06:10)
- 03. Silence Is Golden (feat. Peter 'Sleazy' Christopherson) (05:00)
- 04. Fffetish (feat. Frankie Gothard) (05:00)(   Читать дальше...   )Жанр: Abstract, Experimental, Minimal, AmbientПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F952CDD64D92E31441DF1E33183B10A6A002BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

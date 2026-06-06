@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874596   (1071934) от 03.06.2026
+
+Sigh - Ghastly Funeral Theatre (1997) 2XCD, Japanese Edition, Reissue, Remastered, 2026, Peaceville Ltd. [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071934.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Intro: Soushiki ..
+02. Shingontachikawa ....
+03. Doman Seman ....·....(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B5517E2CC77986463CF4AF22C2964A9E85AB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850400   (1054615) от 30.01.2026
 
 Crystal Lake - The Weight of Sound (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, progressive-metal, nu-metal, deathcore>
@@ -714,35 +743,6 @@ CD - 1 - Rise To Glory -8118- :
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FCCEF78C86BE1A4765685CC983631A9C37C7079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495908   (875970) от 15.09.2021
-
-Loudness - Sаmsаrа Flight (2016) 2xCD, Compilation, 35th Anniversary [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875970.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Samsara Flight:
-01. Street Woman
-02. The Law Of Devil’S Land
-03. Loudness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4459C6CDB034DED68C4094588FD78C1BBAFEC7E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

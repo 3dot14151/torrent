@@ -1,3 +1,61 @@
+###  Публикация: 1504169   (814162) от 22.10.2021
+
+VA - Urban Orange Music 7: Downtempo Experience (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Surfing on a Karma Wave (Original Mix) (3:41)
+02. Digby Jones - 73 Break (5:37)
+03. Marga Sol - Palm Tree Chill (Original Mix) (5:23)
+04. Marie Therese - Take This Treasure (Original Mix) (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCBFBAF5A090F0CE3A70AEFD1522B4CEE6C6B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504126   (814161) от 22.10.2021
+
+Stratavarious - Stratavarious (2021) [AAC|~350 Kbps] <Funk / Soul, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes It Is (4:10)
+02. Let Me Be Your Lady Tonight (9:34)
+03. I Got Your Love (8:11)
+04. Nightfall (8:29)(   Читать дальше...   )Жанр: Funk / Soul, DiscoПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40018A3963C3EA1CD5DD0DD0282D466AD75072DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504070   (814139) от 22.10.2021
 
 VA - In Love with Lounge, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
@@ -643,64 +701,6 @@ ZAZ - Isa (2021) [AAC|~308 Kbps] <Chanson, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:174762FDD6EEBDBE219D0B5C6E0487738B374BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504466   (812366) от 23.10.2021
-
-VA - Lounge Freebeat, Vol. 5 (2020) [AAC|~283 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiozoom - Lounging Keys (4:46)
-02. Soundset City - Basic Love (Center Lounge Cut) (3:14)
-03. Jazzy System - Vertigo (3:59)
-04. CiYou - LoFi Chilly (3:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8E8B5F5FE39D4B525B86F59013797E3E60C3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504459   (812356) от 23.10.2021
-
-VA - Lounge Freebeat, Vol. 1 (2015) [AAC|~306 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - Thinking About You (Lounge Mix) (4:51)
-02. Nightzoom - Silence (Vocal Lounge Remix) (5:04)
-03. Jenny Kiwool, Soundset City - Smooth Delight (Vocal Lounge Mix) (5:07)
-04. Johannes Huppertz - Radio Paris (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27B149BCA5BB200F6B28F9DD686433EE0636BCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

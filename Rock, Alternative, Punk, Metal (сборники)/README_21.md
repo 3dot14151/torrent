@@ -1,3 +1,148 @@
+###  Публикация: 1025597   (710185) от 12.06.2016
+
+Splattafish - Celestial Plague (2016) [MP3|320 кб/с] <Death Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eradication
+02. Anemic Disposition
+03. Orchestration Of Terra
+04. Odious Nefarious(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A43673A124F216F1EB3167257AFCD30B3B1F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025600   (710180) от 12.06.2016
+
+Cryptic Abyss - Feed 'Em To The Sea (2016) [MP3|320 кб/с] <Death Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machined Minds
+02. Unblinking Eye
+03. Alcoholic Surgeon
+04. Reduced To Bones(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2A66C3A72E83DF98B5F13219B7D68703E86D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025591   (710107) от 12.06.2016
+
+Vale Of Pnath - Vale Of Pnath II (2016) [MP3|320 кб/с] <Melodic Death Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blacker Than
+02. A Nightmare Phantasm
+03. Klendathu
+04. The Horror In Clay(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3B7F5078B9DD24E4A13114C2F30337CDD3E14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792166   (709913) от 02.06.2014
+
+VA - Driving Rock Ballads (2014) [MP3|320 кб/с]<Rock, Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nirvana - The man who sold the world
+02. Chris Rea - I just wanna be with you
+03. Doors - The severed garden
+04. Nocturnal rites - The legends lives on(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 07:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD6BE00E83289DB10AB995C2140C7579A471809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401421   (709390) от 10.08.2020
+
+VA - Get The Indie Music (2020) [MP3|320 Kbps] <Indie Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709390.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mohlavyr - Smеlands Paris
+002. Dopamoon - Time Is Money
+003. Kidbug - Lovesick
+004. The Amazing Devil - The Horror(   Читать дальше...   )Жанр: Indie Pop-RockПродолжительность: 07:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9F9233979A6F954A42954A104E7DA8339FD068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220038   (708162) от 17.04.2018
 
 VA - Adventum Sanctorum: Metal Compilation (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
@@ -601,151 +746,6 @@ VA - Compilation part 7 (Rock, Blues Rock) (2022) [MP3|320 Kbps] <Rock, Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ACD051B33853BAC78721C873E2EB8AE8468EE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403869   (686041) от 22.08.2020
-
-VA - Women in rock (Compilation) (2020) [MP3|320 Kbps] <Rock, Hard Rock, Hard 'N' Heavy>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondie - Atomic
-02. Gossip - Heavy Cross
-03. Lita Ford - Kiss Me Deadly
-04. Hole - Celebrity Skin(   Читать дальше...   )Жанр: Rock, Hard Rock, Hard 'N' HeavyПродолжительность: 05:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B5910EE842C1118C9F5A107905CCF357E48FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795882   (685726) от 14.06.2014
-
-VA - Alterportal HITS 14 Vol. 69 - May (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting Room Reunion - Storm Rages On
-02. die Apokalyptischen Reiter - Wo Es Dich Gibt
-03. Body Count - Talk Shit, Get Shot
-04. Seventh Day Slumber - Goodbye(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83042A82FC25710CD1B04A3A92DF7C4579428724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403991   (684277) от 23.08.2020
-
-VA - Concord Dawn: Hard Rock Core Anthology (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684277.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Video Nasties - Viva Death
-002. Naat - The Moth
-003. Crafter - Rupture
-004. Disembodied - Bloodshed Rain(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 09:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18208A55D9D55A3059AFA732C68E0DCBD46C3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404162   (684265) от 23.08.2020
-
-VA - Rock Songs: Essentials Collection (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Broken Field Runner - Test Everything
-002. Vulture Party - Mayday Cockerel
-003. Neufundland - Liebe (Radio Edit)
-004. Bersuit Vergarabat - Vuelos(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C958F0AECCE5A418C90F7F3546A018CAC019A115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289645   (683731) от 17.03.2019
-
-VA - Знакомые все лица...Rock 90-х (зарубежный выпуск) (1990-1999) [MP3|320 Kbps] <Hard Rock, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Maiden - Be Quick Or Be Dead (03:25)
-02. Helloween - Goin' Home (03:52)
-03. Accept - Rich And Famous (03:14)
-04. Gamma Ray - Lust For Life (05:19)(   Читать дальше...   )Жанр: Hard Rock, Metal, RockПродолжительность: 08:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98D702C7C48C9FA56510BEE9FE2053541BC9AAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

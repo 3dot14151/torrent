@@ -1,25 +1,25 @@
-###  Публикация: 1264217   (282957) от 22.11.2018
+###  Публикация: 1080807   (288564) от 07.12.2016
 
-VA - Elles De Graaf - The Long Run - The Best Of (Extended Mixes) (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+VA - Pacific Lounge Collection (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 
 >>Electronic
->>Trance
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Elles De Graaf - Show You My World (Ferry Corsten Remix - 2014)
-02.Armin Van Buuren & Perpetuous Dreamer - The Sound Of Goodbye (Armin's Tribal Feel Mix)
-03.Alan Morris & Elles De Graaf - Calm The Night (Ferrin & Morris Remix)
-04.Elles De Graaf - Mind Of The Wonderful 2018 (Sunset Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 03:39:16
+01. Don Gorda - Festa do Sol (05:06)
+02. Enrico Donner - Old Town Blues (05:01)
+03. Solanos - IncrAvel (05:42)
+04. Bananaquit - Hold Me Up (06:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:27:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C76248428BCD3750EF2A4BDADF02CD3F997C4AA4
+magnet:?xt=urn:btih:9B9214EDD28B26B2656F015D3D5B389C922BF71A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,347 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264229   (282893) от 22.11.2018
+###  Публикация: 1080482   (288556) от 07.12.2016
 
-Baby Sleep Music - Christmas Baby (2018) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Children's Music, Lullabies>
+VA - Classy Dining Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Cielo Terso (05:11)
+02. Enrico Donner - Forget Me Not (06:01)
+03. Cane Garden Quartet - Toca Me (06:09)
+04. Baghira - 400 Trees (05:28)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A9F89BD3E1678252126CDEA68C9977B2F6D2818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186111   (288373) от 24.11.2017
+
+VA - Chilling Process Vol.06 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Robien M  -  Amour (Original Mix) 5:58
+02.  CJ RcM  -  Surrealism (Original Mix) 6:14
+03.  Doors In The Sand  -  Does It Matter (Original Mix) 5:10
+04.  DJ Rostej  -  Like A Dream (Original Mix) 2:51(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB56EB33C615AAB52E421F281F672D390035FD33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186116   (288369) от 24.11.2017
+
+VA - Pure Chill & Ambient Vol.09 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nikolay Mikryukov  -  Bora Bora (Original Mix) 7:18
+02.  Anton Delaitech  -  Lonely Rain (Original Mix) 4:19
+03.  Aeon Waves  -  Departure (Original Mix) 5:51
+04.  Koa  -  This Time (Intro Mix) 2:23(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456023764B049582B6D5C9B054EE92381FF18A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186124   (288364) от 24.11.2017
+
+VA - Pure Chill & Ambient Vol.10 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Seven24 & Soty  -  Vision (Original Mix) 4:41
+02.  DJ Party-Zan  -  Through The Mist (Original Mix) 5:22
+03.  Max Denoise  -  Destiny (feat. Angel Falls) (Alastair Pursloe Remix) 4:45
+04.  Iris Dee Jay  -  Paradise (feat. Maria Opale) (Original Mix) 3:40(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10666F6296F7BD710AE1A317BB0D291C66CE9D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186074   (288362) от 24.11.2017
+
+VA - Drivin Moods - 15 Dynamic Tunes For The Car - Moods Series Vol 4 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulmates - Fly Hi
+02. Jean-Pierre LaSalle - Circle Line (Cool Vibe version)
+03. Sound Surgeons - Novo Mundo (2011 Mix)
+04. PFL - Love me too (Instrumental)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED57460957A8A52525080A142ABB5E59BA9F0DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186228   (288361) от 24.11.2017
+
+Steve Brian - Enhanced Progressive 300 (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Steve Brian - Riviera (Steve Brian Mix Cut)
+02.Axis - Over You (Steve Brian Mix Cut)
+03.East & Atlas - Casablanca (Steve Brian Mix Cut)
+04.19 Hz - The Key (Steve Brian Mix Cut)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5291800B26415A7F3C2EC6A991B99EA5D32CE34E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186251   (288360) от 24.11.2017
+
+VA - Black Hole Trance Music 11-17 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Duguid - C.H.I.C. (extended mix)
+02. Myon - Albion (Mitiska extended remix)
+03. Sheridan Grout & Diana Leah - Broken To Pieces (extended mix)
+04. Novaspace - Revelation (extended mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CADE3A915D4AEDE67B21FBA00B4840F6FB14602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263610   (288266) от 19.11.2018
+
+Martin Tolosa - Emphasis (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emphasis (Original Mix)                                         [08:43]
+02. Emphasis (Torby Jay Remix)                                      [06:27]
+03. Sunbright (Original Mix)                                        [08:03]
+04. Sunbright (Julian Nates Remix)                                  [07:19](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616C43EFB23F5535AB360FBC4649D1510587DA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263579   (288264) от 19.11.2018
+
+Agustin Vitale - S.O.S. (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.O.S. (Original Mix)[08:10]
+02. S.O.S. (GSEP Remix)[09:00]
+03. S.O.S. (Gabriel Amato Remix)[07:25]
+04. Wasnt Waiting For This (Original Mix)[07:59](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7960FCD7050B1493CBD9922EF1C777A4D0535000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263589   (288263) от 19.11.2018
+
+Alec Araujo and Cryptic Realms - Katharsys (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katharsys (Original Mix)                                        [08:40]
+02. Katharsys (Jackie Mayden Remix)                                 [07:40]
+03. Katharsys (NikoChristo and Synas Remix)                         [09:06]
+04. Katharsys (Ricardo Piedra Remix)                                [07:52]Жанр: Progressive HouseПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB695770FB1BFE1628DCA26C7AA6602B9D42F204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263599   (288262) от 19.11.2018
+
+Gabriel Amato - Parodi (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parodi (Original Mix)                                           [08:41]
+02. Parodi (Spacebeat Remix)                                        [08:31]
+03. Simbal (Original Mix)                                           [08:00]
+04. Simbal (Paul Sawyer Remix)                                      [08:06](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1264ECA5B86EDD5E9EB95BCF995F7EA7302123E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263614   (288261) от 19.11.2018
+
+Lacunae - 2 Albums (2004-2006) [FLAC|Lossless|tracks+.cue] <Trip Hop, Experimental, Illbient, Glitch, Ambient>
 
 >>Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Joy To The World
-02. First Noel
-03. O Holy Night
-04. Silent Night(   Читать дальше...   )Жанр: Easy Listening, Children's Music, LullabiesПродолжительность: 01:00:03
+01. Your Surface (01:22)
+ 02. Lifetime (03:17)
+ 03. Rebuild In Black (04:25)
+ 04. Follow Me Down (04:00)(   Читать дальше...   )Тип издания: CDЖанр: Trip Hop/Illbient/Experimental/GlitchПродолжительность: 00:43:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE17A3536253B9EF248E654521282005A287709D
+magnet:?xt=urn:btih:F74A3AB5010A93633FC8372298503B948E68949C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +375,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263848   (282891) от 22.11.2018
+###  Публикация: 1263594   (288258) от 19.11.2018
 
-VA - In The Mix 007 (Airwave Progressive Sessions) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+Eli Spiral - Sol One (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pranav Mayekar - Elixier (Original Mix)                         [09:46]
-02. Eric Lune - Benji (Original Mix)                                [06:57]
-03. Eelke Kleijn - The Calling (Original Mix)                       [08:12]
-04. Laurent Chanal - Marlin (Nicolas Rada Remix)                    [07:19](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:47:11
+01. Sol One (Original Mix)                                          [08:35]
+02. Sol One (Magnovis Remix)                                        [07:46]
+03. Sol One (Willscape Remix)                                       [07:44]Жанр: Progressive HouseПродолжительность: 00:24:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE2C60D3420CE549DEA65828959FEE5A91D4A322
+magnet:?xt=urn:btih:7B021CBD29E21C813F117358A74AAF7FED9D2BCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +403,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264087   (282885) от 22.11.2018
+###  Публикация: 1186357   (288257) от 24.11.2017
 
-VA - Super Club Volume 2 (Compiled by M. Pravda) (2010) [FLAC|Lossless|tracks + .cue] <Trance,Progressive Trance>
+VA - Sexy Funky House Grooves Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 
 >>Electronic
->>Trance (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kudesnik & PriSe feat. Eva Kade - Ancient Dreams (Vocal Mix) (06:32)
-02. M.Pravda feat. Annkvin - Falling Away (Original Mix) (07:19)
-03. Platinum Monkeys - Pain (Original Mix) (08:03)
-04. The Chaser - Till The End Of Time (Original Mix) (08:06)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:16:27
+01. Crazibiza - Everybody Dance (Original Mix) 06:43
+02. Dj CrEdo - I Want, Pump! (Club Mix) 06:36
+03. Charles Feelgood - Aerobic Martini (Original Mix) 06:45
+04. Mike Newman & Antoine Cortez - All Out (Original Mix) 05:54(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:40:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB0F3CCFBB41BD7D467C869BDBD692B035EB2D1F
+magnet:?xt=urn:btih:45C9D1E355119999C83A4AA497C8B99760C33F59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +432,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264157   (282883) от 22.11.2018
+###  Публикация: 1263582   (288153) от 19.11.2018
 
-Parra for Cuva - Paspatou (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill House, Tech House, Downtempo>
+Ligovskoï (Ligovskoi) - Esam (2018) Field Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paspatou (4:29)
- 02. Out Here with Us (4:08)
- 03. Useless Magic (3:57)
- 04. Cupa Cupa (6:05)(   Читать дальше...   )Жанр: Electronic, Chill House, Tech House, DowntempoПродолжительность: 00:57:55
+01. Thessalonians (03:32)
+ 02. Mungu (05:53)
+ 03. Fairbanks (04:07)
+ 04. Behaim (07:02)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:35:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD96C0508B434370F4BE62680EBB747AA2527623
+magnet:?xt=urn:btih:AB19FCB3C928165A343A681F576FE1B7BB93B047
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,315 +461,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187046   (282674) от 27.11.2017
+###  Публикация: 1263468   (288129) от 19.11.2018
 
-VA - Chilling Process Vol.07 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CJ RcM  -  Sweet Night (Original Mix) 4:47
-02.  R.I.B.  -  Games Rain (Original Mix) 7:27
-03.  Vladimir Lobov  -  In Between (Original Mix) 4:24
-04.  Seven24  -  Paradise (Original Mix) 3:40(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077EAAAD44ACBADBC23A2DEBB4908D31A296C84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187042   (282671) от 27.11.2017
-
-VA - Chilling Process Vol.08 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eugene Kush  -  12 (Piano) 2:21
-02.  R.I.B.  -  I Look At Sea Horizon (Original Mix) 6:48
-03.  Synthetic Impulse  -  Solitude And The Moonlight (Original Mix) 5:54
-04.  EMIOL  -  Under The City (Original Mix) 4:16(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154991D65848D135039F863CCC28082BD279C881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187050   (282669) от 27.11.2017
-
-VA - Uplifting Trance Essentials Vol.2 (2017) [MP3|128-320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marvic  -  Energetic (Original Mix) 8:29
-02.  Ed Baxxter  -  Wafaa (Original Mix) 8:02
-03.  Artyom Kopylov  -  Hyperborea (Original Mix) 8:11
-04.  Introtrance  -  Relativity (Original Mix) 7:11(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7D3EE0476F8D4C6EC001FADA0FDB9A9F4EE599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187090   (282667) от 27.11.2017
-
-VA - Ori Uplift - Uplifting Only 250 (incl. Roman Messer Album Guestmix) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AirLab7 - Reminiscent of My Teen Life
-02. VoIces - Dance Of The Snowflakes
-03. Braulio Stefield - Chain Of Memories
-04. Nicklifter - Dreams of Paradise(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3990B0BBC5FD9EEBA60F4EFEF5EE07A096C2591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964540   (282590) от 11.12.2015
-
-VA - Lemongrassmusic Episode 200 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco - Home [04:19]
-02. Charly'n Black - Today [03:11]
-03. Mo'jardo - Forgive Me [04:26]
-04. Dreamhunter - Bring the Light [03:57](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A818D17350437D46E7FC6886B4411399EEDA26EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187097   (282551) от 27.11.2017
-
-VA - Markus Schulz & Jam El Mar - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Jam & Spoon - Odyssey to Anyoona (Markus Schulz vs. Jam El Mar Remix)
-02. Solid Stone - Detox
-03. Audien - The Reach (Steve Brian Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B7D62A8F5FB6783AE5CE41C72FF20F4B7519E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187056   (282549) от 27.11.2017
-
-VA - Trance The Vocal Session 2018 (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Vocal TranceПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C51A986864678F17A284D0E809BD64925DDBD7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187082   (282547) от 27.11.2017
-
-Roman Messer - Ambition (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Ambition (feat Vito Fognini - original mix)
-02. Roman Messer - For You (feat Clare Stagg -  original mix)
-03. Roman Messer & DJ Xquizit - Empire Of Our Own (feat Osito - original mix)
-04. Roman Messer & Ruslan Radriges - At World's End (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8E3145CCE6EB64EA992FFB9330289FE9E321A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964320   (282244) от 11.12.2015
-
-Bad Lieutenant (ex-New Order) - Never Cry Another Tear (2009) [FLAC|tracks+.cue]<Synthpop, New wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sink Or Swim (04:12)
- 02. Twist Of Fate (04:10)
- 03. Summer Days (05:06)
- 04. This Is Home (04:42)(   Читать дальше...   )Жанр: Synthpop, New waveПродолжительность: 00:65:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1C5F075B65E2EA89FF850DCF24D14193704C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964353   (281955) от 11.12.2015
-
-Depeche Mode - Never Feel The Silence (Remixed by Isaac Junkie) (2015) [FLAC|image+.cue]<Synthpop, Remixes>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Let Me Down Again [5:46]
- 02. I Feel Loved [4:41]
- 03. Enjoy The Silence [5:11]
- 04. Personal Jesus [5:01](   Читать дальше...   )Жанр: Synthpop, RemixesПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF75DB1C457375EE18EAFA79E08DB1E0BBED455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264326   (281242) от 23.11.2018
-
-SMX - Hinterland EP (2018) Blank Mind [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+VA - Dub Techno Moments VA (2018) GOS Music Studio [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno, Minimal, Tech House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hinterland (05:15)
- 02. Mono (06:30)
- 03. Study One (09:07)
- 04. Uakari (07:57)Жанр: Techno, AmbientПродолжительность: 00:28:49
+01. Volunteer - Selfreflection (13:26)
+ 02. Atimpuri - A@4 (Specdub Chillout Rmx) (04:58)
+ 03. Tender H - Prism (05:53)
+ 04. Substak - Vici (05:15)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Techno, Minimal, Tech HouseПродолжительность: 02:06:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8D56A9A1C2C6B180B6AFF97A8E77FC85D907FC4
+magnet:?xt=urn:btih:81A3ED328FEA4192C804F62A996E30F4F7692895
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264334   (281240) от 23.11.2018
+###  Публикация: 1335420   (287911) от 02.11.2019
 
-VA - Markus Schulz – Global DJ Broadcast (2 Hour Studio Mix) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+Neptune Project - Live @ Lost in Trancelation, Bikkuri Lounge Orlando, United States 2019-10-11 [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Markus Schulz vs. Jam El Mar – The Lotus
-02. Ilan Bluestone ft. Ellen Smith – Rival (Rafaël Frost Remix)
-03. Raito – Dark Ritual
-04. Sam Laxton & Noire Lee – Thunderstorm (GXD Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:06
+01. Nathan Profitt - Luna (Christopher Lobsinger Remix)
+02. Interstate - I Found You (Perry O'Neil Remix)
+03. Lolo - Laia's Daydream
+04. Jam & Spoon - Stella (Nalin & Kane Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:40:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAA60187C52833AE6BC07964D478FEDA2724304C
+magnet:?xt=urn:btih:BF999124C974CB0499E1755E532A9B012E995DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264336   (281235) от 23.11.2018
+###  Публикация: 1335433   (287910) от 02.11.2019
 
-VA - Ori Uplift - Uplifting Only 302 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+Euphoric Nation - Live @ Armory Minneapolis, United States 2019-10-26 [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. FAN FAVORITE & PRE-RELEASE PICK: Playme - The Great Bay (Intro Mix)
-02. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
-03. Brian Flinn & Type 41 - Back to Yesterday
-04. Mike van Fabio & Kim Kiona - Don't Run Away(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:58:39
+1. Clawz SG - Xanax
+2. Estiva - Eclipse
+3. David Wise - Aquatic Ambience (Wæde Wätts Remix)
+4. Andretta - Fragments(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E8E4B2B03ED621B02E36AACAD472792A997FE7D
+magnet:?xt=urn:btih:278C29ABD65D8F9094CED82A84FD0ABCF53EA435
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,28 +548,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264389   (281157) от 23.11.2018
+###  Публикация: 1335458   (287890) от 02.11.2019
 
-VA - Cosmic Dreaming Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, Lounge>
+Peel Seamus - Susurro (2019) Delsin Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Detroit Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valve POD (03:02)
+ 02. Absence In Reality (02:09)
+ 03. Strawberry Hills (04:00)
+ 04. Black Mesa (02:31)(   Читать дальше...   )Жанр: Techno, Detroit Techno, Techno AmbientПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB89316825FDAED658C10B92E37C96BAFB051B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335414   (287863) от 02.11.2019
+
+Timmy Trumpet - Tomorrowland One World Radio Halloween Freak Show 2019-11-01 [MP3|320 Kbps] <Electro House, Hardstyle>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carnage ft. Timmy Trumpet & KSHMR - Toca
+02. Timmy Trumpet ft. Charlott Boss - Therapy
+03. Carnage & Timmy Trumpet ft. Wicked Minds - Nah Nah
+04. Knife Party - Internet Friends(   Читать дальше...   )Жанр: Electro House, HardstyleПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE20DE30B60B9FEF6931729D43DBB1C20ABD19A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186290   (287800) от 24.11.2017
+
+ScAnDroid Experiment's - Ambientable (2017) Авторская раздача [MP3|320 Kbps] <Ambient, Experimental, Electronic>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hear Me Now
+02 - With Measured Steps
+03 - Don't Rush ... Take a Breath
+04 - Do What You Want(   Читать дальше...   )Жанр: Ambient, Experimental, ElectronicПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5327D83C19056CA5CAA721F81AA9375E621FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335424   (287743) от 02.11.2019
+
+Nitrous Oxide - Live @ Club Mecca Prague, Czech Republic 2019-10-10 [MP3|192 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitrous Oxide vs. Planet Funk - Chase The Rebooted Corn Flakes (Nitrous Oxide Mashup)
+02. Nitrous Oxide - Tsukuba
+03. Nitrous Oxide - Flat Six w/Nitrous Oxide ft. Aneym - Follow You
+04. Nitrous Oxide - Verano(   Читать дальше...   )Жанр: TranceПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A546D3856A56747E3B31D76F9749EA74EF1CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335392   (287732) от 02.11.2019
+
+VA - Coffee Bar Chill Sounds Vol 15 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rex Kramer – Another Cup (4:45)
+02. Jens Buchert – Causality (5:21)
+03. Rex Kramer – In The Kitchen (4:51)
+04. Anemine – White Series 256 (7:47)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81594545F7819D5BF419F899D10C58C8F4C334F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335427   (287729) от 02.11.2019
+
+Jim Brickman - Underground (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Lounge, Jazz Groove>
 
 >>Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Der Waldlaufer - Yanaras Light (original mix) 04:34
-02.  Island Sun - Be Happy The Day (Endless Fly mix) 05:56
-03.  Marga Sol - Hold Me (original mix) 04:59
-04.  Frank Borell - Mystic Colours (In Heaven mix) 05:59(   Читать дальше...   )Жанр: Ambient, Chillout, LoungeПродолжительность: 01:44:56
+01. Poolside Chill (Super Chilled Lo-Fi Remix) (3:18)
+ 02. Light a Candle (Super Chilled Lo-Fi Remix) (3:51)
+ 03. Drive North (Super Chilled Lo-Fi Remix) (3:32)
+ 04. Served Chilled (Super Chilled Lo-Fi Remix) (4:38)(   Читать дальше...   )Жанр: Instrumental, Chillout, Lounge, Jazz GrooveПродолжительность: 00:38:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61EB6165559C08D6007CE7081C42F1D75F5FB146
+magnet:?xt=urn:btih:CFCD1F7CE2519E449A6B2E3ABCA26540D4CBFFA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,202 +722,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081940   (281118) от 11.12.2016
+###  Публикация: 1335437   (287562) от 02.11.2019
 
-VA - Release Records: Best Of (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third Party - Alive 3:33
-02. Pink Panda - Xenon 6:28
-03. Third Party & Sentinel - Start It 3:50
-04. Magic Sound - Return 4:28(   Читать дальше...   )Жанр: HouseПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5127967515AC07257D4C4D326F1CE62E389F40EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081847   (281117) от 11.12.2016
-
-VA - Lounge Energizer: Great Electronic Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+VA - Lovely Mood Music presents: Chill With Style Series (The Lounge & Chill Out Collection) - 5 Releases (2013-2015) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Momylove - Red Pieces 3:08
-02. Blue Side - Overseeing 2:56
-03. Green Grid - Cursive 3:17
-04. Shangly Joe - Get Lucky 2:38(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:07:51
+2013 - Chill With Style (The Lounge & Chill Out Collection)
+2014 - Chill With Style Vol. 2 (The Lounge & Chill Out Collection)
+2014 - Chill With Style Vol. 3 (The Lounge & Chill Out Collection)
+2015 - Chill With Style Vol. 4 (The Lounge & Chill Out Collection)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 10:25:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A83D00DB6F7ECA43BC96CFA3BBD7BF7673AA6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081894   (281057) от 11.12.2016
-
-VA - Mountain Sound The Lounge Of Beaver Creek (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Susy Seven - Come With Me 7:00
-02. Sternenton - Lift Into The Sky 5:34
-03. Time Away - Mnemba Reef 5:54
-04. Lee & Sun - Underwater 3:44(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E422B8082EEF6A63AAABD717EBF1296F5E522FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081964   (281056) от 11.12.2016
-
-VA - Underground People Christmas 2016 (50 Tracks For Your Winter Party) (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phunk Investigation - Dna Extractor (Markus Schulz Big Room Reconstruction Edit) 04:15
-02. M. Fukuda - Wind Knights 07:14
-03. Andreew - Olympic 06:36
-04. Anti-Slam & W.E.A.P.O.N - The Original B-Boy (Phunk Investigation Remix) 08:14(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 06:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9F99ADC381D6851554A7856C1A0098C421E1F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081835   (281055) от 11.12.2016
-
-VA - Chillout Tonight: City Club Edition (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joop & Aurelio - Macaracas 5:03
-02. Zero Feedback - Rien ne va plus (Don Gorda Project Remix) 7:00
-03. Don Gorda Project - Rise to the Surface 5:36
-04. Enrico Donner - I Need a Love 6:11(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C7E96BAA66A301062D72B66BC8463F8485BBDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081966   (281052) от 11.12.2016
-
-VA - Mainstage Music Top 10 (2016) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W&W - How Many 2:48
-02. TWIIG - Hero 3:00
-03. Maurice West - Dont You Say 3:10
-04. W&W with Hardwell & Lil Jon - Live The Night 2:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 00:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D9ADB4B4B0EF2A1C32D25C199B1F625821D3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081953   (281040) от 11.12.2016
-
-VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016) [MP3|320 Kbps] <House, Vocal House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benny Camaro - Soft 4:35
-02. Gaab - Way Back 4:58
-03. KVSH - Seekin' (Feat. Erinio) 5:41
-04. Paul Jacobson - Spend My Time (Radio Edit) 2:32(   Читать дальше...   )Жанр: House, Vocal House, ProgressiveПродолжительность: 02:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55647CDD81DB2EC6F9AD36389C6670FF18A4D57
+magnet:?xt=urn:btih:243264AA61ACCCBF94A1C1EBF5EB63FD20CF090A
 ```
 
 https://mybot314.ru/tekegram_catalog/

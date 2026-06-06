@@ -1,3 +1,90 @@
+###  Публикация: 1037698   (612221) от 25.07.2016
+
+VA - Dirty House Masters Mellow (2016) [MP3|320 Kbps] <House, Electro House, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612221.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tritonal & Steph Jones -  Blackout (Madison Mars Remix) 4:40
+002. Breathe Carolina & KARRA -  Platinum Hearts (Reez Club Mix) 3:53
+003. Benny Benassi & Vassy -  Even If (T-Mass Remix) 3:09
+004. Quintino -  Rock It To The Beat 3:38(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 08:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581A1CA07C9315EBF00686A85498F0C251E97E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037754   (612137) от 25.07.2016
+
+VA - Amnezia Super Hits 04 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren ft. BullySongs -  Freefall 3:19
+02. Calvin Harris ft. Rihanna -  This Is What You Came For (Tutas Edit) 3:36
+03. R3HAB & Quintino -  Freak (Sam Feldt Edit) 3:16
+04. Dimitri Vegas & Like Mike -  Stay A While 3:52(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17BEF902BC79E045232E22DCD46F6CD12389763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037767   (612126) от 25.07.2016
+
+VA - 50 Perfect Summer Party Hits (2016) [MP3|263~320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Aoki & Boehm Feat. WALK THE MOON -  Back 2 U (Extended Mix) 6:36
+02. John Dahlback Ft. Bullysongs -  Walking With Shadows (Happy Love Remix) 3:28
+03. Pulsedriver -  I Want Your Soul (Sal De Sol 2015 Mix) 4:06
+04. Arnold Palmer -  Hey There Delilah (Luca Debonaire Edit) 3:40(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CD193A86238BDA1A84F518FC837ABFCF7F0F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038034   (610312) от 26.07.2016
 
 VA - Uplifting Trance Collection - Episode Second (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
@@ -658,93 +745,6 @@ VA - Synthwave Dream (Vol.05) (2022) [MP3|320 Kbps] <Synthwve, Electronic, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:238DE596A86270267F94651A6EBD88E433F3D988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147678   (607736) от 03.07.2017
-
-VA - Plankton Essence: Psychedelic Trance Mix (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607736.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anubia - Visual Cortex (Original Mix) 7:30
-002. Streamers - Power of Emotion 8:58
-003. JBC Arkadii - Dark Energy 9:26
-004. Kaayaas & Crystal Mantis - Obsidian Circle 8:01(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 12:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E3887BA21128CDF2993FB7EABB76A7735EDEC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147731   (607722) от 03.07.2017
-
-VA - Magic Plasma: Hardstyle Techno Dance (2017) [MP3|320 Kbps] <Hardstyle, Tech House, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bobrovich - Nobody Told Me About Button 4:28
-002. Scott Brown - Need You In My Arms (Ganar Remix) 5:49
-003. DJ Mutante - Fuck the President 5:48
-004. Scott Attrill - Area 52 (Original Mix) 5:37(   Читать дальше...   )Жанр: Hardstyle, Tech House, Dance, ElectroПродолжительность: 08:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7283EF3F4A072591C3DA074B22E1783A39BB0682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147813   (607720) от 03.07.2017
-
-VA - Best of Deep House. Volume 4. Miss World [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeff Bennett - The Beginning [4:22]
-02. Janova Jacks - Come And Play (Original Mix) [7:14]
-03. Josen Deep - Shades [7:12]
-04. Terry Lee Brown Junior - Innocent (Forteba Remix) [6:12](   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 04:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F7382BEA049694585B0654816B9054D6DB7197
 ```
 
 https://mybot314.ru/tekegram_catalog/

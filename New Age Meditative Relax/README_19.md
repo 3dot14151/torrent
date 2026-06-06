@@ -1,3 +1,32 @@
+###  Публикация: 1060304   (457250) от 06.10.2016
+
+Eguana - The Last Dragon (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breathing Cold Mountains (6:24)
+02.  Spirit Of The Dragon (9:49)
+03.  The Majestic Finesse To Soul (6:23)
+04.  Shaman Dancing With Dragon (9:53)(   Читать дальше...   )Жанр: Ambient, Chillout, New ageПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8C466FBCD9AEDD0D40F883B7B97472942176AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246966   (456986) от 13.09.2018
 
 Matt English - Inspire Me (2018) [MP3|320 Kbps] <New Age, Piano>
@@ -743,35 +772,6 @@ VA - Relax Music Vol.1 (Star Mark Compilations) (2008) [MP3|320 kbps]<Relax, Ins
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946177   (429453) от 12.10.2015
-
-Bernard L'Hoir - She's... (2015) [OGG| 407-500 кб/с]<New Age, Jazz, Folk, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My gypsy girl (05:25)
-02. Between you and me (03:42)
-03. A classy blues (05:53)
-04. Osar’s Naad (03:55)(   Читать дальше...   )Жанр: New Age, Jazz, Folk, InstrumentalПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBB5C9855BBF92CF28E169D4730C471255CF29A
 ```
 
 https://mybot314.ru/tekegram_catalog/

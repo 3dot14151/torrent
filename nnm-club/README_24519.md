@@ -1,31 +1,25 @@
-###  Публикация: 481065   (99199) от 10.04.2012
+###  Публикация: 1735477   (106903) от 08.07.2024
 
-Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Metal>
+Sear Bliss - Heavenly Down (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ascend to the Throne (3:35)
-02. The Compass (3:39)
-03. Whispers of Hope (3:57)
-04. Reject the Mould (4:05)
-05. Inflexible Kingdom (3:22)
-06. Instruction Cycle (3:22)
-07. Lost in Oblivion (3:31)
-08. Decoding Reality (4:03)
-09. Dare to Cross (3:50)
-10. Fall to Drama (5:00)(   Читать дальше...   )2012Жанр: Modern Melodic Death MetalПродолжительность: 00:41:58
+01. Infinite Grey (06:17)
+ 02. Watershed (04:42)
+ 03. The Upper World (05:56)
+ 04. Heavenly Down (04:36)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7241D4EE08BA3F45188E4731AD76846EE6CDC61A
+magnet:?xt=urn:btih:AC50686C490914AAD66EE7913A90209B9989A950
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,34 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480867   (99197) от 10.04.2012
+###  Публикация: 1735413   (106902) от 08.07.2024
 
-Susan Justice - Eat Dirt (2012) [MP3|320 кб/с]<Pop>
+Goodbye June - Deep in the Trouble (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Born Bob Dylan
-02. Eat Dirt
-03. Forbidden Fruits
-04. Paper Planes
-05. I Wonder
-06. My Sweater
-07. Just Imagine
-08. Don’t Be A Stranger
-09. Hello Goodbye
-10. You Were Meant To Sing(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:41
+01. The Hard Way (3:03)
+02. Riding Through (2:39)
+03. Angel (3:14)
+04. My Place (3:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2E87BBFFAE9B3C7E5E3D707BC927FD8C8729828
+magnet:?xt=urn:btih:2BA6C0F021EC8D572DDE4729F6AC1DF0BA45E87C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,25 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481243   (99193) от 10.04.2012
+###  Публикация: 1735554   (106901) от 08.07.2024
 
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №27 (2012.04.10) SATRip
+Проповедник из Уэйкфилда / The Vicar of Wakefield (1910) WEBRip [H.264/720p]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:28
+Небольшая мелодрама по мотивам некогда очень известного литературного произведения. Это даже не экранизация, а скорее конспект. Главная интрига в том что молодой эсквайр (мажор тех времен), негодяй и подлец, соблазняет благочестивую дочь викария. Даже не столько соблазняет, сколько обманывает лживым обещанием женитьбы. Стандартная схема...Производство: США / Thanhouser Film CorporationЖанр: короткометражный, драма, немое киноРежиссер: Теодор МарстонАктеры: Мартин Фауст, Фрэнк Холл Крэйн, Anna Rosemond, Уильям Гарвуд, Мари Элайн, Берта Бланчард, Люсиль Янг, Уильям РасселлПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русскиеПродолжительность: 00:13:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:933D252E9326D22AC945027504C94B9A8E262E5A
+magnet:?xt=urn:btih:D39B150FF8AE877020DF7A3D411AD72654C50847
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -94,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480860   (99186) от 10.04.2012
+###  Публикация: 1735546   (106900) от 08.07.2024
 
-[Wallpapers] Wallpapers Sexy Girls (10.04.12)
+Harpazo - The Crucible (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Ichor
+02. Legion Program
+03. I Am God
+04. Golden Crown(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
+magnet:?xt=urn:btih:9D907EDA5BAB8E6BE31D53A222ED196DC4ECB37C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -120,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480863   (99185) от 10.04.2012
+###  Публикация: 1735456   (106899) от 08.07.2024
 
-[Wallpapers] HQ Wallpapers by KSV (10.04.12)
+Big Sun - Rite De Passage (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+1. The Sun
+2. I Was Loving You
+3. Stronger Than Anyone
+4. Directions(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:32:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
+magnet:?xt=urn:btih:29B4BE40BFEA677342F0BB3720BB9893D6ADA906
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -146,25 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480856   (99184) от 10.04.2012
+###  Публикация: 1735574   (106898) от 08.07.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (10.04.12)
+Isle of the Cross - Faustus The Musical (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Prologue (1:01)
+02. Wittenberg, 1587 (1:59)
+03. Metaphysics Of Magicians (5:43)
+04. The Divine Apostate (7:42)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic MetalПродолжительность: 00:58:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
+magnet:?xt=urn:btih:06C35756BF58B4FA8A951C8BA315345E29B47E19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,29 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480847   (99182) от 10.04.2012
+###  Публикация: 1735412   (106897) от 08.07.2024
 
-Эпицентр / Epicenter (2000) DVD5
+DS Caw - Nothing To Fight For (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Агент ФБР Аманда Фостер работает под прикрытием. Ее задача арестовать Ника Константина, сотрудника военного учреждения в Сан-Франциско, который, используя феноменальную изобретательность и сноровку, пытается похитить секретные документы и продать их террористам.
-
-Взяв Ника с поличным, Аманда должна доставить его в Федеральную тюрьму Лос-Анджелеса. Однако в это время в Лос-Анджелесе происходит землетрясение страшной силы.
-
-Находясь по разные стороны закона, преследуемые безжалостными убийцами и продажными полицейскими, потерявшими на несостоявшейся сделке большие деньги, Ник и Аманда вынуждены объединить свои усилия, чтобы разыскать потерявшуюся дочь Аманды, выбраться из разрушенного города и найти способ остаться в живых.Жанр: Фантастика, Боевик, ТриллерРежиссер: Ричард ПепинАктеры: Трейси Лордс , Гэри Дэниелс , Джефф Фэйи, Даниела Нэйн, Константин Котиманис , Кэти Стюарт, Эндрю Френсис , Генри Бекман, Тревор УайтПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:38:08
+01. Endless Rain (3:46)
+02. Nothing To Fight For (3:11)
+03. Static On The Radio (3:22)
+04. Demon In My Pocket (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:04
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A95EECF353CB7B0F74770BAF8ED70CD931B80D15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -202,169 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480297   (99181) от 10.04.2012
+###  Публикация: 1735469   (106896) от 08.07.2024
 
-Величайшие автомобили: GTO / Great Cars: GTO (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99181.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 50-е годы 20-го века Pontiac переживал кризис. Он должен был измениться или исчезнуть. Его машины были невзрачны, требовалось что-то новое. Компания решила выпустить привлекательную, быструю и доступную машину. Эта простая задумка спасла Pontiac и привела к разработке одного из культовых автомобилей GTO.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480887   (99179) от 10.04.2012
-
-[Wallpapers] Mixed Wallpapers 0.3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микс из обоев на разные темы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480320   (99177) от 10.04.2012
-
-Величайшие автомобили: Астон Мартин / Great Cars: Aston Martin (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название "Aston Martin" образовано от названия гонок "Aston Hill Clean" и имени основателя компании Вайнела Мартина. Эту машину предпочитали Джеймс Бонд и многие гонщики, желавшие бросить вызов Ferrari. Когда у завода начались трудные времена, его спасла американская компания. Сейчас Aston Martin снова стал эксклюзивной маркой мирового класса.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F6D9E72CF43AE846C540403D8DAA72FC6FC724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481124   (99176) от 10.04.2012
-
-Marc O' Tool - Serious (2012) [MP3|320 кб/с]<House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serious Intro (Original Mix)
-02. I Know (Original Mix)
-03. No Need To Worry (Ft. Stu Patrics - Original Mix)
-04. Feel So Good (Ft. Marc Vision - Original Mix)
-05. Party 1994 (Original Mix)
-06. What Is Up (Ft. Criss Source - Original Mix)
-07. Take Me To The River (Original Mix)
-08. You Got It (Ft. Christian Hinzer - Original Mix)
-09. I Call You (Original Mix)
-10. The Final (Original Mix)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D375DB91F53988CC43A72B8DE8BAD5E98102F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480597   (99174) от 10.04.2012
-
-[Wallpapers] Avto Desktop Wallpapers Pack 6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99174.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Desktop Wallpapers Pack 6 
-Название:  Avto Desktop Wallpapers Pack 6 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4B7BEC4C1CCA6330558CEE67ADAE93036C529E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478850   (99173) от 10.04.2012
-
-Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Technical metal>
+Sunbomb - Light Up The Sky (2024) [MP3|320 Kbps] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Adaptive Optics (04:15)
-2. Conveyance Of Flux (05:40)Жанр: Instrumental Progressive Technical metalПродолжительность: 00:44:03
+01. Unbreakable (03:56)
+ 02. Steel Hearts (03:38)
+ 03. In Grace We'll Find Our Name (06:00)
+ 04. Light Up The Skies (04:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B05790455A7CD4BDB69E1B4CAD37D65D74E4DA54
+magnet:?xt=urn:btih:C0B8490064FBC20058A54BB693BD2336E4288814
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,25 +227,344 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480842   (99170) от 10.04.2012
+###  Публикация: 1735487   (106895) от 08.07.2024
 
-[Wallpapers] Sexy Girls Pack Wallpapers (09.04.12)
+Sabïre - Jätt (2024) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doorway (Entry) (03:43)
+ 02. Pure Fucking Hell (03:56)
+ 03. Ice Cold Lust (05:02)
+ 04. I'm A Rock (04:40)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9E392F24F65F2CDF3D02210C8781F8FE8C73A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735436   (106894) от 08.07.2024
+
+Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Space Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Gone (4:13)
+02. In Between The Black And White (4:19)
+03. Courage Or Conviction (7:04)
+04. Least Of All You (4:13)(   Читать дальше...   )Жанр: Progressive Rock, Space Rock, Psychedelic RockПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8038504E2A1F9F4199AEC4CDB474E54080E05CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735426   (106893) от 08.07.2024
+
+The Commoners - Restless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil Teasin' Me (4:24)
+02. Shake You Off (3:56)
+03. The Way I Am (3:34)
+04. Restless (5:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA1426FC9C75AAE8397162F1A987207AC170286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735537   (106892) от 08.07.2024
+
+Illdisposed - In Chambers Of Sonic Disgust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spitting Your Pain
+02. I Walk Among The Living
+03. Lay Low
+04. The Ill-Disposed(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D63318A360D68E4BB15C92941C13E80EA29C340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735414   (106891) от 08.07.2024
+
+Kissin Dynamite - Back With A Bang (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back With A Bang (3:34)
+02. My Monster (4:07)
+03. Raise Your Glass (3:38)
+04. Queen Of The Night (3:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5C6D0CABD25294D31BACEAAE7FD79EDC9B5BA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735542   (106890) от 08.07.2024
+
+Heavy Star - Ride On (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Lady Firefly
+02. Razor Blade
+03. Lexi Love
+04. Rock 'N' Roll Again(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C72CA1D37A0ACF5AF03F79881480BF216B37D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735525   (106889) от 08.07.2024
+
+Limbonic Art - Opus Daemoniacal (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106889.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ad Astra Et Abyssos
+2. Deify Thy Master
+3. Consigned To The Flames
+4. Vir Triumphalis(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3920EF2CB0A09F24A90663D4C5246F254EBB511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735424   (106888) от 08.07.2024
+
+Sunbomb - Light Up The Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbreakable (3:56)
+02. Steel Hearts (3:38)
+03. In Grace We'll Find Our Name (6:00)
+04. Light Up The Skies (4:54)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D87193E2F404F7043F96F4C407FB0A94C8FDF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735476   (106887) от 08.07.2024
+
+Sear Bliss - Heavenly Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106887.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Infinite Grey
+2. Watershed
+3. The Upper World
+4. Heavenly Down(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADB00ACA8428F3D02DB14A02AE5866ED22C4AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735483   (106886) от 08.07.2024
+
+Sabïre - Jätt (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doorway (Entry)
+02. Pure Fucking Hell
+03. Ice Cold Lust
+04. I'm A Rock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04052FD4CFEACFEFB43B45FD462E30AF34A46F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735415   (106885) от 08.07.2024
+
+Lag - Asleep Behind the Wheel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One (3:34)
+02. Ragin! (3:22)
+03. Goin Down (3:59)
+04. LAG (4:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270B248A386141629B5902215D483F6FEDDA49BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735829   (106884) от 09.07.2024
+
+Draw.io 24.6.4 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Вам доступно бесплатное программное обеспечение под названием Draw.io - это отличный инструмент для создания диаграмм и лучшей организации вашей работы. Если вы студент и вам нужно сделать диаграмму для иллюстрации презентации или задания, или вы менеджер проекта и вам нужно управлять своей командой, данный софт практически на сто процентов способен удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C575A97843B62F1F5146F25363C371EE82638BDC
+magnet:?xt=urn:btih:743A8EF77ACC777AAD78247C0636641D2F533138
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,34 +572,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479828   (99168) от 10.04.2012
+###  Публикация: 1735633   (106883) от 09.07.2024
 
-Ani DiFranco - ? Which Side Are You On ? (2012) [FLAC|Lossless]<Folk Rock>
+Aiseesoft Video Converter Ultimate 10.8.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life Boat [04:09]
-02. Unworry [04:16]
-03. Which Side Are You On? [00:00]
-04. Splinter [04:36]
-05. Promiscuity [03:20]
-06. Albacore [04:08]
-07. J [05:15]
-08. If Yr Not [02:50]
-09. Hearse [04:04]
-10. Mariachi [04:03](   Читать дальше...   )Жанр: Folk RockФормат: CD, Album, PromoПродолжительность: 00:46:19
+Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0D2368F6BD12534D8DE73764A8D58676B41E0DE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,34 +598,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480926   (99166) от 10.04.2012
+###  Публикация: 1735745   (106882) от 09.07.2024
 
-VA - BIG Trance 2012.2 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+Quinn Sullivan - Salvation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Love (3:41)
+02. Salvation (Make me Wanna Pray) (3:50)
+03. Rise up Children (3:25)
+04. Don't Wanna Die Today (3:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1159C6967D54BB4F9467AA5EE77EC12EF896EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735694   (106881) от 09.07.2024
+
+Машина Времени - В метре (2020) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просыпается ветер
+02. Пой песню, пой, дульсимер
+03. Мы рядом
+04. Свет рождает свет(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AB55F7F68D785F35FA4282CB81B580BA847B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735804   (106880) от 09.07.2024
+
+Image Uploader 1.4.1 Build 5176 Nightly + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Dabruck & Klein - 2.48AM (Extended Mix) (6:45)
-2. Dave Horne - 11 Hours (Original Mix) (7:45)
-3. Anaki - 333 (Original Mix) (8:58)
-4. Andrew Rayel - 550 Senta (Original Mix) (7:31)
-5. Hydrogenio - 777 (Ben Gold Remix) (7:18)
-6. Artento Divini - Adhd (Original Mix) (5:55)
-7. Eximinds - Afterlight (Original Mix) (6:15)
-8. Christian Drost & DK Project - Always Connected (Original Mix) (8:03)
-9. 187rec - Amelie (7:30)
-10. Basil O'Glue - Angular Momentum (Original) (7:35)2012Жанр: Trance, Uplifting TranceПродолжительность: 18:30:42
+Image Uploader - бесплатная программа для Windows c открытым исходным кодом, предназначенная для загрузки изображений, фотографий, кадров из видео в интернет. Для хранения файлов программа использует несколько десятков общедоступных хостингов изображений и файлов. При этом программа автоматически генерирует миниатюры желаемого размера, масштабирует изображения, по (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C29C6FB2509251E34098B065D1C99D88ECBDF67B
+magnet:?xt=urn:btih:41A250396D943CDA5D6DF46CF4CC9A91AE91BFB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,25 +682,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480858   (99161) от 10.04.2012
+###  Публикация: 1735692   (106879) от 09.07.2024
 
-[Wallpapers] Best Wallpapers (10.04.12)
+Glary Tracks Eraser 6.0.1.10 [Multi/Ru]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Glary Tracks Eraser - полезный инструмент для защиты вашей конфиденциальности на компьютере и в интернете. При помощи Glary Tracks Eraser можно удалить всю информацию, которая хранит ваши личные данные, такие как журнал всех событий в Windows, недавно просмотренные документы, историю просмотров web-браузеров, кеш и куки, автоматически сохраненные пароли, историю (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86F0C26319DF171E072C5CB455FB22ED5E66DC34
+magnet:?xt=urn:btih:18377B899314E95FB0A980646FAAB91E1AFF1EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,251 +708,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480752   (99156) от 10.04.2012
+###  Публикация: 1735632   (106878) от 09.07.2024
 
-Антарктида - Край (2012) [MP3|320 кб/с]<Heavy Metal / Female Vocal>
+Николя Денешо | Легендарные компьютерные игры. The Last of Us (2024) [MP3, Наталья Грачёва]
 
->>Архив торрентов
->>Архив Музыки
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Край
- 02. Странное безумие
- 03. Выбор
- 04. Холодные волны
- 05. Я — не я
- 06. Четыре слова
- 07. Битва за любовь
- 08. Белое безмолвие
- 09. 21-й мировой порядок
- 10. Прелюдия №10(   Читать дальше...   )2012Жанр: Heavy Metal / Female VocalПродолжительность: 00:45:58
+История эпохальной дилогии, рассказанная Натальей Грачёвой – голосом Тесс из первой части Last of Us.
+"Как далеко мы готовы зайти ради любви?"
+Этот вопрос красной нитью проходит через всю серию The Last of Us. Студия Naughty Dog решила сделать любовь центральной темой этих игр, и у них получилась история, которая оставила неизгладимый след в сердцах миллионов (   Читать дальше...   )Жанр: История компьютерных игрИздательство: БОМБОРАПродолжительность: 12:38:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BB3A734D282896F3985D24E7F8CF6EAC660FCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480857   (99154) от 10.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (10.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3F27C424754DE3500B4A2A6A6C9C4013596666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479689   (99153) от 10.04.2012
-
-S.K.V. - Обратно на Землю (2012) [MP3|256 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смотри
-02. Звезда
-03. Unknown artist уч.dj Zlon, Данил Дфакто, Точка Ру, Омар
-04. Не сон
-05. Запомнить
-06. Эпизоды уч. 4пыль
-07. Экзюпери (4пыль)
-08. Воскресенье
-09. Беккер (ЦивилЪ)
-10. Обратно на Землю(   Читать дальше...   )2012Жанр: RapПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898B531196AC96A8145E844E218D8D80F0AC6199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481232   (99150) от 10.04.2012
-
-Каникулы в Мексике - 2. Выпуск №27 (2012.04.10) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99150.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4ECDC2BF560D121C1140C39B9B7EB08642AD19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480304   (99149) от 10.04.2012
-
-Величайшие автомобили: Бентли / Great Cars: Bentley (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bentley всегда привлекали внимание - они всегда были стильными и быстрыми. Они приковывают взгляд, но всегда знают меру. Это машины для людей со вкусом, которые желают почувствовать рай - не выставляя напоказ свое богатство. Не важно - скорость их призвание или гламур, Bentley - это машины на которых хочется ездить...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822185   (99146) от 05.10.2025
-
-Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Плачущий призрак на пенсии (ТВ-2) [2025, TV, 01 из 11] WEBRip 1080p rus+raw
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды шестеро друзей поклялись стать величайшими охотниками за сокровищами. Однако был среди них парень Край Андрих, который не мог похвастаться какими-либо талантами, и уж тем более навыком поиска сокровищ. По мере того, как друзья Края становились всё круче и злее, рос и его страх за свою жизнь. В итоге Андрих принимает решение уйти на пенсию, овладев навыками (   Читать дальше...   )Производство: Япония, студия Zero-GЖанр: приключения, фэнтезиРежиссер: Таката МасахироЯзык озвучки: Русский дублированный (Deep (Flarrow Films)), русский закадровый (Deep (AniStar))Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 11 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90706EDC07C26E0BF894AB7F6C744AB6AE9AD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822181   (99145) от 05.10.2025
-
-Путешествие коллекционера по другому миру | Sozai Saishuka no Isekai Ryokouki | A Gatherer's Adventure in Isekai [2025, TV, 1 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такэру Камиширо — обычный парень, и он работает на обычной офисной работе, пока его... барабанная дробь... неожиданно не призывают в другой мир. В этом мире мечей и магии наш герой начинает новую жизнь! Помимо выдающихся физических и магических способностей, у него появляется особая способность поискать различных ценных предметов. Так что время просиживать свою задницу (   Читать дальше...   )Производство: Япония / Студия Tatsunoko Production, SynergySPЖанр: Приключения, фэнтезиРежиссер: Одака ЁсинориЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34329D2870DEE85BDD52ABF1A3B05D9921F59F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822120   (99144) от 05.10.2025
-
-Smart Tools 2 v1.2.1 Mod by TryRoon [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Tools® 2 - это расширенный набор инструментов. «Smart Tools 2» включает в себя все функции существующих «Smart Tools», поэтому мы рекомендуем новым пользователям приобрести это приложение. «Smart Tools 2» = «Smart Tools» + больше инструментов + больше возможностейТип издания: ModРелиз состоялся: 01.10.2025Разработчик: Smart Tools co.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEEB0A0D415709185466115215F860B3EF9A5F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822187   (99143) от 05.10.2025
-
-Холмс (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой амбициозный доктор Телегин получает новую работу в психиатрической клинике. В первый же день он знакомится с Феликсом, которого задержали за городом с трупом неизвестного в багажнике. Феликс страдает раздвоением личности – иногда в нем просыпается его пропавший брат. К тому же он считает себя Холмсом. Оба они - Феликс и доктор - начинают расследовать совершаемые (   Читать дальше...   )Производство: Россия | «Epic media»Жанр: ДетективРежиссер: Дмитрий ПетруньАктеры: Артём Осипов, Вячеслав Чепурченко, Игорь Днепров, Владимир Брест, Константин Вишневский, Карина Реука, Андрей Рыбочка, Арина Долгих, Роман Овшинов-Куулгазын, Мария КуликСубтитры: ОтсутствуютПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C136A5723E545E93BFA2D5188D81A768C63CC3AE
+magnet:?xt=urn:btih:C0C955F05F60E81DD04F1D44420D65FBFE15A43A
 ```
 
 https://mybot314.ru/tekegram_catalog/

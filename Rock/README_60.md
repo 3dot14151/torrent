@@ -1,3 +1,277 @@
+###  Публикация: 1170392   (399615) от 01.10.2017
+
+Kitty, Daisy & Lewis - Superscope (2017) [MP3|320 Kbps] <Rockabilly, Rock & Roll, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. You're So Fine (03:22)
+02. The Game Is On (03:34)
+03. Team Strong (04:03)(   Читать дальше...   )Жанр: Rockabilly, Rock & Roll, SkaПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAC1706858DDCEBD594AC49FF509BD47ECE8B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566251   (398972) от 27.10.2012
+
+Karma To Burn - Slight Reprise (2012) [MP3|320 кб/с]<Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398972.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Ten
+ 2 Fourteen
+ 3 Three
+ 4 Seven
+ 5 Eight
+ 6 Two Times
+ 7 Thirteen
+ 8 One
+ 9 SixЖанр: Stoner RockПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB038CBB51816DA3B72BFA56AC37584D774AC82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478459   (398866) от 27.10.2012
+
+Niagara - 5 альбомов (1986-2002) [MP3|256 кб/с]<Rock, Poprock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398866.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. J'Ai Vu (3:52)
+2. Assez ! (3:44)
+3. Je Dois M'en Aller (3:26)
+4. Pendant Que Les Champs Brûlent (4:03)
+5. Quand La Ville Dort (3:47)
+6. Soleil D'hiver (4:11)
+7. Tchiki Boum (3:33)
+8. L'Amour À La Plage (3:23)
+9. Flammes De L'enfer (4:09)
+10. Baby Louis (3:56)(   Читать дальше...   )Жанр: Rock, PoprockПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566934   (398300) от 28.10.2012
+
+Skanskа Mоrd - Pаths Tо Chаron (2012) [MP3|320 кб/с]<Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Caves Of Our Mind 06:00
+02. Addicts 03:56
+03. A Black Day 05:40
+04. Lord Of Space And Time 06:51
+05. The Flood 05:35
+06. Laggasen 03:36
+07. The Ambassadeur 03:52
+08. Alien Encounter 04:05
+09. Rising 05:09Жанр: Stoner RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222D5623E6167796930F4DEB1918D52B7E7FEFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715359   (396888) от 26.10.2013
+
+Fernando Noronha & Black Soul - Bring It (2006) [MP3|320 кб/с]<Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovin Man [03:56]
+02. 10.000 Miles [03:53]
+03. Bring It [04:08]
+04. See What You're Doing [04:25](   Читать дальше...   )Жанр: Rock, Blues-RockПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF96BB5C943D484F5B13EA1162DABB17A45A26BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171778   (395638) от 05.10.2017
+
+The Rolling Stones - Sticky Fingers Live At The Fonda Theatre 2015 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Me Up (Live)
+02. When The Whip Comes Down (Live)
+03. All Down The Line (Live)
+04. Sway (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5552307144A0B6DB24B324096B9867029EF7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171927   (394159) от 07.10.2017
+
+Thunderhead - Thunderhead (1975) Reissue, 2009, Crossroad Productions [MP3|320 Kbps] <Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Busted In Georgia
+02. Lay It On The Line
+03. Got To Get Away
+04. Showdown(   Читать дальше...   )Жанр: Rock, Southern RockПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65D4AF84F409A9EA9E9665836712817303AB241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568752   (393985) от 01.11.2012
+
+Prime Time - Love and Hate (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A134AA7DF565941EBDD9870F5C022B0DFC10F9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172394   (393230) от 08.10.2017
+
+Hydra - Land Of Money (1975) Reissue, 1999, Capricorn Records [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393230.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Little Miss Rock N' Roll
+2. The Pistol
+3. Makin' Plans
+4. Land Of Money(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19411C65C9823EC663B5AC5064872D9487F12A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569642   (391937) от 03.11.2012
 
 Somali Yacht Club - Sandsongs (2011) [MP3|320 кб/с]<Stoner Psychedelic Rock / Post-Metal>
@@ -363,6 +637,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574560   (385491) от 05.09.2022
+
+Pink Floyd feat. Andriy Khlyvnyuk of Boombox - Hey Hey Rise Up (2022) Single [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_385491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Hey Rise Up (feat. Andriy Khlyvnyuk of Boombox) (03:26)
+02. A Great Day For Freedom 2022 (04:07)Жанр: RockПродолжительность: 00:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F930F5FA381DE0BC81A250DA8B998DC4D00F4BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253060   (385438) от 08.10.2018
 
 Roger Waters - Pros & Cons Of New York - The Classic 1985 Broadcast (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
@@ -472,296 +773,6 @@ Prox - At Last (1979) LP [MP3|320 Kbps] <Krautrock, Space Rock, Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C3C7B806DFED574B9F5F6DEFA78081B4832B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253391   (383557) от 09.10.2018
-
-VA - Smooth Rock Classics (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner - Waiting for a Girl Like You
-02. Bread - Make It with You
-03. The Cars - Drive
-04. matchbox twenty - Unwell(   Читать дальше...   )Жанр: RockПродолжительность: 01:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E7315898C1726E7B8E064DF4483FE499B2BA0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068279   (383238) от 31.10.2016
-
-Narcosatanicos - Body Cults (2016) [MP3|~245 Kbps (V0)] <Stoner, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vulvic Church 05:35
-02. Vile 04:09
-03. Mania 05:05
-04. Television Dreams 06:02(   Читать дальше...   )Жанр: Stoner, Psychedelic RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39AFD2645A22E01F5332C9D032CE45D6242CFA9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068241   (383225) от 31.10.2016
-
-The Gift - Why The Sea Is Salt (2016) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Sea 10:28
-02. Sweeper Of Dreams 05:18
-03. Tuesday's Child 09:44
-04. The Tallest Tree 06:14(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97E2F936E73FDF08EF0534060C517BD3F248F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414621   (382881) от 09.10.2020
-
-John Lennon - GIMME SOME TRUTH. (2020) Deluxe Edition [MP3|320 Kbps] <Rock, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instant Karma! (We All Shine On) (Ultimate Mix) (3:22)
-02. Cold Turkey (Ultimate Mix) (5:01)
-03. Working Class Hero (Ultimate Mix) (3:47)
-04. Isolation (Ultimate Mix) (2:52)(   Читать дальше...   )Жанр: Rock, Singer-SongwriterПродолжительность: 02:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514B324442570B15CE9147B564D3047EF21FEEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068265   (382824) от 31.10.2016
-
-Green Bullfrog - Natural Magic (1971) Reissue, 1980, ECY Street Records [MP3|320 Kbps] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идея записи этого альбома пришла в голову продюсера Дерека Лоуренса (Derek Lawrence), для чего он собрал группу музыкантов, с которыми работал в шестидесятых. Однако то обстоятельство, что все приглашённые музыканты были так или иначе связаны контрактными обязательствами с разными звукозаписывающими компаниями, вынудило скрыть их имена псевдонимами.Треклист:
-01. My Baby Left Me (03:17)
-02. Makin' Time (02:51)
-03. Lawdy Miss Clawdy (03:15)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E4419D1F0773732BAF1E36E72780E3761040AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067897   (382819) от 31.10.2016
-
-Riverside - Eye Of The Soundscape (2016) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382819.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. Where The River Flows (10:53)
-2. Shine (4:09)
-3. Rapid Eye Movement (2016 mix) (12:40)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAEB3DE11B6994C3A58F74AB863440E7B99EB7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067747   (382653) от 31.10.2016
-
-Two Door Cinema Club - Gameshow (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are We Ready? (Wreck)
-02. Bad Decisions
-03. Ordinary
-04. Gameshow(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB76FE0C1D9094E4DAEB586A5D0BC2778A9DD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 823868   (381931) от 23.10.2014
-
-The Beatles - 272 Albums, 39 Singles & EPs (1962-2014) Discography /EMI Music 1962-2012, UMG from 2012/ [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_381931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дискография группы The Beatles необъятна. Она включает в себя не одну сотню альбомов, сборников, бутлегов... Тем не менее, рискнём и мы сделать попытку собрать как можно более полную дискографию.Полная официальный каталог на CD;
-Полный ремастированный каталог на CD;
-Американская и японская CD дискография, советский винил;
-Всемирная виниловая дискография.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574887   (381562) от 07.09.2022
-
-Crippled Black Phoenix - Banefyre (2022) [MP3|320 Kbps] <Progressive Post, Folk, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Incantation for the Different [00:02:48]
-02 - Wyches and Basterdz [00:04:56]
-03 - Ghostland [00:05:42]
-04 - The Reckoning [00:06:48](   Читать дальше...   )Жанр: Progressive Post, Folk, Stoner RockПродолжительность: 01:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A73A577ED968B55891FB6DACEE037F744EF9E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175214   (381178) от 17.10.2017
-
-Mendelbaum - Mendelbaum (1969-70) Compilation, 1991, Shadoks Music, 2CD [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days Gone Bye
-02. Since I Met Her
-03. Oh, Yes, Yes
-04. Key Of Be(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 01:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7CEBF8CC640F5CADC854AD96B2C107DA3CF35B
 ```
 
 https://mybot314.ru/tekegram_catalog/

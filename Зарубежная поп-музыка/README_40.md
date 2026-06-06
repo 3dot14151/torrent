@@ -286,6 +286,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301611   (584284) от 12.05.2019
+
+VA - House Summerlove (2019) [MP3|320 Kbps] <Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_584284.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Prince Karma - Later Bitches
+02. Robin Schulz - Speechless (feat. Erika Sirola)
+03. Hugel - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 02:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E43515DF7BACB90C7162C9533F9DEF62B48919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301746   (583280) от 13.05.2019
 
 VA - RTL Hits Sommer 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -720,41 +749,6 @@ Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58BAC0F6039FF34A3154DBC023AFC2FA8A5F7890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527460   (574739) от 27.07.2012
-
-Teach In - The Best of the Best (2012) [MP3|320 кб/с]<Disco, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  In The Summernight (2:33)
-02.  Ding-A-Dong (2:26)
-03.  Russian Melody (2:00)
-04.  I`m Alone (2:59)
-05.  Fly Away (3:08)
-06.  Let Me In (3:17)
-07.  Are You Ready Now (3:58)
-08.  The Circus Show (3:23)
-09.  Dear John (3:16)
-10.  Doll (2:39)(   Читать дальше...   )Жанр: Disco, Pop, Pop RockПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9944DCE74F50CAFD069B543626B4667F13FCDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

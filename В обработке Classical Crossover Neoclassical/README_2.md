@@ -198,6 +198,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482193   (88015) от 12.04.2012
+
+Noella - Beautiful Sorrow (2010) [MP3|192 кб/с]<Neoclassical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_88015.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:48) 01. The story of a girl with blue eyes - 'Sky' This want to watch me
+(3:13) 02. Mommy's Lisa
+(3:17) 03. Abigail's love
+(3:27) 04. Dance in Red
+(3:56) 05. Two months
+(4:29) 06. Cosmos - Tears of Flower
+(4:28) 07. Love ... The aeteutham - In The Name of Love
+(3:57) 08. The sea of tears shed
+(3:55) 09. Autumn in telling the story
+(4:24) 10. Bibeulriseuui tears(   Читать дальше...   )Жанр: NeoclassicalПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66D4EDC1D1D2385C08C29942C12B6D4812037F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478475   (87474) от 09.04.2012
 
 Roberto Cacciapaglia - 4 albums (2007-2011) [MP3|320 кб/с]<Neoclassical, New age, Instrumental>

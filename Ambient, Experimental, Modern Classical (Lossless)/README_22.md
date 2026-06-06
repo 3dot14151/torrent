@@ -1,3 +1,119 @@
+###  Публикация: 1807214   (65281) от 18.07.2025
+
+Earthen Sea - Recollection (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Jazz>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Present Day
+02 - Another Space
+03 - Sunlit Leaving
+04 - A Single Pub(   Читать дальше...   )Жанр: Ambient, JazzПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53840DCE54AAAEE9368D86D4C2E2F8D9B6736B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722427   (56875) от 11.05.2024
+
+Eguana - Destiny, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Lounge>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Voyage
+02. Misty Nocturne
+03. Galactic Spectacle
+04. Exospheric Pulse(   Читать дальше...   )Жанр: Ambient, Psychill, LoungeПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A5CFAB03C42B16BDE094F89EC241EF9084AD21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728674   (53942) от 08.06.2024
+
+Eguana, Germind - Controlling The Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Controlling The Mind (8:58)
+02. My Son (6:38)
+03. Disappear Into My Dreams (6:51)
+04. Sounds From Inside (6:00)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2CA6E4D06B136580E4FCD609558B9909C2D4E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729283   (53721) от 10.06.2024
+
+Aes Dana - Far & Off (2016) Remastered, 2024, Ultimae Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Electronic, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far & Off (2024 Remastered) [00:08:47]
+02. Diffraction Protocol (2024 Remastered) [00:07:58]
+03. Cut. (2024 Remastered) [00:05:26]
+04. Small Things Matter (2024 Remastered) [00:07:48](   Читать дальше...   )Жанр: Experimental, Electronic, AmbientПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AE859CCBD3CC3A31989875AFC0DEA3EFEB861A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938736   (50729) от 08.07.2024
 
 Brock Van Wey (bvdub, East Of Oceans, Earth House Hold) - Discography 69 Releases (2007-2021) [FLAC|Lossless]<Dub Techno, Downtempo, IDM, Ambient>

@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1870381   (1069177) от 
+###  Публикация: 1870381   (1069177) от 11.05.2026
 
 Grind Survivors (2026) [Ru/Multi] (4053/dlc) Repack Let'sРlay [Supporter Edition]
 

@@ -1,3 +1,90 @@
+###  Публикация: 1199836   (797482) от 18.01.2018
+
+VA - Vocal Trance Collection Vol.7 (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Christina Novelli - Fireflies (Extended Mix)
+02. Andy Moor, Somna & Diana Leah - There Is Light (Extended Mix)
+03. A.M.R Ft. Dianne - Light That Never Died (Original Mix)
+04. Lucid Blue ft. Ruslan Radriges - Breaking Waves (extended mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34959D1E306F7BF309D20F88DFF04AD4D67028E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507152   (797450) от 08.11.2021
+
+VA - Beat, Bass, Melody vol.3 (mixed by Dj V) (2021) [MP3|320 Kbps] <Bass House, Electro House, Big Room, Future Rave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Lazy Bear - Yo DJ Pump This Party!
+02-Relanium & Deen West vs. Lion - Get Buzz (Extended Mix)
+03-Laidback Luke & Gregor Salto  - Step by Step (Dannic Extended Remix)
+04-Swanky Tunes - Big Love To The Bass (Extended Mix)(   Читать дальше...   )Жанр: Bass House, Electro House, Big Room, Future RaveПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53380A7836864A67AE5E3616D35F849E6B2500AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010918   (797225) от 26.04.2016
+
+VA - Club Dance Ambience vol.66 (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797225.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A. Venuti & Mr. Goaty -  Il Bruco (Original Mix)  6:31
+002. Agua Sin Gas by Antoine Clamaran -  Tijuana (Original Mix)  6:36
+003. AK9 -  Bring the House (Original mix)  4:21
+004. al l bo -  Aircraft (Azam Baratov Instrumental Remix)  3:47(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5EDE9206C05778804B30AC593A4796EBE21CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385558   (797202) от 25.05.2020
 
 VA - Beatport Drum & Bass: Electro Sound Pack #91 (2020) [MP3|320 Kbps] <Drum & Bass, Bass, Bassline>
@@ -658,93 +745,6 @@ VA - The Mushroom Substances (2021) [MP3|320 Kbps] <Psychedelic, GOA Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC7B190726B910276D2E01FA49B5AF1D313F5272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508937   (796129) от 10.11.2021
-
-VA - Beatport Electro House: Sound Pack #363 (2021) [MP3|320 Kbps] <Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796129.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Juliche Hernandez - Colored Theater
-002. Gensi - The Great Body Buzz
-003. Jack Priest - Piano '89
-004. Mauro Venti - Coming For That(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 12:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A590BA2A38667081C913C4D80AC44DEA4A59C875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385765   (796058) от 27.05.2020
-
-VA - Beatport Psychedelic Trance: Sound Pack #92 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796058.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Djcincinati - Psychestral
-002. DJ Mula - Voltage Drips
-003. Alaska - Ethnic Techno
-004. Uza Trance - Gayatri Mantra(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 13:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E15DCB02C3D4B071EA530760FE15F8E6110572C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386031   (795976) от 27.05.2020
-
-VA - Synthpop Ultimix (2020) [MP3|320 Kbps] <Synthpop, Electropop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fauness - Inanimate Girl
-02. Tijuana Cartel - Bhairavi's Garden
-03. Stefanie Schrank - Nothing Is Lost
-04. Lego Boy, Beat Ride - Fuerte(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 05:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A79C0B1E85A868610496272D858D403D461C541
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1627954   (239355) от 21.04.2023
+
+Ани Лорак - Остров (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239355.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лабиринт
+2. Обратный отсчет
+3. Рядом, но не вместе
+4. На мели(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368263337D983AF873431FBFCA7A9B590DC2D637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622891   (239041) от 30.03.2023
+
+VA - Select Mix Essentials Vol. 193 (2023) [MP3|320 Kbps] <Disco, Synthpop, Rap, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gayle - Abcdefu (Select Mix Remix)
+02. Juice Wrld, Justin Bieber - Wandered To La (Select Mix Remix)
+03. Drake, Future, Young Thug - Way 2 Sexy (Select Mix Remix)
+04. 24kgoldn - More Than Friends (Select Mix Remix)(   Читать дальше...   )Жанр: Disco, Synthpop, Rap, R&BПродолжительность: 00:40:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2CD01598E9CED817E012DBBB2AB3CADE8D2449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638516   (238995) от 09.06.2023
+
+VA - Acoustic Delight (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vance Joy - Riptide
+02. Ed Sheeran - Castle on the Hill (Acoustic)
+03. Christina Perri - A Thousand Years
+04. Coldplay - Everglow(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 02:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0B406E2DEC028211E197DEDEF978BCF53E032B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636929   (238795) от 01.06.2023
 
 VA - Certified Love Songs (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
@@ -658,93 +745,6 @@ VA - Summer Chillin' (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1BA94528B767A13A7351A55CFA4C2053E08C3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584433   (234764) от 13.05.2023
-
-Paula Abdul - The Greatest (1998) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way You Love Me
-02. Knocked Out
-03. Forever Your Girl
-04. Straight Up(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8BB63335BB3E4CDAAB9611BCF79F49E2F4F190E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633637   (234115) от 16.05.2023
-
-VA - Summer Pop 100 (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234115.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Veronicas - Untouched (4:15)
-002. Kid Rock - All Summer Long (4:57)
-003. Big Mountain - Baby, I Love Your Way (4:09)
-004. Duran Duran - Rio (U.S. Remix) (5:25)(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406CC4DD3D45253BBD3A2736F362154EE61B8F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548346   (234017) от 02.05.2022
-
-VA - Mastermix Essential Hits: 00s R’n’B (2022) [MP3|320 Kbps] <Pop, R’n’B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaliyah - More Than A Woman
-02. Christina Aguilera Feat. Lil' Kim - Can't Hold Us Down (Radio Edit)
-03. Akon Feat. Snoop Dogg - I Wanna Love You
-04. Amerie - 1 Thing (Radio Edit)(   Читать дальше...   )Жанр: Pop, R’n’BПродолжительность: 03:10:21 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F190150D8C67AC4DFD4E3B5351B6FC5C99C8DB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

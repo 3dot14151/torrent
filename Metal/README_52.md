@@ -1,3 +1,32 @@
+###  Публикация: 912279   (612993) от 25.06.2015
+
+Brutallian - Blow On The Eye (2015) [MP3|320 кб/с]<Thrash / Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Prelude To Aggression
+02. Blow On The Eye
+03. Black Karma
+04. Primal Sigh(   Читать дальше...   )Жанр: Thrash / Heavy MetalПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376793771D20E9AF2505CC1DF2195688ED3015C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912019   (612992) от 25.06.2015
 
 Supresion - Emerging Extermination (2015) [MP3|320 кб/с]<Thrash / Death Metal>
@@ -733,34 +762,6 @@ Speckmann Project - Fiends of Emptiness (2022) [MP3|320 Kbps] <Death Metal, Olds
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A6C80FFC203A90046A3CFE7E6E3B62B3F60CA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547097   (603472) от 27.04.2022
-
-Dozethrone - 13 Albums (2019-2022) [MP3|320 Kbps] <Sludge Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tomb of Despots [00:15:15]
-02. Where the Bodies Are Embalmed [00:16:02]
-03. The Mask of Red Death [00:13:02]Жанр: Sludge Doom MetalПродолжительность: 13 CD, 08:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B3BF85CBE91085B9EF3CCDE61E571E171A61D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 601220   (998338) от 10.01.2013
+
+Prime Circle - Evidence (2012) [MP3|320 кб/с]<Alt.Rock | Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998338.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Evidence
+3. Change
+4. Time Kills Us All
+5. Answers
+6. Know you Better
+7. King for a Day
+8. Room of Ghosts
+9. Staring at Satellites
+10. Only Way Out(   Читать дальше...   )Жанр: Alt.Rock | Modern RockПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB1C2AAE612AC7FED1EDE68F19148809549EF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602511   (997597) от 13.01.2013
 
 MadLove - White With Foam (2009) [MP3|~245 кб/с (V0)]<Alternative Rock>
@@ -835,35 +870,6 @@ Message Through Motion - Earthshaker (2013) [MP3|320 кб/с]<Alt.Rock / Post-Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55E241C34A680BA7ED1A68933E06EE3A70A2D92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972724   (981861) от 06.01.2016
-
-Thousand Foot Krutch - Oxygen: Inhale (2014) [MP3|320 кб/с] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like a Machine
-02. Untraveled Road
-03. Born This Way
-04. Set Me on Fire(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60924A2C1E896157F9FD26F1A90934EEF638CA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

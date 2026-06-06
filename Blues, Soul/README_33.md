@@ -1,3 +1,61 @@
+###  Публикация: 1078720   (300527) от 01.12.2016
+
+Ellen McIlwaine - Women In (E)motion (1998) Live [MP3|320 Kbps] <Blues Rock, Reggae>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Save The World  (05:15) 
+02|  Howl At The Moon  (04:41) 
+03|  Beg For The reason  (07:55) 
+04|  Fight The Power  (08:22) (   Читать дальше...   )Жанр: Blues Rock, ReggaeПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778F375EB1694D4B4EC4610296D394BB9B4F8DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078688   (300521) от 01.12.2016
+
+Grainne Duffy - Grainne Duffy Live (2015) Live[MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Each And Every Time (Live)  (03:41) 
+02|  Let Me In (Live)  (03:23) 
+03|  What Am I Supposed To Do (Live)  (03:09) 
+04|  Don't Know Why (Live)  (03:43) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C3650A8657125AC1DA7877FD8CBF8CA6485BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078057   (300316) от 01.12.2016
 
 Joanne Shaw Taylor - Wild (2016) [MP3|320 Kbps] <Blues Rock>
@@ -20,6 +78,64 @@ Joanne Shaw Taylor - Wild (2016) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B98FA0F605F879A7FB959492F84361CE5927D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184680   (299302) от 18.11.2017
+
+The Enzymes - Nothing To Lose (2017) [MP3|320 Kbps] <Heavy Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Train (03:02)
+02. Brandy & Coke (00:13)
+03. Catalyst for Change (04:01)
+04. Junkyard Blues (03:16)(   Читать дальше...   )Жанр: Heavy Blues RockПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1037DA2A2A3DD27F174381F861DA441A271E52CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184534   (299292) от 18.11.2017
+
+Jane Lee Hooker - Spiritus (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Ya Doin? (06:07)
+02. Gimme That (03:53)
+03. Mama Said (04:44)
+04. Be My Baby (05:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBACC7F006E0265A7A5A3ED2E9C68BC869A5D09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,125 +745,6 @@ Marc Broussard - S.O.S. 2: Save Our Soul: Soul on a Mission (2016) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A61CD267A4271B3881542215A685EC13459CA3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082119   (280900) от 11.12.2016
-
-Gary Eisenbraun - Darkest Before The Dawn (2013) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Keep It To Myself  (04:07) 
-02|  Running To The Flame  (05:19) 
-03|  Waiting In Line  (05:10) 
-04|  Barbed Wire  (03:38) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C934688FD6F7ADDEC71BADD19A84A2D01A490F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336253   (280657) от 06.11.2019
-
-Andre & Renee Beeka - Bitin' da Blues (2019) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Play the Blues for You (feat. Paulie Testa, Sal Sax, Stevie Von Shart, Jonathan Fixler & Hank Wansaw) 7:12
-02. A Quitter Never Wins (feat. Hank Wansaw, Sal Sax, Stevie Von Shart, Jonathan Fixler & Paulie Testa) 5:19
-03. Bad Love (feat. Hank Wansaw, Sal Sax, Stevie Von Shart, Jonathan Fixler & Paulie Testa) 9:30
-04. Wee Wee Hours (feat. Hank Wansaw, (   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D37F141920317D016A2CBE19DAD854943B48576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081701   (280158) от 11.12.2016
-
-VA - Rock Blues Years (2016) [MP3|320 Kbps] <Blues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Supersonic Blues Machine - Remedy (feat. Warren Haynes) 5:44
-002. Joe Bonamassa - This Train 4:21
-003. Omar & The Howlers - That Ain't It 3:03
-004. Walter Trout - Help Me 7:20(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 07:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7090E93049C54881397D300868619614C299F80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264497   (277770) от 25.11.2018
-
-VA - Glitterbox - Pump The Boogie! & Continuous Mixes (2018) [MP3|320 Kbps] <Soul, Jackin, Funky>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glitterbox Presents Pump The Boogie! MIXED 
-
-01. Melvo Baptiste - Glitterbox - Pump The Boogie! Mix 1 (Continuous Mix) 1:13:51
-02. Melvo Baptiste - Glitterbox - Pump The Boogie! Mix 2 (Continuous Mix) 1:08:30(   Читать дальше...   )Жанр: Soul, Jackin, FunkyПродолжительность: 01:49:04
-
-01. Slam Dunk'd Ft. Al-P & Chromeo - No Price (Full Intention Remix)
-02. Advance - Take Me To The Top (Extended Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8348450D9181F03109D367EE5B3A8307D71547
 ```
 
 https://mybot314.ru/tekegram_catalog/

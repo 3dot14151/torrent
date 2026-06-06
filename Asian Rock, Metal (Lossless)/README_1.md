@@ -1,3 +1,32 @@
+###  Публикация: 1148194   (604213) от 05.07.2017
+
+One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternative Rock, Power Pop>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambitions (Introduction)
+02. Bombs Away
+03. Taking Off
+04. We Are(   Читать дальше...   )Жанр: Alternative Rock, Power PopПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629117DFF360AF43014FA08F08555938ECE20A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548913   (596271) от 04.05.2022
 
 Nocturnal Bloodlust - Argos (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
@@ -731,41 +760,6 @@ Sigh - Shiki (2022) [FLAC|Lossless|image + .cue] <Avant-garde, Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85C8AC0E2AD0D825186144CB2CE43594FA554648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407677   (348216) от 12.11.2011
-
-ZONE - 4 albums (2002-2006) Discography [FLAC|Lossless]<J rock,girl.band>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_348216.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. fortune
- 2. mind
- 3. Kaze no hajimaru basho
- 4. Ai hana
- 5. Once Again
- 6. JET
- 7. GO!
- 8. Like
- 9. Kuso to genjitsu no yoake
- 10. ROCKING(   Читать дальше...   )2002-2006Жанр: J Rock,girl.bandПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1495315   (880720) от 12.09.2021
+
+VA - Golden Summer Party (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880720.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gabrielle Aplin - Kintsugi
+002. Michael Schulte - What Heroes Do
+003. Dermot Kennedy - Paradise
+004. Chris Galmon - Life Line(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68242ADDCD0ECA1573372318E70CA9A9226BA1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495300   (880717) от 12.09.2021
+
+VA - Beatport Deep House: Sound Pack #346 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880717.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Thulane Da Producer - Winter Is Coming
+002. Spate - Crescent
+003. Dam Swindle - Pain Tomorrow
+004. Jo Paciello - It's In Your Mind(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340F15992927D126038049DEBE9C94F9FC17512D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495295   (880716) от 12.09.2021
+
+VA - Beatport Techno: Sound Pack #345 (2021) [MP3|320 Kbps] <Techno, Tech House, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880716.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Di Saronnojohnick - Instant Coffee
+002. Rondon - Lost In Da Pond Rd
+003. Pvlsx - Drvmvlator
+004. Sir Vee The Great - A Feeling(   Читать дальше...   )Жанр: Techno, Tech House, Minimal, ElectroПродолжительность: 11:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D080E318CF390C124C3F5FC349EFA3A5AB35C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495414   (880526) от 12.09.2021
 
 VA - Record Super Chart 11.09.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -658,93 +745,6 @@ VA - Workout Mix vol.7 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D74591F0B284F5CA9E993ACD82AC7945C8AEA96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374169   (874565) от 09.04.2020
-
-VA - City Life: Tech House Electro Sound (2020) [MP3|320 Kbps] <Tech, Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Even Midnight - Man O Tu
-02. Trace7000 - Want (Original Mix)
-03. Rafa Alcantara - Continental
-04. Red Led - About You(   Читать дальше...   )Жанр: Tech, Deep House, ElectroПродолжительность: 08:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97D2358A93948EB78139D988DEEE07978E85CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374172   (874437) от 09.04.2020
-
-VA - Beatport Deep House: Electro Sound Pack #49 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874437.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fabrizio Giannone - Lose Control
-002. 2clic & Torsak - Magnolia
-003. Elkka - Breathe
-004. Jay Cee Morgan - En Deux Heures(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4848E77F479026F8570CCC538AE9BF320CC9D19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374171   (874311) от 09.04.2020
-
-VA - Beatport Synthwave: Electro Sound Pack #52 (2020) [MP3|320 Kbps] <Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Powernerd - Powernerd Anthem
-02. Patten - Night Vision
-03. Analogue-X - Call Your Name
-04. Getevann - I Just Died In Your Arms(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 05:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8049E0ED265C4A8BED19CCB2F5F18387774E54C
 ```
 
 https://mybot314.ru/tekegram_catalog/

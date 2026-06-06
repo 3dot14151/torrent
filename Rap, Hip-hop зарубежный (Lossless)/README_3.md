@@ -1,3 +1,32 @@
+###  Публикация: 1256511   (351892) от 23.10.2018
+
+6ix9ine - Day69: Graduation Day (2018) Mixtape [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy (00:01:53)
+02. Gummo (00:02:38)
+03. Rondo (Feat. Tory Lanez & Young Thug) (00:02:18)
+04. Keke (00:02:32)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F7449A3C54514C84B31F6A0796BCAC1756D99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419290   (341916) от 27.10.2020
 
 Jelly Roll - Self Medicated (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop, Country Rap, Blues Rock>
@@ -716,35 +745,6 @@ Denzel Curry - Ta13oo (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F960229D0008D7FF7EC1EF50683E1A964B348379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269702   (218090) от 16.12.2018
-
-THEY. - Fireside (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Trap, Grime>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What I Know Now (feat. Wiz Khalifa) (3:00)
-02. Broken (feat. Jessie Reyez) (2:15)
-03. Wilt Chamberlin (feat. Jeremih) (3:05)
-04. Tell Me (feat. Vic Mensa) (2:54)(   Читать дальше...   )Производство: Mind of a Genius/Warner Bros. - 093624902942Жанр: Hip-Hop, Trap, GrimeПродолжительность: 00:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C336B0942C3A7BC21FB84C6CF875A2EBAFBB2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 1504707   (810196) от 24.10.2021
+###  Публикация: 1504064   (814231) от 22.10.2021
 
-Легенда Зорро / The Legend of Zorro (2005) HybridRip [H.264] [Open Matte]
+VA - Electronic Lounge Collection, Vol. 4 (2021) [AAC|~332 Kbps] <Electronic, Downtempo, Lounge>
 
->>Остальное
->>hand made * video
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С присоединением Калифорнии к Соединенным Штатам Америки в 1850 году Зорро уже было собрался отойти от дел и насовсем превратиться в мирного дона Алехандро де ла Вегу, как новая страшная угроза заставляет его взяться за оружие. Международная тайная организация Orbis Unum, чья цель - господство над миром, встревожена возросшей мощью Америки и намерена нанести ей сокрушительный (   Читать дальше...   )Производство: США / Amblin Entertainment, Columbia Pictures Corporation, Spyglass Entertainment, Tornado Productions Inc.Жанр: Приключения, Боевик, ВестернРежиссер: Мартин КэмпбеллАктеры: Антонио Бандерас, Кэтрин Зета-Джонс, Густаво Санчез-Парра, Адриан Алонсо, Ник Чинланд, Джованна Закариас, Карлос Кобос, Альберто Рейс, Майкл Эмерсон, Шулер Хенсли, Педро Армендариз мл., Мэри Кросби, Хулио Оскар Мечозо, Маурицио Бонет, Фернандо Бесерриль, Ксавьер Марк, Пепе Оливарес, Алекса Бенедетти, Тони Амендола, Брэндон Вуд, Алехандро Галан, Руфус Сьюэлл, Лео (   Читать дальше...   )Перевод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:10:27
+01. Karen Gibson Roc - Through the Storm (Original Mix) (3:25)
+02. Patrick James - Afro Style (Original Mix) (9:05)
+03. Stuce The Sketch - Mawazo (Original Mix) (5:32)
+04. Mazelo Nostra - Oriental Lounge (Original Mix) (3:14)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:24:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C90F5CA4440D9ABD7264953E101F978586520BC2
+magnet:?xt=urn:btih:013E045BA83232869EE46EA3BA9047E51D2C5508
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009507   (810183) от 21.04.2016
+###  Публикация: 1504044   (814230) от 22.10.2021
 
-Dorado Schmitt - Parisienne (1995) [FLAC|Lossless|tracks] <Jazz, Instrumental>
+Nino Nardini & Roger Roger - Jungle Obsession (2000) [AAC|~367 Kbps] <Easy Listening, Exotica, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jungle Obsession (3:41)
+02. Murmuring Leaves (2:55)
+03. Mowgli (2:38)
+04. Bagheera (2:19)(   Читать дальше...   )Жанр: Easy Listening, Exotica, LoungeПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7D9908FA0C8F15E2CDA7016C49A55A3EDDD908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504295   (814228) от 22.10.2021
+
+Splashgirl - Field Day Rituals (2013) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Phil    04:41
-02. Tout Seul    03:09
-03. Parisienne    04:41
-04. Bossa Dorado    03:57(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:50:03
+01. Long Story (3:48)
+02. Field Day Rituals (6:23)
+03. All The Vowels Missing (4:51)
+04. Dulcimer (5:06)(   Читать дальше...   )Производство: Hubro – HUBRO CD2520Жанр: Dark Jazz, Contemporary JazzПродолжительность: 00:46:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E5214A8B48ADA21FECEA7806AEBE88696608087
+magnet:?xt=urn:btih:6C245CF8691DDF5535564EFFC3DCBFB1DEBBD74C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,83 +85,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 657919   (810182) от 18.05.2013
+###  Публикация: 1504257   (814227) от 22.10.2021
 
-Эллери Куин (Квин) | Светильник Божий [2013] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Эллери Квина - детектива-любителя и писателя - чрезвычайно интересна и необычна, потому что насыщена множеством криминальных сюжетов. На этот раз читатель насладится запутанными расследованиями, которые Эллери ведет в связи с наследством в пользу молодой девушки и убийством плейбоя…Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0DBEABB7A97B6C0C66FFAD65D4917B5F6323D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008933   (810181) от 21.04.2016
-
-Murray, Allen & Carrington Power Trio - Perfection (2016) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirror of Youth 05:52
-02. Barbara Allen 05:59
-03. Geri-Rigged 06:11
-04. The David, Geri & Terri Show 08:16(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8D02BC2E5A67A977CA9D04657801725F5AD0F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009386   (810179) от 21.04.2016
-
-goPanel 1.0.2 [En]
+Display Maestro 5 v5.0.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простота установки и менеджер Apache, PHP, MySQL, Mail Server и FTP.
-goPanel - наиболее интуитивное приложение для управления веб-серверами и является альтернативой существующему программному обеспечению, будет полезна если вы устанавливаете сервера на базе Unix  для веб-хостинга.
-
-Легко для того, чтобы установить и настроить Apache, PHP, MySQL, FTP, домены и Mail (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 апреля 2016Разработчик: Global Web SRLПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+Display Maestro - простая утилита, которая дает вам полный контроль над подключенным дисплеем, позволяя вам изменять не только разрешение экрана, но и глубину цвета, что невозможно сделать стандартными средствами Mac OS X (такая возможность была удалена еще в Mac OS X 10.5 Leopard).
+Примечание: После окончания работы с утилитой, все настройки возвращаются в первоначальное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C787884E096CDE0786E68FEEDA32262F8B4DC2F2
+magnet:?xt=urn:btih:12848CDC7FE0AE101DF7772C5FC2D5DA0FEF42BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +112,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009204   (810177) от 21.04.2016
+###  Публикация: 1504265   (814226) от 22.10.2021
 
-Oz Noy - Who Gives a Funk (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Funk, Rock>
+Permute 3 v3.7.3 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Come On (feat. Fred Wesley) (07:12)
-02. Flashback (feat. John Medeski) (05:52)
-03. Better Get It In Your Soul (feat. Randy Becker) (07:28)
-04. I Got You (I Feel Good) (feat. Chris Potter) (05:27)(   Читать дальше...   )Жанр: Jazz, Fusion, Funk, RockПродолжительность: 01:00:42
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 22.10.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:609F2C085D32CFFF9DC3E915D2BC257466F201B1
+magnet:?xt=urn:btih:5C3B42E166F062D678404CA1A83A4422ACA042F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,25 +138,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009323   (810175) от 21.04.2016
+###  Публикация: 1504296   (814225) от 22.10.2021
 
-Эд Макбейн | Цена сомнения (2014) [MP3]
+BBEdit 14.0.2 [En]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Туповатый простак Роджер, приехавший из провинции в город для продажи продукции своей столярной мастерской, в припадке ярости убивает девушку. Первое побуждение — идти в полицию, но нерешительность заставляет его избавиться от трупа, ходить вокруг полицейского участка, да так и уехать домой, к маме...Жанр: Полицейский детективПеревод: С английскогоПродолжительность: 05:03:28
+BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: Bare Bones Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:950FA595F18B03C32F1FCA6E96D6A45EADA652CD
+magnet:?xt=urn:btih:9ECC231DE179AC3C68D20C8A90C21D3E2F87FCED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,28 +164,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009547   (810173) от 21.04.2016
+###  Публикация: 1504121   (814224) от 22.10.2021
 
-VA - Beatport Trancce 100 April (2016) [MP3|320 кб/с] <Trance>
+VA - Helsinki Orange: Urban Chillout Music (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 2nd Phase - Short Circuit (Original Mix) 07:23
-002. Above & Beyond - A.I. (OM) 06:29
-003. Airbase - Lachrymose (Original Mix) 06:59
-004. Alan Morris - Elation (Extended Mix) 07:04(   Читать дальше...   )Жанр: TranceПродолжительность: 11:09:37
+01. Chillson, Marc Hartman - Colours of the World (5:21)
+02. Martin Hiska - You're My Thrill (6:21)
+03. Living Room - A Wonderful Day (Sophisticated Jazz Version) (3:01)
+04. Roberto Bronco, Tenor Turner - Atlantis (Original Mix) (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:07:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1577722C83E6D6ADE0489D680CACE69E04C16376
+magnet:?xt=urn:btih:BE87F9F4EE909C4A84C7AC0C69A07998E2F81A0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,25 +193,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007734   (810171) от 21.04.2016
+###  Публикация: 1504267   (814223) от 22.10.2021
 
-Человек и закон (15.04.2016) HDTVRip [H.264/720p-LQ]
+Coherence X 4.0.2 [En]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Падающий Яценюк. Премьер-министр Украины ушел в отставку, но обещал вернуться. Последние новости с политического Олимпа Украины. Чем запомнился премьер Арсений Яценюк.Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:50:51
+Coherence X позволит превратить фактически любой веб сайт в приложение на вашем Mac. Каждая программа создается полностью независимой, изолированной и имеет опции настройки. Основываясь на Chrome, приложение отлично работает фактически со всеми веб сайтами и позволяет вам переносить свои расширения и профили. Выберите определенный тип приложения и создавайте бесчисленное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2021Разработчик: BZG Inc. and Binyamin Goldman.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E481CCF961FC3B29CE91931DAEEF7D1CAEE9F27
+magnet:?xt=urn:btih:0BAA1B115F72EAE79AE9966B6B7E9CEC030DCA62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -247,28 +219,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009415   (810168) от 21.04.2016
+###  Публикация: 1504117   (814222) от 22.10.2021
 
-VA - EDM Club Tracks Part 3 (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
+VA - Nice Orange: Urban Chillout Music (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Electronic
->>House
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Combo - Party Hard (Stephan F Remix) (feat. MC Duro) 05:21
-02. Tosch - DJ Banger (Club Version) 06:47
-03. Afrochuck - The Dirty Workout Plan (Extended Cardio Mix) 04:48
-04. Nastyz - Tonight 04:55(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 02:57:16
+01. Michael e - Infinite Beauty (Original Mix) (4:54)
+02. Beamy - Azure Waters (Chillout Mix) (5:24)
+03. Matt Sour - Unknown Future (Original Mix) (3:50)
+04. The Soul Crusaders - When the Night Comes Down (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:08:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:601E124C43A670B867893620C5098A1E585B9C32
+magnet:?xt=urn:btih:99BE9D7C53A19B35898262E36B0F10D381329AF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,28 +248,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008994   (810167) от 21.04.2016
+###  Публикация: 1504116   (814221) от 22.10.2021
 
-VA - Jimmy Virani presents The Exotic Sounds of Tiki Tribe (2011) Dionysus Records[FLAC|Lossless|tracks + .cue] <Lounge, Easy Listening, Smooth Jazz>
+VA - Marseille Orange: Urban Chillout Music (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Ritual Of The Torches [02:53]
- 02.Dahil Sayo [02:59]
- 03.Tahu Wahu Wahi [03:12]
- 04.Tiare [02:22](   Читать дальше...   )Жанр: Lounge, Easy Listening, Smooth JazzПродолжительность: 01:01:25
+01. Marga Sol, Digby Jones - What I Need (Original Mix) (4:38)
+02. Pep Lladó - Vespre (5:39)
+03. Gary B, Ken Fan - Volar (4:54)
+04. Steen Thottrup - Cala Contigo (Original Mix) (4:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2358E74A371FC6EAE03990E975BB5C1DA8B9987E
+magnet:?xt=urn:btih:A600C7F8C9404C2DE7246416673DAAF8B251B51E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,109 +277,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009335   (810166) от 21.04.2016
+###  Публикация: 777388   (814213) от 14.04.2014
 
-Вечерний Ургант (2016.04.20) SATRip (cезон 9, выпуск 55)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED92F4B2A52D0D00D285FC2A53661F3B7EFD32F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009457   (810165) от 21.04.2016
-
-Miles Davis - Miles In The Sky (1968) Remaster, 1991, Sony Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Stuff [17:04]
- 02.Paraphernalia [12:46]
- 03.Black Comedy [07:31]
- 04.Country Son [13:53]Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019860EBE863CCA01151267CC7BC916C4281EBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009524   (810164) от 21.04.2016
-
-Lonnie Johnson - Stompin' At The Penny (1994) [FLAC|Lossless|tracks + .cue] <Blues, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. China Boy
-02. Mr. Blues Walks
-03. Dippermouth Blues
-04. Trouble In Mind(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473FF43C25090DE40E74BFAE77202AE4BBF88DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009212   (810163) от 21.04.2016
-
-Леонид Чернов | Профсоюз сумасшедших (2016) [FB2]
+Журнал | Техника - молодежи №4 (2014) [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книгу талантливого и малоизвестного русского-украинского поэта и прозаика Леонида Чернова, близкого к имажинистам, вошел сборник стихотворений «Профсоюз сумасшедших», выпущенный автором во Владивостоке (1924). Проза Л. Чернова представлена впервые переведенной на русский язык авантюрно-фантастической повестью «Приключения профессора Вильяма Вокса на острове Ципанго» (   Читать дальше...   )Жанр: Поэзия и проза, Русская литератураФормат: FB2
+Техника молодежи - сенсации науки и техники, открытия, изобретения, патенты. История техники, футурология, фантастика, оружие, боевая техника. Компьютеры, самоделки и моделизм. Смелые проекты и гипотезы. Антология таинственных случаев. Загадки забытых цивилизаций.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A05B68F1323C8AE663EF33E64E4C46C0E096B820
+magnet:?xt=urn:btih:6AF39E97009E3FEC99E538DE4BC20E48BD73785D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +303,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009502   (810162) от 21.04.2016
+###  Публикация: 1504142   (814199) от 22.10.2021
 
-Manfred Wieczorke (ex. Eloy, Jane, Firehorse) - Transfer (1987) [FLAC|Lossless|image + .cue]<Progressive rock
+Wayward Sons - Even Up The Score (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Progressive rock, New AgeПродолжительность: 00:44:58
+01. Even Up The Score
+02. Big Day
+03. Sign Of The Times
+04. Bloody Typical(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E075FB25DE4ACDA6AFA8EB33EC622287400A7B8
+magnet:?xt=urn:btih:B2D1A48D55A6A78A06E5FE23E84D3388D3578956
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,28 +332,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009541   (810161) от 21.04.2016
+###  Публикация: 1504238   (814197) от 22.10.2021
 
-Bobby Womack - Resurrection (Japanese Edition) (1995) [FLAC|Lossless|image + .cue] <Soul, Smooth Soul>
+Awaken 6.4.2 [Multi]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Good Ole Days 04:09
-02. You Made Me Love Again 04:12
-03. So High On Your Love 04:55
-04. Don't Break Your Promise (Too Soon) 04:59(   Читать дальше...   )Жанр: Soul, Smooth SoulПродолжительность: 01:11:12
+Awaken — приложение-будильник, которое позволит засыпать и просыпаться под любимую музыку. С ее помощью можно установить несколько будильников (разовых или повторяющихся), которые в назначенный час будут воспроизводить выбранную мелодию или открывать приложение/файл. Помимо будильников можно устанавливать таймеры обратного отсчета, которые по истечении времени могут (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: Embraceware Software Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2938175A84873E4B8CB4C76A7B06FCD43C17EDEC
+magnet:?xt=urn:btih:897031F7729D91276FE19EC03736C75C423A0269
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,28 +358,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008990   (810160) от 21.04.2016
+###  Публикация: 1504115   (814195) от 22.10.2021
 
-Return To Forever - Romantic Warrior (1976) Remastered 1990 [APE|Lossless|image + .cue] <Jazz-Rock, Fusion>
+VA - Canary Islands Orange: Urban Chillout Music (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Medieval Overture
-02. Sorceress
-03. The Romantic Warrior
-04. Majestic Dance(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 00:45:37
+01. Gary B, Ken Fan - Volar (4:54)
+02. Jesús Mondéjar - Esencia De Mar (Original Mix) (4:30)
+03. Leo de la Rosa - Como Mi Cuerpo a Tu Piel (Original Mix) (5:00)
+04. Martin Liege - Chillin in La (Original Mix) (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A87CDAC2DEB494C063694FE2F33BD8CC995FDF44
+magnet:?xt=urn:btih:6FB6563770554760D66A5BC1ABE0CD016A4A9B22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,28 +387,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009406   (810159) от 21.04.2016
+###  Публикация: 1504244   (814193) от 22.10.2021
 
-WiFiSpoof 2.3.2 [En]
+Amadine 1.2.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WiFiSpoof - меняем WiFi Mac-адрес
-WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.
-
-Особенности:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 апреля 2016Разработчик: SweetP Productions.Поддерживаемая ОС: Mac OS X 10.9 +Язык интерфейса: Английский и Немецкий
+Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
+Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2021Разработчик: Belight Software, LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:578F076E8EB1B031203170EAF403A5BB41FB44C0
+magnet:?xt=urn:btih:919BB23F4A2F83139F6FB167FF5EA6F2C476D3D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,26 +414,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009388   (810158) от 21.04.2016
+###  Публикация: 1504118   (814191) от 22.10.2021
 
-iMazing 1.5.8 [Multi/Ru]
+VA - Saint-Tropez Orange: Urban Chillout Music (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Архив торрентов
->>Архив 4Apple
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2016Разработчик: DigiDNAПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+01. Living Room - Holy Moly – That's a Groove (3:08)
+02. Patiotic - Welcome to the Infinite Sense (2:21)
+03. Simon Le Grec - Here Was an Angel (Original Mix) (5:55)
+04. Marga Sol - Sandwalk (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:59:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FDEAF314C0D47F4104D6591DCB20396AE203594
+magnet:?xt=urn:btih:74FFD09D2AA816427D67F3B9161558AB6FC2424B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,57 +443,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009542   (810157) от 21.04.2016
+###  Публикация: 1504321   (814189) от 22.10.2021
 
-Bazzookas - Ska.World (2016) [MP3|320 кб/с] <Ska, Altertative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:24)
-02. Winwin (03:01)
-03. Torn (03:36)
-04. Wrong Train (03:05)(   Читать дальше...   )Жанр: Ska, AltertativeПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B76EB28B241475ACFDC4245812286496E92F42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009401   (810156) от 21.04.2016
-
-Next - Track your expenses and finances 1.4 [Multi]
+Espresso 5.8 [En]
 
 >>Программы для macOS
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814189.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Next - отслеживать ваши расходы и финансы
-Next поможет вам получить контроль над своими расходам .
-Это самый простой способ отслеживать ваши расходы. Это быстрое и элегантное приложение.
-И с ICloud синхронизацией и дополнительными приложениями iPhone / IPad - ваши данные везде с вами .(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 июня 2015Разработчик: noidentity gmbhПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский и др.
+Espresso - программа для веб-разработчиков и веб-дизайнеров, которая может составить серьезную конкуренцию известной программе Coda от компании Panic. Espresso соединяет в себе текстовый редактор с подсветкой синтаксиса большого количества языков разметки и программирования (html, xml, php, jаvascript и т.п.), поиск и замену (есть поддержка регулярных выражений), (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: MacRabbitПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22480869430BD908461B92B65D8C3EDEBD430475
+magnet:?xt=urn:btih:4DEB814F588E9EADA00C6F7020BB4C86D17FC2CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,26 +469,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 777860   (810151) от 16.04.2014
+###  Публикация: 1504027   (814187) от 22.10.2021
 
-Географ глобус пропил (2013) DVD5
+Kirill Karabits, Ernst‐Senff‐Chor, Staatskapelle Weimar - Prokofiev: Cantata for the 20th Anniversary of October Revolution, Op. 74 (2017) [AAC|~304 Kbps] <Classical>
 
->>Отечественное кино
->>Отечественные Фильмы (DVD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм снят по мотивам романа Алексея Иванова «Географ глобус пропил» (написан в 1995 году, опубликован в 2003 году).
-Молодой биолог Виктор Служкин от безденежья идет работать учителем географии в обычную пермскую школу. Он борется, а потом и дружит с учениками, конфликтует с завучем, ведет десятиклассников в поход — сплавляться по реке. Еще он пьет с друзьями вино, (   Читать дальше...   )Производство: Россия / Красная стрела, Мармот-фильмЖанр: ДрамаРежиссер: Александр ВелединскийАктеры: Константин Хабенский, Анфиса Черных, Елена Лядова, Александр Робак, Евгения Брик, Анна Уколова, Агриппина Стеклова, Евгения Крегжде, Максим Лагашкин, Анастасия ЗолоткоПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 01:59:51
+01. I. Prelude. ''A spectre is haunting Europe, the spectre of Communism''. Moderato - Allegro (2:27)
+02. II The Philosophers. Andante Assai (2:19)
+03. III Interlaude. Allegro - Andante - Adagio (1:19)
+04. IV 'A Tight Little Band'. Allegretto (2:20)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:138CC4EE2701471E2CB5F02D5449E72D751A7631
+magnet:?xt=urn:btih:FE634C4B8DEFE5F9CF60B4F8C37063023F4EF956
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +498,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 777818   (810147) от 16.04.2014
+###  Публикация: 1504313   (814185) от 22.10.2021
 
-Final Fantasy XIII-2 / The Movie / (2012) HDTV [H.264]
+The Orchestra Of Mirrored Reflections - Nonlinear Order (2016) [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Dark Jazz, Future Jazz>
 
->>Остальное
->>Игровое видео
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Боевик, ФантастикаПеревод: Двуголосый закадровыйПродолжительность: 01:00:00
+01. Calm On Seashore (5:05)
+02. ...This Too Shall Pass (3:01)
+03. Walking Inside Apocalypse part I (5:15)
+04. Doomsday Pipe (6:47)(   Читать дальше...   )Жанр: Ambient Jazz, Dark Jazz, Post Jazz, Doom Jazz, Future JazzПродолжительность: 00:48:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23A9F31AD279F0E801BB094E03B494AF5B42A6A9
+magnet:?xt=urn:btih:0EAA47D0B6873950E9797067D1CA3197B85CECA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,25 +527,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 777890   (810141) от 16.04.2014
+###  Публикация: 1504259   (814184) от 22.10.2021
 
-Андрей Алексеевич Усачёв | Собрание сочинений [59 книг и публикации из журналов] (1988 - 2013) [PDF, DJVU, FB2]
+Downie 4 v4.3.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 22.10.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61397E0C1043439690216DA18A6176253B6BF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504323   (814183) от 22.10.2021
+
+Vainoras and the altar of the drill - Floating on air through grief and green grass (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Dark Ambient, Noir Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating on air through grief and... (3:49)
+02. Green grass (2:51)Жанр: Dark Jazz, Dark Ambient, Noir JazzПродолжительность: 00:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081422A1D5BCCC3FD21CE5454BCAFD9E33B083E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504344   (814178) от 22.10.2021
+
+ON1 HDR 2022 v16.0.1.11291 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814178.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 HDR создает безупречные, естественные фотографии HDR, которые в мгновение ока сочетают детали светлых и темных участков из набора экспозиций. Вы можете управлять движением, таким как облака и вода, с помощью предварительного просмотра в реальном времени. Затем улучшайте свои HDR-фотографии с помощью мощных инструментов и пресетов, которые демонстрируют ваше творчество. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4E6054726858A4A153D93AA80CD837B8A234B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504168   (814174) от 22.10.2021
+
+VA - Urban Orange Music 6: Downtempo Experience (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - This Old Rollercoaster (Original Mix) (5:10)
+02. Patiotic - First Leaves (2:39)
+03. Beamy - Moonglow (3:32)
+04. Martin Hiska - Higher (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198FE6E62B889F8DD4F6AD99A29884B2D6C179AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504165   (814171) от 22.10.2021
+
+VA - Urban Orange Music 4: Downtempo Experience (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris le Blanc, Nightzone - Left Without a Kiss (5:27)
+02. Beamy - Reflections (4:07)
+03. Leo de la Rosa, Maneela - Sugar in Your Kiss (5:12)
+04. Simply Chill - Jennifer Heartbeat (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B348E54C62066D555176315A484753C138C507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504282   (814169) от 22.10.2021
+
+Синди Лин | Секрет Двенадцати. Двенадцать. Книга 1 (2021) [FB2, EPUB, MOBI]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Книга Черного щенка», «Книга Белого щенка» и «Книга Рыжего щенка» - так были озаглавлены сборники стихотворений и рисунков Сесила Алдина, вышедшие в Великобритании в 1909-1910 гг. Новая книга Андрея Усачева «Черный, Белый и Рыжий» написана по мотивам произведений известного англичанина.Формат: PDF
+Усаги родилась в год Кролика с необыкновенным даром прыгать выше облаков. Ей было семь, а её младшей сестре Уме – всего три, когда отец дал ей волшебный гребень и сказал, что в нём заключено волшебство Нефритовой горы. Но с тех пор многое изменилось, какое уж тут волшебство, когда жестокий Король-дракон захватил их родной город, а талантливые дети вынуждены скрываться (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: Т.Ю. СтамоваФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EBECB3F16B31D131582FC7A55D0D56815C5B831
+magnet:?xt=urn:btih:36B2635EB0E695E224E58B8075AFA461F297BA58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,30 +692,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 777916   (810140) от 16.04.2014
+###  Публикация: 1504164   (814168) от 22.10.2021
 
-KAMI v2.0 (2014) [En] [App Store]
+VA - Urban Orange Music 3: Downtempo Experience (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Игры для macOS
->>Casual Games, Other для macOS
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Описание: Kami - очень приятная и стильная игра, в которой вы, перебирая различные цвета лоскутов бумаги, пытаетесь заполнить весь экран одним цветом, за определённое количество ходов.
-
-Особенности игры:
-► 36 уровней
-► Приятный японский стиль, созданный из настоящей бумаги
-► Успокаивающая и элегантная мелодияТип издания: App StoreРелиз состоялся: 2014Разработчик: © State of Play Games LtdПоддерживаемая ОС: OS X 10.6 или более поздняя версияЖанр: Casual Games, Puzzle GamesЯзык интерфейса: Английский, и другие
+01. Roberto Bronco - Manta Ray (Original Mix) (5:47)
+02. Jeff Bennett's Lounge Experience - Reaching (4:52)
+03. Eddie Silverton - Bemahara (4:55)
+04. Simply Chill, Arthur Clemens - My Love to You (Chillout Mix) (5:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5C65912187D0EE24F7AA128982C32E834DC1B6A
+magnet:?xt=urn:btih:BD02DF48C9BCB60A765EB9919E4DC8AA39C3E2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

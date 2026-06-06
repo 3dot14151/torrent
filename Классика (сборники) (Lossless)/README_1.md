@@ -1,3 +1,32 @@
+###  Публикация: 1506366   (800892) от 30.10.2021
+
+Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Folk>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Million Stars (3:51)
+02. Ave Maria (4:30)
+03. Sacred Night (4:08)
+04. Sagnet om julerosen (3:43)(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF41F5D9431AB4158D8A139996E05BC8BC73A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506102   (800830) от 30.10.2021
 
 VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
@@ -724,50 +753,6 @@ VA - Classical Music for Focus:|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D7F7978E6902D6835711634AF930D32862BD70F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539813   (503256) от 29.08.2012
-
-VA - Adagios (FLAC)
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503256.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Concierto de Aranjuez, for guitar & orchestra: Adagio Composer Joaquнn Rodrigo (1901 - 1999) [11:37]
-02. Concerto for flute, harp & orchestra in C major, K. 299 (K. 297c): Andantino Composer Wolfgang Amadeus Mozart (1756 - 1791) [08:25]
-03. Harp Concerto in B flat major, Op.4/6, HWV 294: Andante allegro Composer George Frederick Handel (1685 - 1759) [05:57]
-04. Harp Concerto in B flat major, Op.4/6, HWV 294: Larghetto Composer George Frederick Handel (1685 - 1759) [04:47]
-05. Concerto for harp and orchestra in C major: Andante Composer Ernst Eichner (1740 - 1777) [04:38]
-06. Harp Concerto in C major: Andante lento Composer Franзois-Adrien Boieldieu (1775 - 1834) [03:54]
-07. Harp Concerto in E flat major, Op. 74: Tema con variazioni: Andante Composer Reinhold Gliиre (1875 - 1956) [11:15]
-08. Concerto for harp, 2 oboes, 2 horns & string orchestra in A major: Larghetto Composer Karl Ditters von Dittersdorf (1739 - 1799) [07:16]
-09. Concertino for harp & chamber orchestra, Op. 93: Andante: (   Читать дальше...   )CD 1
-01. Largo, Piano Concerto No. 3 - Beethoven (09:57)
-02. Larghetto, Piano Concerto No. 2 - Chopin (09:29)
-03. Andante, Piano Concerto No. 1 in G minor - Mendelssohn (05:34)
-04. Intermezzo: Andantino Grazioso, Piano Concerto in A minor - Schumann (04:47)
-05. Allegro Moderato, Piano Concerto No. 2 in A - Liszt (04:48)
-06. Adagio, Piano Concerto in A minor - Grieg (06:08)
-07. Andante, Piano Concerto No. 2 in B flat - Brahms (12:12)
-08. Assez Modere, Mais Sans Lenteur, Symphonie Sure Un Chant Montagnard 'Cevenole' - D'Indy (06:14)
-09. Andantino Semplice, Piano Concerto No. 1 in B flat minor - Tchaikovsky (07:16)(   Читать дальше...   )Жанр: Adagio, ClassicalФормат: 2CDПродолжительность: 01:12:40 + 01:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD37CEF688E4C24DC87437BF6B3274F2FE5CA549
 ```
 
 https://mybot314.ru/tekegram_catalog/

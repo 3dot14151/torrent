@@ -1,3 +1,90 @@
+###  Публикация: 1381052   (829773) от 05.05.2020
+
+VA - Club Tropicana: Nu Funky Blues And Disco House (2020) [MP3|320 Kbps] <Funky, Nu Disco, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_829773.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eddie Hazel - California Dreamin'
+002. Lucinda Slim - Love Thief
+003. Aretha Franklin - Save Me
+004. Freddie King - Hot Tomato(   Читать дальше...   )Жанр: Funky, Nu Disco, HouseПродолжительность: 07:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AED40027D4B3DF913D1556C0A93F16C85E89413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381051   (829767) от 05.05.2020
+
+VA - Club Friday: Spring Eurodance Mix (2020) [MP3|320 Kbps] <Eurodance, Club Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829767.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Dima - Nightwave
+002. Ashanti Khumenati - Tupin
+003. Ray Boyd - Nothing Can Beat It
+004. Dezibel - Nothing You Can Do(   Читать дальше...   )Жанр: Eurodance, Club DanceПродолжительность: 08:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6785AB25367ACE5D8A6845FE0569FAC9664EA25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381048   (829661) от 05.05.2020
+
+VA - Beatport Progressive Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_829661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gadboa - Hentai Crush
+002. Mark Khoen & Emma Lock - Nikita Lily
+003. Hakkebutte - Salziger Salamander
+004. Luke Bond Ft. Tyler Graves - Left Of Us(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 09:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA0D3D21109175B4DFDD097048868EA34D004B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 774498   (829378) от 06.04.2014
 
 VA - Lounge At The Seashore 8 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
@@ -658,93 +745,6 @@ VA - Beatport Trance Pack (20.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A92A693374C644AA09C71B02AB59FEDF34BB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116407   (822890) от 20.03.2017
-
-VA - Record Super Chart #479 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
-02.  Klaas - Riot (Extended Mix)  4:00
-03.  Estradarada - Вите Надо Выйти (Misha Klein Remix)  4:18
-04.  Ed Sheeran - Shape Of You (Holderz Remix)  4:07(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEECB3E2F5224489DCB08BC29AE73C83677856E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116545   (822753) от 20.03.2017
-
-VA - Best of Deep-House. Volume 1. Innerbloom [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamantero Mazeltov - Perfect Day (3:45)
-02. Salski - Sunset (Salski Rework) (6:29)
-03. Blurry Slur, Orbs & Zen - Bobs Pillow (Peter Makto & Gregory S Remix) (7:36)
-04. Dinamica - In The Begining (Mr. Pepper Urban Jungle Remix) (5:49)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 05:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1B0137432C37C67B020BC124755F35823E41F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196513   (822555) от 03.01.2018
-
-VA - The Gates To The City (2018) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822555.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ-Chart - Dance And Trance (Instrumental Version)
-002. Toast - As We The Gods (Original Mix)
-003. A & Z with Leolani - Yesterday (Extended Mix)
-004. Gregory Esayan - No Goodbyes (feat. Natalia Pevcova)(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB8E4F45EFCFD999DB3D99AB78E2AF7076A9BD86
 ```
 
 https://mybot314.ru/tekegram_catalog/

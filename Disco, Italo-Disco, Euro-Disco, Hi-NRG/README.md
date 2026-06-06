@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1874475   (1071851) от 02.06.2026
+
+Mirko Hirsch - The Instrumental Versions, Vol. 1 (2026) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirko Hirsch - Best of Friends (Alternate Mix) (Instrumental) (5:58)
+02. Dancer in the Rain (Alternate Mix) (Instrumental) (4:56)
+03. In the Night (Instrumental) (4:41)
+04. Shot Down (Instrumental) (7:20)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA3A01D730E0584799565785BD54BE8D8A897EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867731   (1067272) от 26.04.2026
+
+VA - ZYX Italo Disco New Generation Vol. 28 (2026) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italove - Extatique (Man vs. Robot) (Flemming Dalum Remix) (4:57)
+02. Mark Tower - Your Love (Flashback Remix) (6:55)
+03. Mike Mareen - Dancing In The Dark (Flemming Dalum Remix) (6:33)
+04. Jaber D.J. - My Question (Vocal Version) (7:15)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFF5BE8A8883FE6CC0E0AC0C5BB36C6F776E194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851565   (1055307) от 02.02.2026
 
 Paul Parker - Strong - The Album (2025) Deluxe Edition [MP3|320 Kbps] <Pop, Disco, Hi-NRG>
@@ -688,64 +746,6 @@ VA - Disco House Vol. 3 (2023) [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Afr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E6BC0737166666709B856B8FCEBC37A6EEC2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615612   (1037574) от 26.02.2023
-
-VA - Play It!: Funky & Disco Vibes Vol. 55 (2023) CD, Compilation [MP3|320 Kbps] <Indie Dance, Funky, Nu Disco, Soulful>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K & K - Locked (Extended Mix)
-02. Stev Dive - Around (Extended Mix)
-03. Mikey Jubbly - You Are
-04. J.B. Boogie - Getting Back (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Funky, Nu Disco, SoulfulПродолжительность: 01:42:29 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B93E96C878A5075033A247175A1285410FFCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441752   (1037465) от 22.01.2021
-
-Inner Life - I'm Caught Up (In A One Night Love Affair) (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Caught Up (In A One Night Love Affair) (7:38)
-02. I Hope It's The Right Time (8:26)
-03. I Want To Give You Me (7:49)
-04. You Got Me Dancing (6:31)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263B388721125B154153BFD3DBF8430E70FD6118
 ```
 
 https://mybot314.ru/tekegram_catalog/

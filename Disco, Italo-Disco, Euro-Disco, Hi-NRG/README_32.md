@@ -1,3 +1,119 @@
+###  Публикация: 1327354   (376730) от 24.09.2019
+
+Chime - Disco (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulice (Street Level) (4:57)
+02. Zase V Poradku (Right Again) (5:19)
+03. Mam Cas (I Got Time) (3:59)
+04. Lasko, Vrat Se (Love Come Back) (4:18)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F5B60D81361D832D8A52A942F36BB7B962B7F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327335   (376721) от 24.09.2019
+
+Emy Care - Dreams Of Fantasy (2019) [MP3|320 Kbps] <Italo Disco, Euro Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Do You Love Me[7:52]
+ 02 - Read My Mind (Extended Disco Mix)[6:11]
+ 03 - Don't Fly Away[5:58]
+ 04 - Once in a lifetime (Vocal Romantic Mix)[6:33](   Читать дальше...   )Жанр: Italo Disco, Euro Disco, SynthpopПродолжительность: Beach Club Records
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58212C735BECCB1D0222E5F1655D389095B2B76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069052   (376247) от 03.11.2016
+
+VA - Disco Bunch Vol 12 (2016) [MP3|320 Kbps] <Funky, Nu Disco, Soulful, Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376247.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Easy Is Dead - No Money No Buy 07:05
+2. Miguel Campbell - All Cried Out 05:25
+3. Funky Fat - Ride In The City (Miguel Campbell Remix) 04:59
+4. Costa Martinez - Timejumper (Remastered Remix) 04:50(   Читать дальше...   )Жанр: Funky, Nu Disco, Soulful, Italo DiscoПродолжительность: 02:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2942CF23589917F24E879C6C5F777FA05E81D743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415536   (376165) от 12.10.2020
+
+Tommy The Bitch - Give It To Me (1979) Reissue CD, 2015, Solid Records [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It To Me  (7:32)
+02. Love Spell  (4:28)
+03. Cool Girl  (5:40)
+04. Dancing Man  (4:34)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00C865468F5D3A99E269FAE08D4A12BC6396055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069309   (375675) от 03.11.2016
 
 Luv' - 7 Albums (1978-1993) [MP3|320 Kbps] <Electronic, Pop, Disco>
@@ -629,122 +745,6 @@ Saint Tropez - 4 Albums (1977-1982) LP [MP3|320 Kbps] <Funk Soul, Disco, Erotic-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C70FF4361EB81F55008A17890ABC14C472E0F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951870   (360584) от 30.10.2015
-
-Dschinghis Khan - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moskau (04:32)
-02. Komm doch Heim (04:19)
-03. Samurai (04:42)
-04. Rocking Son Of Dschinghis Khan (04:16)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E396A52E8EE8CCC0CB26D4B4271B9146B8A76927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328987   (358170) от 02.10.2019
-
-VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2xCD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excitations And Fred Ventura - State Of Confusion (Italoconnection Remix) (6:31)
-02. Stockholm Nightlife Feat. Helly - My Guiding Star (ZYX Extended) (7:28)
-03. Tom Hooker - You're Right (Mixtended Version) (7:04)
-04. Alex Valentini - See You Again (Extended Mix) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED114E17DC10B0EEB88BDB6C2C85ADC8526FC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952293   (358091) от 31.10.2015
-
-Silent Circle - The Original Maxi-Singles Collection (2014) [MP3|320 кб/с]<Eurodisco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hide Away - Man Is Comin! (Special Mix) (05:11)
-02. Touch In The Night (Crash Version) (05:35)
-03. Stop The Rain (12'' Version) (05:39)
-04. Love Is Just A Word (Reggae Version) (05:47)(   Читать дальше...   )Жанр: Eurodisco, SynthpopПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8372C6BE8C0BF7426D367D14F2AD17E1A8C9457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329087   (356511) от 03.10.2019
-
-The Hues Corporation - Your Place Or Mine (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up Off Your Backsides (7:23)
-02. Love Dance (3:36)
-03. Don't Forget To Woogie (4:00)
-04. Needed (3:32)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C4B8AAA573D457E71FE4616165291C0480DE25
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1376604   (858263) от 18.04.2020
+
+Deep Purple - 100% Deep Purple (2020) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time for Bedlam
+02. Smoke On The Water (1997 Digital Remaster)
+03. Gethsemane (I Only Want To Say)
+04. Perfect Strangers(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 05:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451597FFFF552C9074E5537014B8DE054578DB40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000780   (857520) от 26.03.2016
+
+VA - Dr. Metal Presents: Vol.6 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857520.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Helloween-Battle`s Won
+002. Blazon Stone-Fire The Cannons
+003. Fireland-Ancient Time
+004. Luca Turilli-In The Mirror(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BA2662357AF392C0B95391C62BC83ADCF6B4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376906   (856562) от 19.04.2020
+
+Creedence Clearwater Revival & John Fogerty - 100% Creedence (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - Born On The Bayou
+02. Creedence Clearwater Revival - I Heard It Through The Grapevine (Edit)
+03. John Fogerty - In The Garden
+04. Creedence Clearwater Revival - Lodi(   Читать дальше...   )Жанр: RockПродолжительность: 03:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2BDC1A60BBA97FA322FB1317A3B3C9E91E6E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376873   (856457) от 19.04.2020
+
+The Beatles - Realized beyond & after Beatles (De-Noised) 3 CD (2020) Remaster SMRP [MP3|320 Kbps] <Classic Rock>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-01. Paul McCartney - Junk (1970) (01:56)
+01-02. Paul McCartney - Teddy Boy (1970) (02:25)
+01-03. George Harrison - All Things Must Pass (1970) (03:47)
+01-04. George Harrison - Hear Me Lord (1970) (06:01)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 06:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72CABBC00FBA4936451EC177A00EF037C61FACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001024   (855532) от 27.03.2016
+
+VA - Dr. Metal Presents: Vol.7 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855532.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sinbreed-Creation Of Reality
+002. Dark Empire-Northern Sky
+003. AtVance-Right or Wrong
+004. StormWarrior-Odinn's Warriors(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544CE74059C1DCB52E2E3A3D77A13F83E3D6B447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377351   (853562) от 21.04.2020
 
 VA - Cosmic Rock (2020) [MP3|320 Kbps] <Rock>
@@ -597,151 +742,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD8871E133C5AA89F36C2E0A53B8B8FFBF4A97AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378424   (846289) от 25.04.2020
-
-The Sweet - 100% The Sweet (2020) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chop Chop
-02. Sweet F.A.
-03. Action
-04. Spotlight(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 04:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6188FB8644A97FEE1B7012CA134A382BC35E75F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111991   (844789) от 07.03.2017
-
-VA - Fall Of Medusa: Hard Classic Rock 90s (2017) [MP3|320 Kbps] <Classic Hard Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844789.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AC/DC - Hail Caesar 05:15
-002. Ozzy Osbourne - See You On The Other Side 06:11
-003. Deftones - Root 03:42
-004. Rammstein - Seemann 04:49(   Читать дальше...   )Жанр: Classic Hard Rock, Metal, AlternativeПродолжительность: 10:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9878B98256C8B7F4B0D1656F00886D9881296765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378704   (844641) от 26.04.2020
-
-George Harrison - 100% George Harrison (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Singing Om (2014 Mix)
-02. Do You Want To Know A Secret (Remastered 2009)
-03. While My Guitar Gently Weeps (Live From Madison Square Garden, New York, U.S.A, 1971 / 2009 Mix)
-04. Beautiful Girl (2004 Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 04:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C34AAF2FD5E5B4DEC14547E46F61B2CBA059B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795070   (844470) от 02.04.2016
-
-VA - Heavy Gaming Vol.01 - 18 (2014-2015) [MP3|128-320 кб/с]<Rock/Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Klepacki - Hell March (Command & Conquer Red Alert) [00:06:22]
-02. C. PortwinT. StasicaF. Love - Instability (Hunter The Reckoning) [00:02:32]
-03. Yoshihiro Sato - High Powered Drivin (Cyber Org) [00:04:27]
-04. Pentakill - Last Whisper (League Of Legends) [00:03:37](   Читать дальше...   )Жанр: Rock/MetalПродолжительность: 17:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A142F9F0D1E4F3CF6CD02048DC5B7931D2FF8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500005   (844425) от 04.10.2021
-
-Jimi Hendrix - Guitar King (2021)(2CD Compilation) [MP3|320 Kbps] <Rock, Hard Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolly Dagger
-02. Earth Blues
-03. Spanish Castle Magic
-04. Can You See Me(   Читать дальше...   )Жанр: Rock, Hard Rock, BluesПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE556F90E9E12836D5E84E9297E34FC7B1E8B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

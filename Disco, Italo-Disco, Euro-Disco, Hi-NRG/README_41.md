@@ -1,3 +1,148 @@
+###  Публикация: 1640408   (211236) от 17.06.2023
+
+VA - Nu Disco 2023 (Best Of Disco House) (2023) [MP3|320 Kbps] <Nu-Disco, Disco House, Indie Dance, Soulful>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block & Crown - Karma Is A Killer (Makin Bakin Remix)
+02. Softmal - Ladies Night (Radio Edit)
+03. Lissat - Sweet Disco (Nu Disco Mix)
+04. Da Clubbmaster - La Tribu De Dana (Saint Tropez Capz Club Mix)(   Читать дальше...   )Жанр: Nu-Disco, Disco House, Indie Dance, SoulfulПродолжительность: 01:04:11 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A863002A53DB26123A6C1FFCE2D2D45027C11EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641005   (210996) от 20.06.2023
+
+The New Topnotes - Where Do We Go From Here? (1978) LP [MP3|320 Kbps] <Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For My Mama (3:30)
+02. Just The Way You Are (5:15)
+03. Emotion (4:34)
+04. Be Good To Me (3:10)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477683A6926E915B081A0974AD767459AB3F5234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587350   (192861) от 30.10.2022
+
+VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, Euro-Disco, Progressive, Electro Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cappella - Move On Baby (Mike Candys Remix)
+02. Mauro Picotto - Komodo (Klaas Remix Extended)
+03. Niels Van Gogh - Tell Me Why (Extended Mix)
+04. Deep Divas - Uh La La La (Original Radio Mix)(   Читать дальше...   )Жанр: Italo-Dance, Euro-Disco, Progressive, Electro PopПродолжительность: 01:02:49 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C31D0876DC5476FB569C638E5BC690EF0932B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588008   (192125) от 02.11.2022
+
+VA - Keep It Disco Vol. 05 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.P.V. - Boogying (Original Mix)
+02. Vinny Terranova - I'm The Same Boy (Original Mix)
+03. DJ Patisso - Hold On (Original Mix)
+04. HP Vince - Funky Africa (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:05:27 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97D7FFC94C56C4FA5A55AE32340B524AD9069D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588217   (191816) от 03.11.2022
+
+Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Drive Me Crazy
+02. Anything
+03. I Miss You
+04. I Love The Way You Are(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588268   (191809) от 03.11.2022
 
 Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
@@ -600,150 +745,6 @@ C.C. Catch - Hear What I Say (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6031F628872E0D581F2520A0CD2473D3D7F6F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590920   (187814) от 16.11.2022
-
-C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Hotel (''Room 69'' Mix)
-02. One Night's Not Enough (Maxi Version)
-03. Back Seat Of Your Cadillac
-04. I Can Lose My Heart Tonight (Extended Club Remix)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E73DD72817280B622B30C1BA7B23C95D6092575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590798   (187813) от 16.11.2022
-
-C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Kiss
-02. Soul Survivor
-03. 'Cause You Are Young
-04. Heaven & Hell(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836D8E9ED0655743524A44DBA5CDF10FFC24DCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591069   (187811) от 16.11.2022
-
-Tempo Rubato - Music '85 (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music '85 (19:02)
-02. Don't Stop The Classics (10:45)
-03. Let's Stay Together (7:28)Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C692B64CC6D4268CFAA9A47005C144CD5DBB58E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590478   (187798) от 16.11.2022
-
-C.C. Catch - Classics (1989) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Seat Of You Cadillac
-02. Are You Man Enougth
-03. Good Guys Only Win In Movies
-04. Midnight Gambler(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906FBA469B23D3F734BE99CFA58A3DE29E1E0717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590403   (185875) от 25.09.2023
-
-C.C. Catch - Diamonds - Her Greatest Hits (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of Mystic Lights (Long Version - Dance Mix)
-02. Are You Man Enough
-03. 'Cause You Are Young
-04. Don't Shoot My Sheriff Tonight(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF3C9796B3043EDF51E0FE78FA2A9561E35A77C
 ```
 
 https://mybot314.ru/tekegram_catalog/

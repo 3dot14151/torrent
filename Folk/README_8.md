@@ -1,3 +1,34 @@
+###  Публикация: 491661   (246380) от 03.05.2012
+
+Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk, Blues, Alternative Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_246380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tri-State Blues (03:04)
+02. In The Shadows Of The Slaughterhouse (03:39)
+03. Drinkin' At The Crowbar (03:20)
+04. 3 String Guitar (03:52)
+05. Down Down Down (04:13)
+06. My Love's Shotgun (03:20)2004-2012Жанр: Dark Folk, Blues, Alternative RockПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624964   (241449) от 11.04.2023
 
 Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
@@ -718,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:443E2C3FA6975136EEF46681F2A77AA9DACF9C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737451   (106531) от 17.07.2024
-
-Табор возвращается - Берега (2023) [MP3|320 Kbps] <Цыганская песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дэвэс и Рат (Цыганская песня) [00:02:33]
-02 - Пантелее Пантелей (Цыганская песня) [00:06:08]
-03 - Кай енэ (Цыганская песня) [00:03:03]
-04 - Сумерки [00:05:14](   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB21A800B0B790B8242E20CDF2FCBA01DA946D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

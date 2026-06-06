@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1873328   (1071140) от 27.05.2026
+
+VA - Classical Piano (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice I. Allegro (3:08)
+02. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
+03. Sergey Bryukhno - Sonnet in C Major (1:25)
+04. Katya Kramer-Lapin - Goldberg Variations, BWV 988 Aria (5:28)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09A9B5239FABD8C5E7408D7427EC5357AC08114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866460   (1066159) от 20.04.2026
 
 VA - The Best of Classical Piano (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -733,35 +762,6 @@ Ivan Moravec - Chopin: Nocturnes (1991) 2 CD [FLAC|Lossless|tracks] <Classical, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C7F1E22DB10506E8B3B85D0A9EA7E2E25F80758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999254   (864344) от 22.03.2016
-
-Chopin - 4 Ballades, Prelude, 4 Scherzi (Ashkenazy) (2000) [FLAC|Lossless|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ballade no. 1 in G minor, op. 23
-02 Ballade no. 2 in F major, op. 38
-03 Ballade no. 3 in A-flat major, op. 47
-04 Ballade no. 4 in F minor, op. 52(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608B83D840200BAE6750B5C1BD98672F9BD6011E
 ```
 
 https://mybot314.ru/tekegram_catalog/

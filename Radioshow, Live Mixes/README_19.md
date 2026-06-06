@@ -1,3 +1,235 @@
+###  Публикация: 1643121   (231775) от 01.07.2023
+
+VA - Armin van Buuren - A State Of Trance 1127 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Gareth Emery feat. Sarah de Warren - Vertigo
+02.	Ferry Corsten - Mind Trip
+03.	Progressive Pick: Laura van Dam feat. Chris Howard - True Colors
+04.	Shouse & David Guetta - Live Without Love (Armin van Buuren Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841E9FC53412AD98CBC527960D536B4CF6401134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648040   (230911) от 22.07.2023
+
+VA - Armin van Buuren - A State Of Trance 1130 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Ilan Bluestone & Oliver Smith - Blue Eagle (ANJUNABEATS)
+02.	Sean Tyas & DIM3NSION - Arise ASOT (ARMADA)
+03.	Chris Schweizer ft. Sarah Howells - Company (Progressive Mix) ASOT (ARMADA)
+04.	Little Foot - Dakota (SONGSPIRE)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6B9B053A523A3FDD388482B590DE187A39C4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649537   (229130) от 28.07.2023
+
+VA - Armin van Buuren - A State Of Trance 1131 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Ferry Corsten - Follow You (FLASHOVER)
+02.	Ferry Corsten - Voeman (FLASHOVER)
+03.	Ferry Corsten & Betsie Larkin - Not Coming Down (FLASHOVER)
+04.	Ferry Corsten & Ciaran McAuley - Mo Chara (FLASHOVER)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D65529CD48572141CCB33E53B7027A6E1CD7466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 402814   (227912) от 18.12.2013
+
+Tiesto - Club Life 001-350 (2007 - 2013) [MP3|128-320 kbps]<Trance, House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hour 1:
+01.	Club Life - Intro (00:31)
+02.	Tiësto feat. Anastacia - What Can We Do (A Deeper Love) (Third Party Remix)	(06:10)
+03.	Nicky Romero - Toulouse	(04:58)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive House, Electro House, HouseПродолжительность: 663:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D69D0239906360522DDF5A45249207AA3B0C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513427   (225569) от 28.11.2021
+
+Cosmic Gate - Cosmic Gate In Concert (The Classics) (2020-10-17) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Rivera feat. Lizzie Curoius - Departures (Cosmic Gate Remix)
+02. deadmau5 - Faxing Berlin
+03 .Nadia Ali - Rapture (Tristan Garner Remix)
+04. Cosmic Gate & Aruna - Free Falling (Barra)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E43732801FA8D7CC4859156A53C7ABA1CFEBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268782   (225217) от 12.12.2018
+
+VA - Markus Schulz – Global DJ Broadcast (World Tour, SQL Miami) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Smiley – The Dreamers (Markus Schulz In Bloom Mix)
+02. ID
+03. Markus Schulz & Jam El Mar – The Lotus
+04. ID(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653A2E63B99E3FECE1C33D3A0A107F496CD800D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268784   (225208) от 12.12.2018
+
+VA - Ori Uplift & Tycoos - Uplifting Only 304 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.BREAKDOWN OF THE WEEK: Kiyoi & Eky & Khairy Ahmed - Silent Heart
+02.Rene Ablaze featuring Andromeda - Elysium
+03.Bobina & Christina Novelli - Mysterious Times (Extended Mix)
+04. Ana Criado - In A Thousand Skies (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686B43C34812AA8078E28F50AC8B219DEA21C85A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425382   (222662) от 20.11.2020
+
+ARTBAT - Tomorrowland Friendship Mix (2020-11-19) [MP3|320 Kbps] <Techno, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Asher & James Massiah - Time & Space (Reprise Mix)
+02. Colyn - Khazad Dum
+03. Yotto - Nova
+04. Innellea - The World Returns(   Читать дальше...   )Жанр: Techno, Progressive HouseПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5677D259E5BB8101C03FD8EE42941255AECE699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343376   (218794) от 06.12.2019
 
 VA - Markus Schulz -Global DJ Broadcast  - World Tour Montreal (2019) [MP3|320 Kbps] <Trance>
@@ -510,238 +742,6 @@ Markus Schulz - Global DJ Broadcast World Tour (X-Demon Wroclaw, Poland) (2023-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D29CE51E04E2BE542BE7B4D70DA8582D4A65202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667281   (177014) от 08.10.2023
-
-Claptone - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Order - Blue Monday w/Claptone ft. Man Parrish - Flashdance
-02. Yolanda Be Cool ft. Jonjon - Segunda
-03. Eminem vs. Afrojack - Without Me vs. Chain Gang (Claptone Edit)
-04. The Chemical Brothers - Galvanize (clavette Reboot)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB2E81D97DE16681B572A97614154B449F48475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667854   (175376) от 10.10.2023
-
-Vintage Culture - Live @ Thunder Machine Stage, VNTG Is A Festival Brasilia, Brazil (2023-04-29) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Rateuke - Oudara (Club Mix)
-02. ID - ID
-03. Shiba San & Nautik - Drop That Shhh
-04. ID - ID(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 04:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D702B25EAB7433B6DD58682E1F241FE09A3FF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667864   (175323) от 10.10.2023
-
-MEDUZA - Live @ Our House, Hi Ibiza, Spain (2023-09-29) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MEDUZA - Friends
-02. Adapter - No No!
-03. Mau P & Kevin de Vries - Metro
-04. MEDUZA - Slowdown w/MEDUZA ft. Dermot Kennedy - Paradise (Acappella)(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 02:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22D7745B119D88EBEEF56F9A6DE4BF1BFBCB814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669296   (173010) от 15.10.2023
-
-Cosmic Gate - Live @ Rock Bar Bali Sunset Set, Indonesia (2023-10-06) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sultan + Shepard & Delhia De France - Zima
-02. Taglo - Deep Sweet Dream
-03. Natascha Polké - Wildfire
-04. Above & Beyond - Surge (PROFF & Igor Garanin Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F809158F540F3C7EB93EF5E3A0A3BA22C81B6FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672504   (169354) от 28.10.2023
-
-Markus Schulz - Global DJ Broadcast Afterdark (Euphoric Techno Mix) (2023-10-26) [MP3|320 Kbps] <Progressive House, Techno, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Ruiz - Pura Vida
-02. Novem Vivit vs. Josh Wink - Higher Generation of Consciousness (Markus Schulz Down the Rabbit Hole Mashup)
-03. Joris Turenhout - Lost Voices
-04. Zafer Atabey - Roots(   Читать дальше...   )Жанр: Progressive House, Techno, Melodic HouseПродолжительность: 04:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A6ED2803803C311DF6F492385EB1846C3C631C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672434   (169337) от 28.10.2023
-
-AXMO - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023-10-19) [MP3|320 Kbps] <Mainstage, Hard Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rihanna ft. Calvin Harris - We Found Love (AXMO Remix)
-02. Pitbull ft. Ne-Yo & Afrojack & Nayer - Give Me Everything (AXMO Remix)
-03. AXMO & Nanobii - Euro Fever
-04. ATC - Around The World (La La La La La) (AXMO Remix)(   Читать дальше...   )Жанр: Mainstage, Hard DanceПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B5731917B80D90C71E1D9B314C27EC1B5D633D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672837   (167219) от 30.10.2023
-
-Martin Garrix - Live @ IDEM, RAI, ADE (2023-10-20) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix & Third ≡ Party - Flashlights (Intro Edit) w/Martin Garrix ft. Khalid - Ocean (Acappella)
-02. Martin Garrix ft. Khalid - Ocean (DubVision Remix)
-03. Vluarr vs. David Guetta & Brooks - By Myself vs. Like I Do (Martin Garrix Mashup)
-04. Martin Garrix X JVKE & DubVision vs. Kx5 & Hayla & John Summit - Hero vs. Escape (DubVision (   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 02:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC25B7B65BDEDFD548BD4CB2DF54EA93341C21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345569   (166632) от 15.12.2019
-
-DJ KUBA & NEITAN - Yearmix 2019 2019-12-08 [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ KUBA & NEITAN ft. Kris Kiss - Helicopter w/DJ KUBA & NEITAN ft. Kris Kiss - Helicopter (VIP Mix)
-02. Europe - The Final Countdown w/Dimitri Vegas & Like Mike & Martin Garrix - Tremor (Sensation 2014 Anthem) w/Hardwell & MAKJ - Countdown (Acappella) w/REGGIO & DJ Junior - Spectrum
-03. Wasback & DJ Junior - Alive
-04. Blinders - Relieve(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA8FD5FDCA89B4C0A58A86A24CCEBEF0C91F6DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1763753   (35328) от 03.12.2024
+
+VA - Rock Stream Mix (2024) [MP3|320 Kbps] <Soft rock, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4Db - 45 Degrés - (06:17)
+ 002. Endless Dive - Archimboldi - (06:53)
+ 003. Cold Years - Die Tonight - (03:22)
+ 004. Sunchild, Karfagen & Hoggwash - Grail And Time - (05:54)(   Читать дальше...   )Жанр: Soft rock, RockПродолжительность: 11:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66868B3C851B6B03A162B929365A16E1E7383D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763842   (35325) от 03.12.2024
+
+VA - Workout, Beast Mode, Aggressive 2 (2024) [MP3|320 Kbps] <Rock, Hard Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath - Paranoid (2:47)
+02. Foo Fighters - Monkey Wrench (3:51)
+03. Linkin Park - One Step Closer (2:37)
+04. Mötley Crüe - Kickstart My Heart (4:44)(   Читать дальше...   )Жанр: Rock, Hard Rock, OtherПродолжительность: 05:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89FE96F766E5F469FEB7D853C93DD7773F6D1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763939   (35219) от 04.12.2024
+
+Avril Lavigne - Compilation (2002-2023) [MP3|320 Kbps] <Pop punk, Alternative, Pop rock, Post grunge>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anything But Ordinary (Let Go 2002)
+02. Bad Girl (& Marilyn Manson) (Avril Lavigne 2013)
+03. Bad Reputation (Avril Lavigne 2013)
+04. Bite Me (Love Sux 2022)(   Читать дальше...   )Жанр: Pop punk, Alternative, Pop rock, Post grungeПродолжительность: 02:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16901230CDD307645FAB2F7823E0F1AA1A1EA8F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764913   (34724) от 09.12.2024
+
+Nautilus Pompilius - Compilation (1983-1997) [MP3|320 Kbps] <New wave, Art rock, Soft Rock, Post punk>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Три Хита (Оркестровая Увертюра) (Атлантида 1997)
+02. Эпиграф (Разлука 1986)
+03. Эта Музыка Будет Вечной (Разлука 1986)
+04. Отход На Север (Наугад 1994)(   Читать дальше...   )Жанр: New wave, Art rock, Soft Rock, Post punkПродолжительность: 05:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9DA6A5012644D35224F14C30CDFA99DBDB7EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764347   (33908) от 17.12.2024
+
+Владимир Кузьмин - Баллады (лучшее) (Mixed and Compiled by DJ Zhuk) (2015) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белые дикие кони (4:05)
+02. Как ты живёшь без меня (4:50)
+03. Сказка в моей жизни (4:43)
+04. Небеса (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DEB7BEFD5898B8E756ED0CCD6393856776573F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766447   (33569) от 20.12.2024
 
 The Offspring - Compilation (1989-2024) [MP3|320 Kbps] <Punk rock, Alternative, Skate punk, Hardcore punk>
@@ -600,151 +745,6 @@ Bloodhound Gang - Compilation (1995-2015) [MP3|320 Kbps] <Alternative, Comedy ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86B11E20FFC9C485BAE652090A8AA82A669730A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780295   (27325) от 17.02.2025
-
-VA - Music For You vol.29 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buckethead - Soothsayer (Dedicated To Aunt Suzie) (09:05)
- 02. At Vance - Solfeggietto (01:03)
- 03. Tony MacAlpine - Tears Of Sahara (03:47)
- 04. Animals as Leaders - Woven Web (04:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 03:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0063E560117F43BE025674A86B303EF7DA4A0F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780505   (27195) от 18.02.2025
-
-VA - Music For You vol.30 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yngwie Malmsteen - Black Star (04:51)
- 02. Genesis - Dancing With The Moonlit Knight (08:03)
- 03. Dream Theater - Octavarium (24:00)
- 04. Pink Floyd - Sheep  (10:29)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 04:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07162D7BE0C1F068EEE364AA1D6139AB76BFB5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780731   (27015) от 20.02.2025
-
-Leo Moracchioli - Metal Covers Compilation (2014-2024) [MP3|320 Kbps] <Metal, Alternative, Covers>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Like An Egyptian (& The Bangles) (Leo Metal Covers Volume 31 2020)
-02. Skyfall (& Adele) (Leo Metal Covers Volume 44 2023)
-03. (You Gotta) Fight For Your Right (To Party !) (& Beastie Boys) (Leo Metal Covers Volume 38 2022)
-04. Agatha All Along (& Kristen Anderson-Lopez) (Leo Metal Covers Volume 33 2021)(   Читать дальше...   )Жанр: Metal, Alternative, CoversПродолжительность: 15:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59D77A443BF60C31F4559C16C463AB2FE4EF05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782143   (26275) от 27.02.2025
-
-Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Say Goodbye [05:42]
-02. Where the Wild Waters Flow [05:35]
-03. You Want Love [04:34]
-04. Forever Angel (Acoustic) [04:33](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 09:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A812F25E2A89C2DEBF0128E20400187BE8F464DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782937   (25873) от 03.03.2025
-
-VA - Masters of Rock & Metal - The Best Rock & Metal Tracks ever... (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metallica - 72 Seasons [07:39]
-02. Megadeth - Holy Wars...The Punishment Due [06:35]
-03. Deftones - Minerva [04:18]
-04. AC/DC - Let There Be Rock [06:07](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 03:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5696136FEF7E3B02A845B76682125BE388716863
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1308560   (553725) от 15.06.2019
+
+The Passage Players - Voyage Into Space (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage Into Space (4:50)
+02. Interplanetary Expedition (3:02)
+03. Look Out For Falling Meteors (2:30)
+04. The Galaxy Around Us (2:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D683E276458A2F1A02DC5983BE3AA34C37776CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308704   (553535) от 16.06.2019
+
+Uncle Louie - Uncle Louie's Here (1979) LP [MP3|320 Kbps] <Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full-Tilt Boogie (3:51)
+02. I Like Funky Music (4:07)
+03. Badd Motor Folk (4:05)
+04. We Came To Play (5:14)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8661F0CCA6C709DBFF8BF4B755EEAEE2B3D7A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814649   (553258) от 22.08.2014
+
+VA - Bohlenopolis (2002) 2CD Bootleg [MP3|320 кб/с]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553258.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Disco Hit Mix
+
+01.Blue System - Magic Symphony (4:48)
+02.C.C. Catch - Nothing But A Heartache (3:24)
+03.Modern Talking - With A Little Love (4:20)
+04.Secret Star - Jump In My Car (2:56)
+05.Sheree - Ronnie Talk To Russia (4:32)
+06.Les Mckeown - Love Is Just A Breath Away (3:42)
+07.Countdown G.T.O. - Magic Race (4:06)
+08.Joe Lockwood - Hey You (2:23)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 02:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30543C133A232F1080955332F1F2B123537C566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046327   (552962) от 26.08.2016
+
+VA - Underground Nu-Disco Sessions Vol.6 (2016) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drone In Ibiza - Back In That Days - Original Mix
+02. Mr. Stylus - Right Now - Original Mix
+03. Elber Florentino - Santa Monica Sunset - Original Mix
+04. Bruno Costa - Escudo - Original Mix(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7146578305A0A31F7E13104999495616A36C2AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046609   (551858) от 27.08.2016
 
 VA - Unclassics: Obscure Electronic Funk & Disco 1978-1985 (2004) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Deep House>
@@ -627,122 +749,6 @@ Blackwell - Boogie Down (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFF0DA67D0021F17D5344C674E35109C850C8D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239501   (538982) от 05.08.2018
-
-Limelight - Special Love - Re-Tubed (2018) 2CD, Special Edition [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Love (06:24)
-02. Hold Me Tigh (07:03)
-03. Call Me (07:02)
-04. I Want Your Love (07:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA50E04D2205DEEC4CD133E65B659F8F5DC3D364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239414   (538873) от 05.08.2018
-
-VA - New Italo Disco Top 25 Compilation Vol.9 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limelight - Forever Lovers (Re-Tubed Radio) 4:29
-02. Angelico - Forever Love (Short New Generation Dance Mix) 4:04
-03. Ken Martina - Another Melody (Short NRG Mix) 4:39
-04. Tommy Sun - Dancers (Mega Short Dance Mix) 5:16(   Читать дальше...   )Жанр: Italo-Disco, NuDisco, HiNRG, DanceПродолжительность: 01:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A1F6519EE13AC6C8EB0BC393AB37516C5D4660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050582   (536577) от 09.09.2016
-
-Charlie Mike Sierra - On The Moon (1977) LP [MP3|320 Kbps] <Electronic, Disco, Ambient>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный  проект французкого исполнителя музыки в стиле спейс-диско Charlie Mike Sierra (настоящее имя - Raymond Jeanno).01. Venus (4:33)
-02. Battle Of The Stars (4:13)
-03. Lunar Orbital (3:54)
-04. On The Moon (7:08)(   Читать дальше...   )Жанр: Electronic, Disco, AmbientПродолжительность: 00:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA23569D46FAAD9C2CD9AA1EB8D24AC5A787E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558052   (535705) от 18.06.2022
-
-The Freedom Machine - 2 Albums (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Samba (2:33)
-02. Disco Coutry (3:38)
-03. Free Love (4:40)
-04. Disco Samba (Instrumental) (2:34)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7A075171B11F9F2E7B190CEAB1DC2BE74A2A5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

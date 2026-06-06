@@ -1,3 +1,61 @@
+###  Публикация: 1507907   (798161) от 06.11.2021
+
+VA - Café De La Cita, Vol. 4 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2020) [AAC|~288 Kbps] <Lounge, Chill Out, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightview - Cityscape (Lounge Sound Mix) (3:28)
+02. Soundset City - Break in the City (3:43)
+03. CiYou - I'm Driving (3:21)
+04. Nightzoom - Cool Mixture (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820B5BFE78DD68007B077947A1D35A1B885B3150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507904   (798155) от 06.11.2021
+
+VA - Café De La Cita, Vol. 2 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2018) [AAC|~304 Kbps] <Lounge, Chill Out, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Dulcimers Vibes (Chillout Mix) (4:10)
+02. Jean Mare - Down to Underground (Nu Jazzy Smooth Mix) (3:51)
+03. Bernon - Crying (Deep Drive Mix) (5:27)
+04. Nightbar Jazz - Late Night (Drum & Bass Downbeat Mix) (3:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2435EB6A80BF2A5CAFB0430418CED01D65EFB55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507903   (798153) от 06.11.2021
 
 VA - Café De La Cita, Vol. 1 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2017) [AAC|~312 Kbps] <Lounge, Chill Out, Jazz>
@@ -684,59 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4239EB5DB409187B8726C9AE68E125CF22B8B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508274   (797977) от 07.11.2021
-
-Ариэль / Ariel (1988) BDRip [720p] ATV [MVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797977.jpg" />
-</div>
-
-
-###  Подробнее
-
-С героем фильма шахтером Таисто случается серия неудач. Сначала он теряет работу. Таисто берет все свои деньги и направляется в город. В пути его грабят, и он оказывается в городе без денег и без работы. Вскоре он встречает Ирмели - разведенную деятельную женщину, которая работает в нескольких местах, чтобы обеспечить маленького сына и выплачивать по закладной.
-Неспособный (   Читать дальше...   )Производство: Финляндия / Finnish Film Foundation, Villealfa Filmproduction OyЖанр: мелодрама, комедия, криминалРежиссер: Аки КаурисмякиАктеры: Туро Пайала, Сусанна Хаависто, Матти Пелонпяя, Ээту Хилкамо, Эркки Пайала, Матти Яаранен, Ханну Вихолайнен, Йорма Марккула, Тарья Кейнянен, Эйно КууселаПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: русские (xvidclub), английскиеПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C1734CEEBEE975749A14B85253D86D750F676E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508107   (797956) от 07.11.2021
-
-Девять дней / Nine Days (2020) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отшельник живёт в доме, расположенном за границами обычной реальности. Там он общается с разными кандидатами — олицетворениями человеческих душ. Один из этих кандидатов будет удостоен права быть рождённым.Производство: США / 30WEST, Baked Studios, Juniper ProductionsЖанр: фэнтези, драмаРежиссер: Эдсон ОдаАктеры: Уинстон Дьюк, Зази Битц, Билл Скарсгард, Бенедикт Вонг, Тони Хейл, Дэвид Рисдаль, Арианна Ортиз, Джеральдин Хьюз, Эрика Васкес, Перри СмитПеревод: Многоголосый профессиональный (КинопоискHD)Субтитры: русские, английскиеПродолжительность: 02:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC2D65B096F75F493DEDE337B62A9C263CBF536
 ```
 
 https://mybot314.ru/tekegram_catalog/

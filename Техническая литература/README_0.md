@@ -1,3 +1,111 @@
+###  Публикация: 1851813   (1055688) от 05.02.2026
+
+Stephen Corda | Introduction to Aerospace Engineering with a Flight Test Perspective (Aerospace Series). 2nd Edition (2026) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comprehensive textbook integrating the fundamentals of flight testing with introductory concepts in aerospace engineering
+
+Introduction to Aerospace Engineering with a Flight Test Perspective provides a solid foundation in the fundamentals of aerospace engineering while illuminating many aspects of real-world flight, covering topics such as aerodynamics, propulsion, (   Читать дальше...   )Жанр: Aerospace Propulsion Technology, Aeronautics, Aeronautical EngineeringЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE847E3025AA94325FBAB4C010456F64DB6FE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850624   (1054618) от 30.01.2026
+
+Francis D. K. Ching, Steven R. Winkel | Building Codes Illustrated. A Guide to Understanding the 2024 International Building Code. 8th Edition (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054618.jpg" />
+</div>
+
+
+###  Подробнее
+
+STAY INFORMED OF THE LATEST UPDATES TO THE INTERNATIONAL BUILDING CODE WITH THE LEADING VISUAL REFERENCE
+
+In the newly revised Eighth Edition of Building Codes Illustrated: A Guide to Understanding the 2024 International Building Code®, architectural drawing expert Francis D.K. Ching and well-known architect Steven R. Winkel deliver a beautifully illustrated and (   Читать дальше...   )Жанр: Architectural Codes & Standards, Architecture, Architectural Drafting & PresentationЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFDEFA52950AEEED427EA5069977D16F766FFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850641   (1054469) от 29.01.2026
+
+Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autonomous Systems (Unmanned System Technologies) (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054469.jpg" />
+</div>
+
+
+###  Подробнее
+
+This textbook provides information about the essential technical components of building autonomous systems. The book starts by briefly covering basic principles of statistical estimation theory, an essential tool required in various steps in the implementation of autonomous systems. The book also includes technical details of the navigation systems along with their (   Читать дальше...   )Жанр: Unmanned System TechnologiesЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CE22F8E567C7496C01D4365D358BD4ABAB1F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850264   (1054145) от 27.01.2026
+
+Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054145.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849396   (1054080) от 04.02.2026
 
 Технические нормы и правила (обновления) [01.01.2026] (2026) [HTML]
@@ -575,111 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44E43325F367156979E46D681CCBACA8EFE0E1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619101   (1032708) от 17.03.2023
-
-Л.М. Фолкенберри  | Применения операционных усилителей и линейных ИС (1985) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного американского специалиста рассмотрены методы построения и расчета электронных устройств с применением интегральных микросхем (ИМС) операционных усилителей, линейных и импульсных стабилизаторов напряжения, преобразователей данных, а также токоразностных и измерительных усилителей. Содержится много практических примеров создания таких устройств. (   Читать дальше...   )Жанр: Учебная литература, радиоэлектроникаПеревод: Пер. с англ. - М.: Мир, 1985Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27AE4BC0DF8BECC119BB067D3038DD0FEADCA40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619282   (1032705) от 17.03.2023
-
-Е.А. Зельдин  | Децибелы (1977) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просматривая характеристики различных устройств, часто приходится сталкиваться  термином "децибел", как он используются радиоэлектронике и акустике. Почему используется именно это математическое понятие и даст прочтение этого выпуска МРБ.
-В книге формулируются понятия логарифмической единицы - децибела. Описываются способы вычисления децибел и выполнение (   Читать дальше...   )Жанр: Массовая радио  библиотека (МРБ) , радио, математикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE74AD3AF8933AF9823352167B998A66162D1A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145273   (1032630) от 17.03.2023
-
-Серия книг | "СОЛОН" - радиолюбителям [42 книг + 7 CD] (1999-2016) [PDF, DJVU] [Обновляемая]
-
->>След.
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устройство и ремонт радио и телевизионной техники. Принципы функционирования и подробное описание элементной базы. Советы мастеров и множество схем к популярным моделям (включая принципиальные). Книги для профессионалов и увлекательные книги для юных радиолюбителей.Жанр: ЭлектроникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E56307E7030E10ED0F8223D44907E2F420DCF99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447403   (1031815) от 13.02.2021
-
-Т. Ли и др. | Эксплуатация и обслуживание сетей электропередач в режиме реального времени (2019) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга последовательно знакомит с теоретическими основами и инструментами производства работ по обслуживанию  распределительных  сетей  при  бесперебойной  подаче  электроэнергии,  излагает основные  принципы  производства  работ,  процедуры  и  методы  производства  работ  для  типовых проектов,  и  обобщает  опыт  организации  производства  и  практические  организационные  меры безопасности (   Читать дальше...   )Жанр: Энергетика, электротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED8BFC37BC5535353DA8F38D56EDD0BF777C89F
 ```
 
 https://mybot314.ru/tekegram_catalog/

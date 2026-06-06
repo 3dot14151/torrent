@@ -1,3 +1,29 @@
+###  Публикация: 944752   (438202) от 08.10.2015
+
+Обои - 60 Amazing Flowers HD Wallpapers Set [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные обоиФормат: JPGРазрешение файлов: 1920x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CB0E1DE71382A3CB3B2A01B9C7FE7F06464737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945016   (438200) от 08.10.2015
 
 Обои - 60 Amazing Sports Cars HD Wallpapers 3 [JPG]
@@ -647,33 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF09BF09AD8F2B693F511EC92F67CF8324B7102D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945719   (431437) от 11.10.2015
-
-Обои - Mix 3 2560x1600 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев для рабочего стола в разрешении 2560x1600.
-Количество: 1457 шт.Формат: JPGРазрешение файлов: 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C6010FDA13E2EB68E7AB55A1AC64A785A86A25
 ```
 
 https://mybot314.ru/tekegram_catalog/

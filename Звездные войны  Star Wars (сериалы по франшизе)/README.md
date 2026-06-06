@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1871258   (1069584) от 
+###  Публикация: 1871258   (1069584) от 16.05.2026
 
 Мандалорец / The Mandalorian (2019) BDRip [AV1/1080p] (сезон 1, серии 1-8 из 8) Flarrow Films, AlexFilm, HDrezka, LostFilm, NewStudio, Jaskier, TVShows,  Ю. Сербин
 
@@ -25,7 +25,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871267   (1069583) от 
+###  Публикация: 1871267   (1069583) от 16.05.2026
 
 Мандалорец / The Mandalorian (2020) BDRip [AV1/1080p] (сезон 2, серии 1-8 из 8) Flarrow Films, AlexFilm, HDrezka, LostFilm, NewStudio, Jaskier, TVShows, Ю. Сербин
 
@@ -51,7 +51,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871274   (1069582) от 
+###  Публикация: 1871274   (1069582) от 16.05.2026
 
 Мандалорец / The Mandalorian (2023) BDRip [AV1/1080p] (сезон 3, серии 1-8 из 8) Red Head Sound, Flarrow Films, AlexFilm, LostFilm, HDrezka, TVShows
 

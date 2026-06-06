@@ -1,3 +1,177 @@
+###  Публикация: 1031265   (668599) от 03.07.2016
+
+The Pointer Sisters - Best Of The Pointer Sisters (1998) [APE|Lossless|image + .cue] <Pop, R'n'B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm So Excited
+02. Jump (For My Love)
+03. Automatic
+04. Neutron Dance(   Читать дальше...   )Жанр: Pop, R'n'B, SoulПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5778584DE032F97E2C7F563DE7420AF2480EA7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031253   (668590) от 03.07.2016
+
+Book Of Love - MMXVI-The 30th Anniversary Collection (Remastered) (2016) [FLAC|Lossless|tracks] <Synth-Pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy (2016 Remastered)
+02. Book Of Love (2016 Remastered)
+03. I Touch Roses (2016 Remastered)
+04. You Make Me Feel So Good (2016 Remastered)(   Читать дальше...   )Жанр: Synth-Pop, PopПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61239B44B885642A356364F89719EDF6B11EFFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031378   (668499) от 03.07.2016
+
+VA - Radio Italia - Summer Hits (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zucchero - Partigiano reggiano (3:00)
+02. Alessandra Amoroso - Vivere a colori (4:20)
+03. Vasco Rossi - Il blues della chitarra sola (3:07)
+04. Tiromancino - Piccoli miracoli (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BA1D1A178A5486C039544D84BDA73AE9587705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224128   (668106) от 08.05.2018
+
+West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Grease
+02.	Summer Nights
+03.	Hopelessly Devoted To You
+04.	You're The One That I Want(   Читать дальше...   )Жанр: Musical, PopПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137568   (667880) от 26.05.2017
+
+Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Is A Place On Earth (4:07)
+02. I Get Weak (4:52)
+03. World Without You (4:42)
+04. Runaway Horses (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B4EBF2ED4C5AC40DBDF82D4D8B451D0433D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537506   (667835) от 16.03.2022
+
+VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tame Impala - Eventually (5:18)
+02. Glass Animals - Heat Waves (3:58)
+03. Sean Paul - No Lie (3:41)
+04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137704   (666221) от 27.05.2017
 
 Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
@@ -573,177 +747,6 @@ VA - Absolute Dance Summer (2012) [FLAC|Lossless]<Pop, Rok, R&B>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141194   (652128) от 09.06.2017
-
-Katy Perry - Witness (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/15. Witness (4:11)
- 02/15. Hey Hey Hey (3:35)
- 03/15. Roulette (3:19)
- 04/15. Swish Swish (feat. Nicki Minaj) (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D644671AEA8EAEB4B545731ED6863B103BDDB2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678580   (651750) от 12.07.2013
-
-Dido - 3 альбома (2001-2005) [FLAC|Lossless]<Pop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_651750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Vocal, BalladФормат: track + cueПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031616   (651492) от 04.07.2016
-
-Gianni Morandi - Questa E' La Storia Da "Canzoni Stonate" A "Banane E Lampone" (1994) [FLAC|Lossless|tracks + .cue] <Italo-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canzoni Stonate (4:21)
-02. Solo All'Ultimo Piano (3:46)
-03. Come Posso Ancora Amarti (3:51)
-04. Grazie Perche (3:48)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7B85B3F1AA5445D09148C0A53BDB141510B41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031581   (651488) от 04.07.2016
-
-Al Bano - The Best Platinum Collection (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bianca Di Luna (3:32)
-02. Nel Sole (3:50)
-03. Quando Il Sole Chiude Gli Occhi (2:48)
-04. L'Oro Del Mondo (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD426CFCA3A989B354D9FCC1CFC6357C5BC10FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291971   (650605) от 27.03.2019
-
-VA - Die Grobe 4 Cd Party Box (1999) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Andrea True Connection	- More, More, More	3:28
-02.	The Troggs	- Wild Thing	2:38
-03.	Iron Butterfly	- In A Gadda Da Vida	3:00
-04.	Dave "Baby" Cortez	- Rinky Dink	2:52(   Читать дальше...   )Жанр: Rock, Funk, Soul, PopПродолжительность: 03:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8A8FAD6BAA629723DE8EF0F991D45F87E442B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291913   (648843) от 28.03.2019
-
-B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The A Train
-02. You're The Spring
-03. We've Heard The Talking Heads Talking
-04. There Is A Head(   Читать дальше...   )Жанр: Electronic, Pop, Indie PopПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A99464265331D8BFBED0B99E0BD1B9AF7BC6C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

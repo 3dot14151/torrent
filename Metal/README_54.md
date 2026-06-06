@@ -1,3 +1,32 @@
+###  Публикация: 1549374   (593308) от 07.05.2022
+
+Lord Of The Lost - The Heartbeat Of The Devil (2022) EP [MP3|320 Kbps] <Gothic Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heartbeat of the Devil (Single Version) (3:29)
+02. Judas (Lady Gaga Cover) (4:11)
+03. Children of the Damned (4:41)
+04. Wig in a Box (5:11)(   Читать дальше...   )Жанр: Gothic Metal, ElectronicПродолжительность: 00:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28056CE506B872F1F155F63C82D9F554DE1B4C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481062   (593233) от 07.05.2022
 
 Lord of the Lost - Judas (2021) 4CD, Deluxe Version [MP3|320 Kbps] <Gothic, Industrial, Symphonic Metal>
@@ -20,6 +49,35 @@ Lord of the Lost - Judas (2021) 4CD, Deluxe Version [MP3|320 Kbps] <Gothic, Indu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28FEE5CD6BB70F9ABC9D2E1916F6209A9288757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549812   (592929) от 08.05.2022
+
+W.H.I.T.E. (White) - 2 Albums + 4 Singles + 1 Compilation (2006-2021) [MP3|320 kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_592929.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Кинь тачку
+2007 - Бий першим
+2010 - Megawhite
+2017 - ПеремагайЖанр: Alternative Metal |Продолжительность: 02:35:53 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F1EF696600A7D08331610F9B517725D211CE13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,64 +747,6 @@ Judas Priest — британская хэви-метал группа, кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9959618A56067F8F707B32A4540459EAE9DB7BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918903   (584721) от 17.07.2015
-
-Powerwolf - Blessed and Possessed (2015) Deluxe Edition [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blessed & Possessed
-02. Dead Until Dark
-03. Army Of The Night
-04. Armata Strigoi(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FF4F6E9614004839E9EAEB677A03E22AB9FE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040921   (584516) от 07.08.2016
-
-Kambrium - The Elders' Realm (2016) [MP3|320 Kbps] <Symphonic Power, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyssal Streams 07:39
-02. Through Shades And Despair 07:00
-03. Conjure The Lost 04:31
-04. The Elders' Realm 04:58(   Читать дальше...   )Жанр: Symphonic Power, Melodic Death MetalПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3788D1704D7C2D04327B809B3D28F886EF0A92
 ```
 
 https://mybot314.ru/tekegram_catalog/

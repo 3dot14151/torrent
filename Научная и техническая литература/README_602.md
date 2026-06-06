@@ -1,23 +1,75 @@
-###  Публикация: 1822625   (100907) от 07.10.2025
+###  Публикация: 1725720   (108964) от 25.05.2024
 
-А.Г. Воробьева | Учебник церковнославянского языка (2008) [PDF, DJVU]
+Sandra N. Elbaum | Grammar in Context 3 (2015) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108964.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Sixth Edition of the best-selling Grammar in Context series, inspires learners through compelling stories, National Geographic images, and content, relevant to students' lives. Students learn more, remember more, and use language more effectively when they learn grammar in context.
+Sandra N. Elbaum was an ESL Instructor at Truman College, one of the City Colleges (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Heinle ELTФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726036   (108830) от 27.05.2024
+
+С. Бенсон | Термохимическая кинетика (1971) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного американского кинетика С. Бенсона посвящена проблемам, лежащим в пограничной области между химической кинетикой и термохимией, - направлению, интенсивно развивающемуся как в нашей стране, так и за рубежом. В книге рассматривается разработанный автором новый оригинальный метод, позволяющий рассчитывать кинетические параметры элементарных химических (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD3CB647C5ECC14475A5DA50028F6BA39EC0755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725888   (108829) от 27.05.2024
+
+Diane Larsen-Freeman, Marti Anderson | Techniques and Principles in Language Teaching (2011) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник предназначается для студентов православных высших и средних духовных учебных заведений, в том числе для заочников, а также может служить удобным пособием всем желающим изучать церковнославянский язык самостоятельно.
-Среди учебных текстов — утренние и вечерние молитвы, псалмы, входящие в состав церковных служб, полностью Евангелие от Матфея, канон и акафист (   Читать дальше...   )Жанр: Учебное пособие, лингвистика, самоучитель, изучение церковнославянского языкаИздательство: Православный Свято-Тихоновский гуманитарный университетФормат: PDF, DJVUКачество: Обработанный скан
+This is an third edition of our popular introduction to language teaching methodology, which describes different methods and approaches in language teaching. Clear and jargon-free, it provides practical step-by-step guidance for new teachers, and introduces more experienced teachers to new approaches and teaching ideas. Includes a new chapter on the use of digital (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B62488F1A637FC971E9E7D463E772D1E68C0B275
+magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +77,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822427   (100719) от 06.10.2025
+###  Публикация: 1726399   (108770) от 28.05.2024
 
-Евгений Спицын | Сборник книг. Советская держава в 1945-1991 годах. [7] (2019-2025) [FB2]
+Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
 
 >>Научная и техническая литература
->>Историческая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перед вами плод многолетних трудов известного писателя, посвященный истории СССР 1945 - 1985 гг. В нашей историографии, уже давно закрепилось несколько названий той эпохи, в том числе предельно лживые штампы как «хрущёвская слякоть», «брежневский застой», созданный архитекторами и прорабами горбачёвской перестройки. Автор мастерски и беспристрастно на основе архивного (   Читать дальше...   )Жанр: История, Биография, ПублицистикаИздательство: КонцептуалФормат: FB2Качество: Изначально электронное (ebook)
+This book contains not only questions but also activities including, role-plays, board games, discussions and much more designed to get your students speaking effortlessly. Lessons are best suited to lower intermediate to advance level learners. Features:
+Instant lessons. Print and go type lessons inside.
+Easy to follow lessons.
+Online access- FREE Downloadable worksheets (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CreateSpace Independent Publishing PlatformФормат: EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC635B6AB766D35C8DCD9FB552920D3BCD5F53C5
+magnet:?xt=urn:btih:940E9536FAA056F260E75F1E5E103DD034DF2C83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,26 +106,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769812   (100587) от 30.12.2024
+###  Публикация: 1726359   (108765) от 28.05.2024
 
-Ф. Гутман, Л. Лайонс | Органические полупроводники (1970) [DJVU]
+John Hughes | ETpedia: 1,000 Ideas for English Language Teachers (2017) [PDF] [EN]
 
 >>Научная и техническая литература
->>Техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемая вниманию читателей книга известных австралийских ученых Ф. Гутмана и Л. Лайонса является первым зарубежным изданием, в котором собраны и обработаны результаты исследований органических полупроводников, выполненных в нескольких тысячах оригинальных работ.
-В книге большое внимание уделено различным теоретическим подходам к изучению физики органических (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+ETpedia is an essential resource for those who teach English as a second or foreign language. It provides novice teachers and those who are in the early years of their careers with 1,000 creative tips, techniques, questions, thoughts and ideas on common teaching and classroom issues.
+Each section covers a different aspect of teaching and offers a selection of 10 (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Pavilion PublishingФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED1007E8166FEE9B5820041A3A978C4FEFC98974
+magnet:?xt=urn:btih:C9C036D1F5055520696401D55BC33976D21B59BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,26 +133,434 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769819   (100578) от 30.12.2024
+###  Публикация: 1726340   (108762) от 28.05.2024
 
-Ч. Киттель | Статистическая термодинамика (1977) [DJVU]
+Andrew William | ESL Classroom Games: 180 Educational Games and Activities for Teaching ESL/EFL Students (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108762.jpg" />
+</div>
+
+
+###  Подробнее
+
+The book features a wide variety of reading, writing, speaking and listening games and activities which are suitable for teen and adult learners alike. With focus on warm-up, repetition and drilling, team-based, spelling and grammar, speaking and pronunciation, memory and concentration, turn-based and one-on-one games. It's broken down into games for beginner, intermediate (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CreateSpace Independent Publishing PlatformФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5997703CF08B402DED99BA614728EE10A4947FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726972   (108635) от 31.05.2024
+
+Pamela J. Sharpe | Barron's TOEFL iBT. Fourteenth edition (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108635.jpg" />
+</div>
+
+
+###  Подробнее
+
+The most up-to-date test prep manual on the market, Barron's TOEFL iBT is available as a book only, but can also be purchased with several additional test preparation tools. The manual presents:
+A general overview of the TOEFL iBT
+Seven model TOEFL iBT tests with explanations or examples for all questions
+A review of required academic skills, including note taking, (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Barron's Educational SeriesФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4CE4EDBC9A53D701FBDC365BA105A32D95818E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726962   (108632) от 31.05.2024
+
+Rod Ellis | Understanding Second Language Acquisition (2015) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108632.jpg" />
+</div>
+
+
+###  Подробнее
+
+The book reflects recent trends in looking at cognitive and social aspects of second language acquisition, as well as examining the roles played by implicit and explicit instruction in language learning.
+Additional online resources are available at www.oup.com/elt/teacher/understandingsla
+Rod Ellis is the Distinguished Professor of Applied Language Studies in the (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28494274DC632D6D0D9CFE4B3CF32AB197E0EE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727194   (108598) от 01.06.2024
+
+Ed Swick | English Problem Solver (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108598.jpg" />
+</div>
+
+
+###  Подробнее
+
+English Problem Solver doesn't pretend that learning English is easy. Instead of covering the entirety of the language, it hones in on those areas where you might have difficulty--areas such as definite vs. indefinite articles, little vs. few, using get, and restrictive and non-restrictive relative clauses.
+Inside...
+A variety of extensive exercises for practice. (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: McGraw-Hill EducationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3269CCD1501EE290515AEE6EE2A306C10D55D4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727532   (108511) от 02.06.2024
+
+Brian Tomlinson (editor) | Materials Development in Language Teaching. Second Edition (2011) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Materials Development in Language Teaching aims to help readers apply current theoretical principles and research findings to the practical realities of developing and exploiting classroom materials. The authors also suggest new ideas and directions in materials development, which readers can pursue for themselves. This book is accessible to readers with little previous (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34CDA85EA06E8ED262157C6E1716ACAB1235E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727630   (108453) от 03.06.2024
+
+Adrian Wallwork | Word Games, Riddles and Logic Tests (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tax Your Brain and Boost Your English
+This book contains exercises connected with some of the fun or more unusual aspects of the English languageand with games that typically a native English speaker would do. The games have been adapted into a manageable format, but the actual vocabulary contained has not been changed.
+The types of games include: lateral thinking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C80478D7D798F2CB850E7FA06492F755F5B989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727641   (108433) от 03.06.2024
+
+Larry Ferlazzo, Katie Hull-Sypniesk | The ESL / ELL Teacher's Survival Guide (2012) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ready-to-Use Strategies, Tools, and Activities for Teaching English Language Learners
+Provides research-based instructional techniques which have proven effective with English learners at all proficiency levels
+Offers thematic units complete with reproducible forms and worksheets, sample lesson plans, and sample student assignments
+The book?s ESL lessons connect (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Jossey-BassФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FF2ACD96DAF3806705AB0DD56054432CD05927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728452   (108352) от 07.06.2024
+
+James Dean Brown, Christine Coombe (еditors) | The Cambridge Guide to Research in Language Teaching and Learning (2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108352.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book provides an up-to-date and comprehensive overview of research methods in second-language teaching and learning, from experts in the field. The Cambridge Guide to Research in Language Teaching and Learning covers 36 core areas of second-language research, organised into four main sections Primary Considerations; Getting Ready; Doing the Research; Research (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D808CCCB3B9D44057E97A02FBEB2A78076C06AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729704   (108067) от 12.06.2024
+
+Mike Thacker, Casimir Angelo | Essential French Grammar (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Essential French Grammar is a student-friendly French grammar designed to give learners a firm foundation on which to build a real understanding of both spoken and written French.
+Clear explanations of grammar are supported by contemporary examples, lively cartoon drawings and a variety of exercises.
+Key features of each chapter:
+each grammar point explained initially (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A973F47F99FB5E20C9DE3A8D886A0B0F4973E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729738   (108066) от 12.06.2024
+
+Yeşim Aksan, Mustafa Aksan | A Frequency Dictionary of Turkish (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108066.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Frequency Dictionary of Turkish enables students of all levels to build on their study of Turkish in an efficient and engaging way.
+Based on a 50 million word corpus, A Frequency Dictionary of Turkish provides a list of core vocabulary for learners of Turkish as a second or foreign language. It gives the most updated, reliable frequency guidelines for common vocabulary (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B95ABC190F94F0BAED47B2AD55EA85FF6E8432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731597   (107721) от 21.06.2024
+
+Mitsuko Maeda-nye, Shizuro Okada | 15-Minute Japanese. Learn in just 12 weeks (2019) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twelve themed chapters are broken down into easy-to-follow 15-minute daily lessons, spanning a range of practical themes, including leisure, business, food and drink, travel, and shopping. Each lesson combines vocabulary and grammar essentials with attractive full-color images, making it quick, easy, and fun to learn new Japanese vocabulary. There is no writing or (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C988787514623B1C1B80DA029EC07E5924FAA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732160   (107572) от 23.06.2024
+
+И.И. Привалов | Интегральные уравнения (1935) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга представляет собой систематический курс теории интегральных уравнений, в котором особое внимание уделено теории и подробно развиты применения к краевым задачам математической физики. Этот курс будет полезным руководством для физико-метематических факультетов университетов, а также полезным пособием для лиц смежных специальностей, желающих познакомиться (   Читать дальше...   )Жанр: МатематикаИздательство: Объединённое научно-техническое издательство НКТП СССРФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D172A7222026C2803BF2968A0FEA8F430D8EB575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732140   (107568) от 23.06.2024
+
+К. Поссе, И. Привалов | Курс интегрального исчисления (1939) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107568.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании мною произведена коренная переработка курса интегрального исчисления проф. К. Поссе. Эта книга содержит полный курс интегрального исчисления и включает в объеме, необходимом для втузов, разделы диференциальных уравнений и рядов Фурье. В изложение всего материала книги я внес существенные изменения, причем значительная часть текста написана мною (   Читать дальше...   )Жанр: МатематикаИздательство: ГостехиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E72557700981B153A42D8F0EDB9FCC2DC6A1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732106   (107567) от 23.06.2024
+
+К. Поссе | Курс дифференциального исчисления (1935) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник Поссе предназначается Комитетом по высшему техническому образованию в качестве стабильного для втузов с расширенной программой по математике. Он выходит в переработке профессора МГУ И.И.Привалова.
+Книга снабжена большим количеством упражнений.Жанр: МатематикаИздательство: Объединённое научно-техническое издательство НКТП СССРФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6EC597507A6A8C582BDC8A3BC45CD1F788B16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732179   (107562) от 23.06.2024
+
+Anita Ganeri | Amazing Earth (2021) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Award-winning children's author Anita Ganeri takes curious kids who love learning to the most incredible locations in the world. This science book for kids includes breathtaking images and mind-blowing facts about our majestic home - Earth. Turn the pages to discover natural wonders, stunning vistas and other jaw-dropping places from around the world.
+The Most Incredible (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A423C3B507DDBA37BE34CF92D379A937877DA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734805   (107061) от 05.07.2024
+
+Д.М. Блейкли | Поверхностная диффузия (1965) [PDF]
 
 >>Научная и техническая литература
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В предлагаемой книге, посвященной статистической физике и термодинамике, особое значение имеет общая методическая идея автора в построении ставшего, казалось бы, уже традиционным курса, посвященного физике тепловых явлений.
-Основная цель книги состоит в том, чтобы последовательно изложить основные положения современной физической статистики и ряд ее применений для (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+Настоящий обзор, написанный одни из исследователей в этой области Д.М. Блейкли, содержит наиболее доступный для наблюдения случай поверхностной диффузии в однокомпонентных системах, то есть поверхностной самодиффузии.
+Рассмотрены не только основные экспериментальны методы, но и состояние теории вопроса.Жанр: ФизикаИздательство: МеталлургияФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16F524D2C1F60FF2BD0BD55C1BFD6310706198A0
+magnet:?xt=urn:btih:C7764BEC3E1C21192888ED7684E468C4C3BC1CA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +568,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769815   (100572) от 30.12.2024
+###  Публикация: 1735008   (107034) от 06.07.2024
 
-Ч. Киттель | Введение в физику твёрдого тела (1978) [DJVU]
+П. Джурс, Т. Айзенауэр | Распознавание образов в химии (1977) [PDF]
 
 >>Научная и техническая литература
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящая книга содержит элементарное изложение основных разделов физики твердого тела. Она написана в качестве учебника физики твердого тела и материаловедения для студентов старших курсов естественнонаучных и инженерных факультетов и для начинающих самостоятельную работу специалистов. Необходимым фундаментом книги является курс современной атомной физики.Жанр: ФизикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+Книга посвящена применению кибернетических методов классификации объектов при помощи ЭВМ для анализа данных химического эксперимента. Эта монография - первая по автоматизации обработки данных научных исследований в области химического анализа как отечественной, так и в переводной литературе. Используются данные распространенных аналитических методов: масс-спектрометрии (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F1505D3D7324F37A3FD58CA0DCD90DD968C14D0
+magnet:?xt=urn:btih:7CB91F389A0B7C1D52FCA2002EB2476CF252CDCB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,26 +594,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769811   (100571) от 30.12.2024
+###  Публикация: 1735019   (107032) от 06.07.2024
 
-К.Н. Паффенгольц (отв. ред.) | Геологический словарь [2 тома] (1973) [PDF]
+Э. Стьюпер, У. Брюггер, П. Джурс | Машинный анализ связи химической структуры и биологической активности (1982) [PDF]
 
 >>Научная и техническая литература
->>Энциклопедии и словари
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящий словарь значительно переработан и содержит более 21 тыс. терминов. Однако в него не включены давно вышедшие из употребления геологические термины конца прошлого и начала текущего столетий.
-Некоторые разделы словаря сокращены в связи с выводом в свет специальных словарей или справочников. Другие разделы вследствие быстрого развития за последние годы многих (   Читать дальше...   )Жанр: эниклопедический словарьИздательство: НедраФормат: PDFКачество: Обработанный скан + OCR
+Книгу, написанную авторами из США, отличает актуальность темы (связь между химической структурой и биологической активностью), а также перспективность излагаемого метода (распознование образов) и средств его реализации (ЭВМ). В ней изложены принципы распознавания образов. На примере психтропных и снотворных агентов, одорантов и раздражителей носовой полости убедительно (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD1F475FFD8CA315642D508A414FF7284793D4C6
+magnet:?xt=urn:btih:E0B29710ABE55813C48480835E5D8119CB642365
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,26 +620,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769814   (100566) от 30.12.2024
+###  Публикация: 1735752   (106870) от 09.07.2024
 
-Ю.Н. Ильин (ред.) | Локомотивы СССР. Альбом-справочник. [2 части] (1964) [DJVU]
+В.И. Смирнов | Технология интегральных микросхем (2023) [PDF]
 
 >>Научная и техническая литература
->>Техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Альбом "Локомотивы СССР", выпускаемый ВНИТИ, является справочным пособием, в котором обобщены основные характеристики отечественных электровозов (ч.I), тепловозов (ч.I и II) и газотурбовозов (ч.II).
-В первую часть альбома включены характеристики магистральных электровозов ВЛ80, ВЛ60, ВЛ10, ВЛ8, маневрового электровоза ВЛ41 и тепловозов 2ТЭ10, 2ТЭ10Л, ТЭ10, (   Читать дальше...   )Жанр: история техникиИздательство: ВНИТИФормат: DJVUКачество: Обработанный скан
+Изложены вопросы технологии производства интегральных микросхем. Основное внимание уделено вопросам формирования структуры полупроводниковых микросхем. Рассмотрена технология получения тонких пленок в гибридных интегральных схемах.Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05A212B692269E935FEE6C18A312AEDBEA0587E8
+magnet:?xt=urn:btih:74F7D4C827619053D558D027300CDE0E00A11720
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,26 +646,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770186   (100565) от 30.12.2024
+###  Публикация: 1736690   (106652) от 13.07.2024
 
-Л.И. Гумилевский | История локомотива (1937) [PDF]
+О.С. Ушакова (редактор) | Развитие речи детей 5-7 лет (2012) [PDF]
 
 >>Научная и техническая литература
->>Техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сто тридцать три года тому назад появился в Англии первый паровоз. Сто два года назад впервые построен паровоз в Америке. Ровно сто лет тому назад началось железнодорожное сообщение в России. Знаменательная дата! Громадный путь прошел в своем развитии локомотив за истекшее столетие. Этот путь освещен в книге Л. И. Гумилевского.
-Читатель найдет здесь рассказ (   Читать дальше...   )Жанр: история техникиИздательство: ОНТИ. Главная редакция научно-популярной и юношеской литературыФормат: PDFКачество: Обработанный скан + OCR
+Книга посвящена вопросам развития речи детей дошкольного возраста старшей и подготовительной к школе групп. Предлагаются методические рекомендации по организации образовательной деятельности. Рассмотрены возрастные особенности развития речи детей 5-7 лет. Вводная часть знакомит с теоретическими основами программы и методики.
+В пособии дается материал для занятий, (   Читать дальше...   )Жанр: учебное, методическое пособиеИздательство: Москва: СфераФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC90642C70B1AA1B98776583C63BD61A8A73A31E
+magnet:?xt=urn:btih:F0D9D99321E50D6EF1AEAF6C6E63691ED50BE671
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,469 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 486320   (100233) от 22.04.2012
+###  Публикация: 1738007   (106477) от 20.07.2024
 
-Григорий Кириллов | Подводный разведчик [1957] [PDF]
+Джон Г. Мэтьюз, Куртис Д. Финк | Численные методы. Использование MATLAB (2001) [DJVU]
 
 >>Научная и техническая литература
->>Военная литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга "Подводный разведчик" содержит ряд рассказов, повествующих о героизме подводников во время Великой Отечественной войны 1941–1945 годов.1957Жанр: Военно-историческийФормат: PDF
+В данной книге, ориентированной на пакет MATLAB, изложены основные методы численного анализа: численные решения нелинейных уравнений, систем линейных уравнений, дифференциальных уравнений и т. д. Все методы иллюстрируются примерами, в которых используютсяпрограммы из пакета MATLAB. Книга также содержит приложение, которое знакомит читателя с основными принципами (   Читать дальше...   )Жанр: МатематикаИздательство: ВильямсФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3134C6B53B117128FB94AF26935BEDBDA4784E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482919   (99659) от 14.04.2012
-
-Алексей Харузин | Славянское жилище в Северо-Западном крае [1907] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд «Славянское жилище в Северо-Западном крае» Алексея Николаевича Харузина (1864 — 8 мая 1932), русского этнографа и антрополога, государственного деятеля, основан на шестилетних «личных наблюдениях над жилищами белорусов, великороссов, малороссов и поляков в губерниях: Виленской, Ковенской, Гродненской, Витебской, Могилевской и Минской, а равно в разных великоросских (   Читать дальше...   )Жанр: Этнография, история, раритетФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5871EB358012E8A29816463FB5F94E4F941DA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479357   (98959) от 07.04.2012
-
-Евдокимъ Зябловскiй | География Российской Империи [1837] [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евдоким Филиппович Зябловский (1763 - 1846) - русский профессор статистики, воспитанник Севской духовной семинарии и учительской гимназии в Санкт-Петербурге, в 1788 был отправлен на службу учителем Народного училища в Колывань, откуда на собственные скудные средства разъезжал по разным местам Колыванского наместничества и составил их описание. В 1797 Зябловский был (   Читать дальше...   )Жанр: История, раритеты, учебная литература, географияЯзык: Русский (старая орфография)Издательство: Россiйская Имперiя, С.Петербургъ, типографія Министерства Внутреннихъ ДелъФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3292C904EEC8D99DE639FA5CA10BD50DD654527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478159   (98614) от 04.04.2012
-
-В. Курносов | Царское золото [2011] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98614.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге содержится информация о 17815,147 кг золота. Эти тонны исчезли из хранилища Казанского отделения Народного банка России в августе 1918 года. Ценности до сих пор не обнаружены. В МВД существует оперативно-розыскное дело «Золотое руно»; часть информации на эту тему хранится под грифом «совершенно секретно». В настоящее время к поиску царского золота подключились и кладоискатели. Автор впервые приводит данные двух рассекреченных фондов Национального архива Татарстана. Исторический контекст событий, развернувшихся одновременно с работами по эвакуации золотого запаса, воспроизводится на основе мемуаров и трудов историков.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B8E2E7831F312603D95EB7001356DD39D10FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475351   (98112) от 30.03.2012
-
-Н.И. Яковкина | История русской культуры. XIX век [2002] [RTF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена наиболее яркому и плодотворному периоду культурной жизни России - XIX веку, освещает развитие образования, литературы, изобразительного искусства, театра. Особое место в изложении уделяется Петербургу, как крупнейшему культурному центру того времени.2002Формат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932C344E1CF7201CB9F06DEDC95CF30D97DBCF4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475360   (98053) от 30.03.2012
-
-Ю.М. Ключников | Лики русской культуры [2010] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного поэта, публициста, философа, путешественника, автора десяти книг стихов и прозы Юрия Ключникова «Лики русской культуры» представляет собой сборник статей, эссе, очерков, посвященных выдающимся русским писателям, поэтам, музыкантам, ученым, полководцам. Перед взором читателя встают образы и творческие судьбы2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51285048883AC79F6AEAEC7EB1110D7DB99204C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475336   (98004) от 29.03.2012
-
-В.А.Вахрушев | Камень. Человек. Время. [1991] [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга знакомит читателей с необычайно многообразным миром камня, раскрывает его роль в материальной и духовной жизни человека, начиная с древнекаменного века до текущих дней. Особое внимание уделено поделочным и ювелирным камням, их волшебной красоте, издревле вдохновляющих человека-творца на создание высоких произведений человеческой мысли.1991Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783C5D5250B19ECF9A8587959864B78EC4CD797B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473361   (97712) от 25.03.2012
-
-Александр Больных | XX век танков [2009] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги убедительно доказывает, что полноценные, по-настоящему эффективные ТАНКОВЫЕ ВОЙСКА удалось создать лишь трем государствам - Германии, Советскому Союзу и Израилю. Только эти страны, пройдя долгий путь кровавых проб и ошибок, смогли разработать и успешно применить на практике теорию ВОЙНЫ ТАНКОВ. Ни одно другое государство, даже обладающее значительным танковым парком - ни Франция, ни Британия, ни США, - даже не приблизилось к уровню лидеров.
-Особый интерес представляет последняя глава книги, в которой автор моделирует несостоявшийся конфликт между СССР и НАТО, наглядно демонстрируя, что, вопреки американским прогнозам, на европейском театре военных действий у Запада фактически не было шансов устоять против советской танковой мощи.2009Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324EE763E5BF4F453D402C75FA9E1E1E24C78F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473482   (97671) от 25.03.2012
-
-Р. Халхатов | Величайшая подводная битва. "Волчьи стаи" в бою [2010] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Битва за Атлантику, продолжалась в общей сложности более пяти лет и унесла жизни десятков тысяч моряков. Впервые подлодки решали стратегические задачи, впервые от их победы или поражения зависела судьба войны - Черчилль впоследствии признавался, что немецкие субмарины почти поставили Британскую империю на колени. Однако, несмотря на непревзойденное боевое мастерство, отвагу и беспощадность Rudeltaktik (тактики «волчьих стай»), не подводники Кригсмарине, а противолодочные силы Союзников вышли из этой схватки победителями.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B9E8FA0E9E3DF58351321C171F4B8B75EFF05D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472239   (97549) от 23.03.2012
-
-О.С. Смыслов | Накануне 1941 года. Гитлер идет на Россию [2007] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный историк и писатель О.С.Смыслов постарался дать исчерпывающие ответы на многие вопросы, в том числе и на те, о которых так много говорят в последнее время. Например, кто развязал Вторую мировую войну? Кто помог Гитлеру прийти к власти? Почему Советский Союз заключил договор о ненападении с фашистской Германией?
-А что было бы, если бы ему удалось завоевать Советский Союз? Хотя история не терпит сослагательного наклонения, тем не менее такая возможность у гитлеровцев имелась. Остаточные явления фашистской чумы XX столетия, вновь начинающие прогрессировать в XXI веке, должны быть наконец уничтожены навсегда.2007Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EFC6C15079328613556B2DF759B0124199B92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469835   (97142) от 18.03.2012
-
-Матерiалы для исторiи русскаго флота (1865-1904) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материалы для истории русского флота — многотомное издание документов, журналов, официальной и частной переписки, относящихся к деятельности русского флота с 1702 по 1801 годы. Всего с 1867 по 1904 год было издано 17 томов «Материалов...». Общий объём издания составил 12 000 листов in quarto, которые и предлагаются в раздаче. Инициатива создания этого собрания принадлежала (   Читать дальше...   )Жанр: История, военная история, энциклопедии, раритетФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2A561368674A4F05E6E9477DB1E0BEEF8722D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469239   (97036) от 17.03.2012
-
-О.Бровченко | "Человек, Природа, Вселенная" №1. 2012г [2012] [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97036.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВСЕ самое содержательное и  интересное  из мира Природы  и Человека, науки и технологий, истории и искусства.  Природные аномалии, вопросы мироздания и мировоззрений, НЛО и головокружительные версии ученных, а также,  невероятные изобретения из мира технологий, увлекательные путешествия по странам и континентам, полет творческой фантазии человека  и многое другое,  на 1753х страницах  уникального сборника  "Человек, Природа, Вселенная". Он создан для тех, кому отсутствие времени на поиск информации не повод пропускать самые значимые и интересные события в мире.  Вся материалы разбиты на  темы, а меню навигации делает доступ к интересующей публикации практически мгновенным.  И как всегда,  в данный выпуск вошли самые свежие и  лучшие материалы электронных СМИ  за январь, февраль и частично за март месяц.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960DF44D4171CE1CBC257B3852C5DBB62FEDDAE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468820   (96813) от 16.03.2012
-
-А.Е. Тарас | История торпедных катеров XIX - XX вв [2005] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Класс торпедных катеров зародился во второй половине XIX в. и существовал до конца 90-х годов XX в. В книге подробно изложена история появления и технической эволюции этого класса малых боевых кораблей. В ней приведены сведения о всех типах экспериментальных и серийных торпедных катеров, построенных в разных странах мира в течении более чем 120 лет. Они отображены на многочисленных иллюстрациях (фотографиях, проекциях, схемах) в большинстве своем не известных широкой аудитории. По степени охвата тематики книга не имеет аналогов, как на русском, так и на других языках.2005Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904F94D5196412D1A4A2F54822CC7A40531D4A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464903   (96127) от 09.03.2012
-
-Андрей Харук | Артиллерия Вермахта [2010] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96127.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге впервые представлена исчерпывающая информация об артиллерии Вермахта и войск СС - полевой, пехотной (включая минометы), горной, реактивной, противотанковой, зенитной, как буксируемых систем, так и самоходных установок, - всесторонне рассмотрены особенности ее организации, тактики и боевого применения.2010Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F121CE19B8076DFD7C6F424008B1E6B49F95CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463537   (95826) от 06.03.2012
-
-Бруно Винцер | Солдат трех армий (2010) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_95826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мемуары немецкого офицера, в которых автор рассказывает о своей службе в рейхсвере, гитлеровском вермахте и бундесвере. В 1960 году Бруно Винцер, штабс-офицер бундесвера, тайно покинул Западную Германию и перешел на территорию Германской Демократической Республики, где издал эту книгу - историю своей жизни.Жанр: МемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0F48F8C3957CC56616623A8CF9219D18F0B164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462564   (95787) от 06.03.2012
-
-Г.Маркова | Серебряные фигурные сосуды XVI-XVII вв [1978] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_95787.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Оружейной палате Московского кремля хранится крупнейшая в мире коллекция изделий западноевропейских серебряников XVI-XVII веков. Существенную часть собрания составляют фигурные сосуды. Это кубки, рукомойные кувшины, сосуды для питья в виде птиц, животных и человеческих фигур.1978Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3813F394F70E162BA2B6A91575D0E24424BD7BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462544   (95764) от 06.03.2012
-
-C. Васильев | Александровская слобода [1971] [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_95764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александровская слобода. Памятники архитектуры XVI – XVII вв.   Расположенная на высоком берегу речки Серой, на половине пути между Троице-Сергиевым монастырем и Переславлем-Залесским, была резиденцией Ивана Грозного.  Судя по сохранившимся описаниям, царская резиденция была настоящей крепостью. В начале XVII века Александровская слобода была  ареной сражений между русскими и поляками. В настоящее время Александровская слобода стала архитектурным заповедником.1971Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50AACB9B6916578F5E2766A808FDA216B00A0802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462661   (95720) от 05.03.2012
-
-Григорий Раковский | Конец Белых. От Днепра до Босфора. (1921) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_95720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раковский Григорий Николаевич - журналист, военный корреспондент, переживший Гражданскую войну на Юге России вместе с Белой армией. Очевидец и непосредственного участник описываемых событий рассказывает о попытке генерала Врангеля воссоздать белую армию в Крыму сразу после разгрома Деникина. Крымский этап эпопеи белого движения во многом напоминает деникинский: и (   Читать дальше...   )Жанр: Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8B3AA855AC665F4548F48A0269B9BBAC7EDA54
+magnet:?xt=urn:btih:AD458E0EA1119A94FCE632D0F21D2BAE2938BFD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

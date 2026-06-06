@@ -1,3 +1,119 @@
+###  Публикация: 1757159   (39168) от 26.10.2024
+
+Gazebo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunatic
+02. Masterpiece
+03. I Like Chopin
+04. Telephone Mama(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C99C0B99A028D39C0F1BA1B13EBEFEA924504F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757512   (39092) от 27.10.2024
+
+VA - HITS WE ALL KNOW (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Locked out of Heaven (3:53)
+02. Icona Pop - I Love It (2:34)
+03. Roxette - The Look (3:57)
+04. Coldplay - Viva La Vida (4:02)(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A73497C95D3A67BC857F6F96F5608C15F52DF46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757783   (38922) от 29.10.2024
+
+Pupo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Su di noi
+02. Gelato al cioccolato
+03. Come sel bella
+04. Ciao(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949F67BC31570148941229D12CEC57B4483B49B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760724   (37064) от 16.11.2024
+
+VA - Sex Music 2024 [MP3|320 Kbps] <Pop, RnB, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaniLeigh - Tasty (2:30)
+02. Two Feet - I Feel Like I'm Drowning (3:05)
+03. Jujuboy - James Bond (2:22)
+04. Muni Long - Made For Me (3:08)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 03:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B991134DAD4EE75A0DFFC828F9789C4DD10AAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761484   (36703) от 20.11.2024
 
 Bee Gees - 3 Albums (2020-2023) [MP3|320 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - Top 50 Achtziger Hits (2025) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848CD94E943706FFDCC647048D24CD55864BA605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776244   (29125) от 31.01.2025
-
-Secret Service - When The Night Closes In (1985) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night City
-02. Let Us Dance Just A Little Bit More
-03. Special Songs
-04. Do You Remember(   Читать дальше...   )Жанр: Electronic, Pop, Synth-pop, New WaveПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881DA0B66B7E4686AB49F38A9C4EF5B58B9614EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778982   (27938) от 11.02.2025
-
-VA - Billboard Top Hits 1975 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America - Sister Golden Hair
-02. Elton John - Island Girl
-03. Captain & Tennille - Love Will Keep Us Together
-04. Linda Ronstadt - When Will I Be Loved(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, Pop RockПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6675033C5BB4741597E6FAED95BC60C19D13B768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779063   (27935) от 11.02.2025
-
-VA - Billboard Top Hits 1976 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John And Kiki Dee - Don't Go Breaking My Heart
-02. Gary Wright - Dream Weaver
-03. Miracles - Love Machine
-04. Bellamy Brothers - Let Your Love Flow(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9EBCE8BA3E2161FDB510C23E7A75EEB423D8F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779513   (27301) от 17.02.2025
-
-VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blondie - Heart Of Glass
-02. Knack - My Sharona
-03. Randy Vanwarmer - Just When I Needed You Most
-04. Rupert Holmes - Escape (The Pina Colada Song)(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C2FF1F91F0D428FE80F0F4A47F95C934A330D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1443917   (1034899) от 31.01.2021
+
+Jef Martens - Building A Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Lives In My Dreams (1:34)
+ 02. When We're On The Mountain (2:28)
+ 03. How She Speaks Of The Sea (1:30)
+ 04. Her Castle is Magnificent (1:10)(   Читать дальше...   )Жанр: Modern Classical, Solo PianoПродолжительность: 00:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80419808910DF6A73DC5C7DE8F8D05A9895FD618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446721   (1032504) от 10.02.2021
+
+Autumn Tears - The Air Below The Water (2020) 2xCD [FLAC|Lossless|image + .cue] <NeoClassical, Darkwave>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032504.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Calling (Instrumental)
+02. Sentient Idols
+03. Dreaming Deeper(   Читать дальше...   )Жанр: NeoClassical, DarkwaveПродолжительность: 01:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DB29C0AFBBE688C6408BE84756B6A00B0D6C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446909   (1032263) от 11.02.2021
 
 VA - Winter Mood - Sweet Melancholic Piano Music for a Winter Snowy Day (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -691,64 +749,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8F1C40D2E9B7356747D616572D28BC34B8A44DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467219   (1017724) от 04.05.2021
-
-Vivaldi · Tartini · Boccherini - Cellokonzerte - Cello Concertos (1978) 1989,  Deutsche Grammophon ‎; Серия: Galleria [FLAC|Lossless|image + .cue] <Baroque, Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto No. 2 D-dur
-1 Allegro 6:43
-2 Adagio 5:09
-3 Allegro 4:48(   Читать дальше...   )Жанр: Baroque, ClassicalПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BC1C958B3EA0AE74B7B6F5F8B8810807941E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467680   (1017559) от 05.05.2021
-
-Marais - Dialogues: Pieces en re mineur Livre I & Pieces en sol majeur Livre I (2015) [FLAC|Lossless|image + .cue] <Classical chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pièces En Ré Mineur (11:48)
-1 Prélude 2:14
-2 La Folette 1:28
-3 Sarabande 3:11(   Читать дальше...   )Жанр: Classical chamberПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98079315A74AFCBDC3BCD6579D93EDEEF0C4CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

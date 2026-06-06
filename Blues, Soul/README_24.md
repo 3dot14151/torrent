@@ -1,3 +1,61 @@
+###  Публикация: 936439   (496157) от 11.09.2015
+
+David Gogo - Vicksburg Call (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuts Me To The Bone (03:17)
+02. Fooling Myself (04:10)
+03. The Loner (03:53)
+04. There's A Hole (03:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D55DE19DDC022F6EDCBC21D687362A26491F458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243064   (495579) от 25.08.2018
+
+Blues Saraceno & Nineoneone - Wicked Gonna Come (2018) EP [MP3|320 Kbps] <Blues Rock, Garage Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wicked Gonna Come (03:29)
+02. Evil Got a Hold on Me (03:11)
+03. Good Man Down (03:50)
+04. The Devil Never Sleeps (03:12)(   Читать дальше...   )Жанр: Blues Rock, Garage RockПродолжительность: 00:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893D74F7BC4F8B8704F752FBDA7FDABD30F67D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404047   (495182) от 24.08.2020
 
 Blues Pills - Holy Moly! (2020) [MP3|320 Kbps] <Blues Rock>
@@ -687,64 +745,6 @@ Sari Schorr - A Force Of Nature (2016) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2612D3DD85197DA8CC9034C8FDBC62FDFBE70778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938199   (484062) от 17.09.2015
-
-Fisherman Bob - Church of the Blues (2015) [MP3|320 кб/с]<Blues, Rockabilly>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Church of the Blues (03:43)
-02. The Blue Man (06:11)
-03. Blow This Town (04:10)
-04. My Backyard (03:16)(   Читать дальше...   )Жанр: Blues, RockabillyПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BAB7E1226BC0B1F37A3769427559C19DAD5734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055884   (483781) от 24.09.2016
-
-Amphibious Zoo Music - Bayou Blues: Southern Fried Guitar Jams (2013) [MP3|320 Kbps] <Slide Guitar Blues, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gator Baiter   (02:21)
-02. Ghetto Street Blues   (04:05)
-03. I'm Ok You Owe Me Money   (02:49)
-04. Whoowee   (02:08)(   Читать дальше...   )Жанр: Slide Guitar Blues, InstrumentalПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAB4FE99E2E15A09539A8093559A677B748DFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,127 @@
+###  Публикация: 914594   (596371) от 03.07.2015
+
+VA - Ibiza Deep House (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ally Sereda - Foreplay (Leon S Remix) (06:27)
+02. Miguel Alcobia - Hold On (08:37)
+03. Jaques Le Noir - Repeat Your Kiss (05:57)
+04. Chrissy DePauw - Spiriling (Leon S Deep Vocal Mix) (07:06)(   Читать дальше...   )Производство: Planet House MusicЖанр: Deep House, Chill HouseПродолжительность: 02:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F1D97648BD35D9CD6648138420ACDEE1575BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526575   (595741) от 25.07.2012
+
+VA - All Gone Pete Tong Groove Armada Miami 12 (2012) [MP3|320 кб/с]<Electronic, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовый британский диджей Pete Tong анонсировал выход своей новой компиляции, которая была создана в содружестве с музыкантами из группы Groove Armada.Компиляция получила название «All Gone Miami 12» и разделена на два диска, за каждый из которых отвечает отдельная творческая единица. Первый диск составил и подобрал сам Пит, а второй на совести участников Армады.
+
+Релиз запланирован на 26 марта 2012 года, а в качестве выпускающего лейбла заявлен знаменитый рекординг Defected.1. Groove Armada - Disco, Love, Groove (4:17)
+ 2. Toby Tobias feat. Brendan Reilly - Tomorrow's Bringing (Bicep NY Mix) (2:03)
+ 3. Placeholder - Don't U Know (Jacob Korn NuGroove Remix) (2:57)
+ 4. Parallel Dance Ensemble - Shopping Cart (Maxxi Soundsystem Remix) (3:36)
+ 5. Fingers Inc. - Music Take Me Up (5:12)
+ 6. Cle - Feel It (Don't Cha Know) (4:38)
+ 7. DJ Nibc & Patrick L feat. Andreas Cavaco - Call Me (Tiger Stripes Remix) (3:01)
+ 8. Shenoda - Finally (Original Mix) (4:05)
+ 9. Bingo Players - Devotion (Original Mix) (0:48)
+ 10. Nina Kraviz - Ghetto Kraviz (1:48)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E0E8291FA323C1EE31ED3EBE23C95F0375BB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150239   (595278) от 14.07.2017
+
+VA - 100% Super Hits (Summer '17) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Flight – Extasy (Latin Summer Mix) 06:17
+02. Lykov – I Can Live 04:36
+03. Richard Highway – Somebody 03:54
+04. DJ Favorite – Reach the Sky 03:59(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7ACDCC83E35094AEFC078A302B298B207B1A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233006   (595085) от 27.06.2018
+
+VA - The Gold Of Ibiza (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Of Love - Sixthy (Sugar & Club Saxy Mix) 2:56
+02. Jay Beach - Mr. DJ (Fine Gold Mix) 3:02
+03. House Defrag - Fight (Red Zone Mix) 2:47
+04. The Philosopher - Trumpet Ring (Vocatrumpa Ibiza Mix) 3:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19D9A1E4568FA9073BD11A2E8362C463025342B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232966   (595015) от 27.06.2018
 
 VA - 50 Hot Summer Tunes For Your Beachday (2018) [MP3|320 Kbps] <Funky, Club House>
@@ -626,128 +750,6 @@ VA - Total Disco House, Vol.1 (2019) [MP3|320 Kbps] <Nu Disco, Indie Dance,  Jac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21657D53D2818C3E50027D6DE390C9177E3454D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358611   (585310) от 03.07.2011
-
-VA - Ibiza Summer (2011) [MP3|320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585310.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divino Medrano - El Paraiso (Original Mix) (7:29)
-2. Felix Grant - Gypsy On The Roof (Original Mix) (7:36)
-3. Doneyck - My House (Original Mix) (6:34)
-4. Doneyck - My House (Alex Gomez Remix) (6:34)
-5. Botz & Flydrums, Dani Villa - Celtic Rain 2011 (2011 Original Mix) (7:16)
-6. David Mayl, Roberto Sansixto - Skeleti-Ko (Original Mix) (7:09)
-7. Divino Medrano, Damian Portugal - Ladies & Gentleman (Original Club Mix) (6:57)
-8. Fiuset - Nu Skull (Original Mix) (6:53)
-9. Mauro B, Gerard C - Close Your Eyes (Original Mix) (6:45)
-10. Jan Pich - Dumby (Original Mix) (5:44)(   Читать дальше...)Жанр: HouseПродолжительность: 02:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D231DB41432681C44C0EAF6FF0904A8ED573D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041814   (581572) от 10.08.2016
-
-VA - IBIZA - Hot Summer (2016) [MP3|320 Kbps] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jake Terra  -  Climax (Original Mix)  4:36
-02. Karen Garrett  -  Turn It Up (Original Mix)  4:34
-03. Mike Guad  -  Only You (Original Mix)  5:05
-04. SPRiTO  -  All I Want (Original Mix)  4:02(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE283DC90FBA1583A7BACD2E0086A9750FCBBE39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041864   (581564) от 10.08.2016
-
-VA - Weekend Workout Hits (2016) [MP3|320 Kbps] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fais & Afrojack  -  Hey  3:35
-02. Matt Simons  -  Catch & Release (Deepend Remix)  3:16
-03. MOWE & Daniel Nitt  -  Lovers Friends  3:45
-04. Jebroer  -  Me Gabber  2:57(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C973C87334F1375177C591E2E58FB79B503079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302286   (581308) от 15.05.2019
-
-VA - Vintage Deep House '19 (2019) [MP3|320 Kbps] <House, DeepHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Carroll - In Da House (Original Mix) 4:58
-02. Kevin Fishler - What Is House (Original Mix) 4:38
-03. Sebastian Grey - Lets Move On (Original Mix) 4:57
-04. Soul Masters - Look Back (Original Mix) 4:40(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 03:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B197456BA8EA943E23134EC35FFE7ECCEF90B23C
 ```
 
 https://mybot314.ru/tekegram_catalog/

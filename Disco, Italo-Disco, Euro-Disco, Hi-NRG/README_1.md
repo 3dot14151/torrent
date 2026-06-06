@@ -1,3 +1,60 @@
+###  Публикация: 1459620   (1023131) от 02.04.2021
+
+Love Symphony Orchestra - Penthouse Presents The Love Symphony Orchestra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Make Love In Public Places (12:52)
+02. Let Me Be Your Fantasy (10:23)
+03. At The Football Stadium (4:16)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECE38DF04E48357FED22440666974B1AB957443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459475   (1023104) от 02.04.2021
+
+Charme - Let It In (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It In (5:48)
+02. Never (Gonna Let You Go) (4:00)
+03. Do It For Love (3:43)
+04. Penny For Your Thoughts (3:49)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB5814ADBECE46E985327BCB24F8C485C7FCBCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460779   (1022451) от 06.04.2021
 
 Bob McGilpin - 3 Albums (1978-1980) LP [MP3|320 Kbps] <Electronic, Disco, Pop, Funk Soul>
@@ -686,64 +743,6 @@ Trinity - We'll Make It Together (1976) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:114B04E3EFB6A9E9E917E93FD3101747FE60A70A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481855   (1008029) от 05.07.2021
-
-Estrak Lancios - Cosmopolitan Wave (1979) LP [MP3|320 Kbps] <Electronic, Leftfield, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmopolitan Wave (17:19)
--Red Wave
--Violet Wave
--Blue Wave(   Читать дальше...   )Жанр: Electronic, Leftfield, DiscoПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53557F84FBF239610B83B40DF21371E6D97C394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482019   (1007906) от 06.07.2021
-
-Tata Vega - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тата Вега (урожденная Кармен Роза Вега 7 октября 1951 года на Ямайке, Куинс, Лонг-Айленд,Нью-Йорк) - вокалистка, чья карьера охватывает театр, кино и различные музыкальные жанры.01. Come On And Try My Love (3:26)
-02. I Need You Now (3:35)
-03. Get It Up For Love (6:09)
-04. If Love Must Go (4:12)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20223ADFC432666EA4BB37BF3DB608A89DFEA2C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

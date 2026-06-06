@@ -1,3 +1,235 @@
+###  Публикация: 249423   (300610) от 26.10.2019
+
+Wayne Gratz - 16 альбомов (1989 - 2011) [MP3|192-320 кб/с]<Instrumental, New age, Relax, Neoclassical, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состояние на 04.01.2015:
+---Добавлены новые альбомы:
+1993 - Follow Me Homeм (320 кб/с)
+2005 - Spring Rain Piano And Rainfall (320 кб/с)(   Читать дальше...   )Жанр: Instrumental, New age, Relax, Neoclassical, PianoПродолжительность: 14:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DBF806766F708E036254CEC01AC8F4600AA165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077977   (300010) от 01.12.2016
+
+Handel - Messiah (highlights) (1967) 1997 EMI Classics [FLAC|Lossless|image + .cue] <Oratorio>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comfort Ye (3:32)
+02. Ev'ry Valley (3:42)
+03. And The Glory Of The Lord (3:05)
+04. For Unto Us A Child Is Born (4:19)(   Читать дальше...   )Жанр: OratorioПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DE7BDA75167AB74876E4049B745C2D2B043F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078443   (299835) от 01.12.2016
+
+Bizet; Academy of St Martin in the Fields, Sir Neville Marriner - Symphony in C / L'Arlesienne Suites Nos. 1 & 2 (2008) EMI Classics [FLAC|Lossless|image + .cue] <Оркестровая (Lossless)>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony in C:
+ 1.    I. Allegro Vivo
+ 2.    II. Adagio
+ 3.    III. Scherzo. Allegro Vivace(   Читать дальше...   )Жанр: Оркестровая (Lossless)Продолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7246307AB1B0D5EF869D412C2281F05819FCD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078484   (299685) от 01.12.2016
+
+Naoko Yoshino - Baroque Harp (1998) Philips Classics 1999 [FLAC|Lossless|image + .cue] <Classical, Instrumental, Арфа>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pietro Domenico Paradisi - Toccata (2:31)
+02. William Croft - Sarabande (1:50)
+03. William Croft - Ground (3:25)
+04. Marcel Grandjany - 12 Etudes for Harp after J. S. Bach, op. 45: Prelude from Violin Partita no. 3 (4:15)(   Читать дальше...   )Жанр: Classical, Instrumental, АрфаПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8160578BB168684BB71493F8B199A2CFA71A4433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961734   (298902) от 02.12.2015
+
+Wiener Volksopern Orchester, dirigent Hans Hagen. - Strausswaltzer (~1967) [FLAC|image + cue]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	An Der Schonen Blauen Donau Op. 314    3:21
+02.	Fruhlingsstimmen-Walzer, Op. 410 3:08
+03.	Morgenblatter-Walzer, Op. 279  3:08
+04.	G'schichten Aus Dem Wienerwald Op. 325  3:29(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5061D388E18BAE25B23BA7D194AD771D80C95F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961323   (298802) от 02.12.2015
+
+Beethoven - Piano Concerto no.5, Sonatas Op.13, Pathetique Sonata Op.90 (Friedrich Gulda & Orchester des Volksoper Wien) (2004) [FLAC|Lossless]<Classical, Concerto, Romantic Period, Pathetiq ...
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto no.5 in E flat major op.73 "Emperor"
+01. Allegro (20:43)
+02. Adagio un poco mosso (06:55)
+03. Rondo. Allegro (10:29)(   Читать дальше...   )Жанр: Classical, Concerto, Romantic Period, Pathetique, SonataПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE1F02E39A33989A577348DC49208AC031710A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961303   (298794) от 02.12.2015
+
+Berlioz - Symphonie Fantastique (Jos van Immerseel & Anima Eterna Brugge) (2013) [FLAC|Lossless]<Classical, Romantic Period, Orchestral, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphonie Fantastique
+01. Rveries (Passions) (15:05)
+02. Un Bal (06:52)
+03. Scne aux Champs (15:56)(   Читать дальше...   )Жанр: Classical, Romantic Period, Orchestral, SymphonyПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83D9CC5BFA0E397CC0A6B03B06AD2AFAEC9BCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078620   (297814) от 02.12.2016
+
+Tchaikovsky; Emil Gilels, David Oistrakh, Zubin Mehta, Eugene Ormandy - Piano Concerto no. 1 / Violin Concerto (1975/80) 1990 Sony Classical [FLAC|Lossless|image + .cue] <Classical, Concerto>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 1 in B-flat minor, Op. 23:
+ 1 -  I. Allegro non troppo e molto m... (21:12)
+2 -  II. Andantino simplice - Presti... (6:55)
+3 -  III. Allegro con fuoco (6:56)(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C62515B62C6EB56DE6B0FBF7A399A7FBFB773D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961851   (296985) от 03.12.2015
 
 Boccherini - Symphonies op.35, 41 & 42 (Academy for Early Music Berlin) (2003) [FLAC|Lossless]<Classical, Orchestral, Classical Period, Symphony>
@@ -49,6 +281,35 @@ Act Two
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:628B0EEE7BC2EE0D2DBC35FAC1A9010EE49A7430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961861   (296882) от 03.12.2015
+
+Chopin - Preludes (Maurizio Pollini) (1990) [FLAC|Lossless]<Classical, Romantic Period, Preludes>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Preludes (24) for piano, Op. 28, CT. 166-189
+01. No.1 In C Major - Agitato   (00:40)
+02. No.2 In A Minor - Lento    (02:19)
+03. No.3 In G Major - Vivace   (00:59)(   Читать дальше...   )Жанр: Classical, Romantic Period, PreludesПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB90A7510CC69132C4B193932EE6CEC73FFD4ABE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,264 +745,6 @@ Jennifer Thomas - Illumination (2012) [FLAC|Lossless|WEB-DL|tracks] <Classical C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F5B4A97A673CDA13DDEB142A931FF9CA5C0A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080997   (286081) от 08.12.2016
-
-Divna Ljubojevic & Melodi / Angelopoulos& Byzantine Choir of Greece - The Glory Of Byzantium (1994-2004) 2006 JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286081.jpg" />
-</div>
-
-
-###  Подробнее
-
-На диске духовные распевы 15 века в аутотентичном исполнении греческого хора чередуются с Богослужебными песнопениями  в исполнении Дивны Любоевич и хора Melodi под ее управлением.
-1. Hail Mary, Luke 1, 28 and 42. Byzantine chant (at vespers) (1:43)
-2. Sticheron of the Vespers of the Dormition of the Mother of God (2:51)
-3. Hail Mary, Luke 1, 28 and 42. Byzantine (   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49B25E791DA5AC1DEE0880462CAF132593EA85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186554   (285853) от 25.11.2017
-
-Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (1995) [FLAC|Lossless|image + .cue] <vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dichterliebe Op. 48
-1. Im wunderschönen Monat Mai
-2. Aus meinen Tränen sprießen
-3. Die Rose, die Lilie(   Читать дальше...   )Жанр: vocalПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F381880B27B292905E15E1E76235F39D30D01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081132   (282675) от 10.12.2016
-
-Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2000) 2004, JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282675.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. O Vierge Sainte, rejouis-toi, Luc 1, 28 & 42 (1:41)
-2. Les Mages. rois de Perse (2:20)
-3. Dieu est avec nous (4:18)
-4. Benis le Seigneur. ô Mon âme. Psaume 102. 1-22 (5:24)(   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD36353E02DE6F92DAD179209FB4421D3A75411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335914   (282393) от 05.11.2019
-
-Kriemhild Maria Siegel - Schwanensee (Swan Lake) (2013) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Schönten Lieder In Mir (4:00)
-02. Schwanensee (4:57)
-03. Hijo De La Luna (4:36)
-04. Am Ufer Der Erinnerung (2:57)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F03B00B765ECB17F50DDF0621B1E15CC5BDE29CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336157   (282192) от 05.11.2019
-
-Handel - L'Allegro, il Penseroso ed il Moderato (1995) 2CD,  [FLAC|Lossless|image + .cue] <Classical oratorio,  pastoral ode>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical oratorio,  pastoral odeПродолжительность: 01:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FB87B0EC55144273A22DC0100DBDAFC43DD14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849603   (279092) от 14.12.2014
-
-Wolfgang Amadeus Mozart - Symphonies Nos. 21-41:  Josef Alois Krips & Royal Concertgebouw Orchestra (1972-1973) remastering /2007, Decca 6CD [FLAC|Lossless]<Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди записей выдающегося дирижера Йозефа Крипса выделяется осуществлённая им в 1960 г. вместе с Лондонским симфоническим оркестром запись всех девяти симфоний Бетховена, получившая высокую оценку критики и публики и многократно переиздававшаяся в дальнейшем.01. Symphony No.40 in G minor, KV.550 I.Molto allegro (09:35)
-02. Symphony No.40 in G minor, KV.550 II.Andante (07:35)
-03. Symphony No.40 in G minor, KV.550 III.Menuetto (Allegretto) (04:46)
-04. Symphony No.40 in G minor, KV.550 IV.Finale (Allegro assai) (07:18)(   Читать дальше...   )Жанр: SymphonyПродолжительность: 06:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCFF5BEF4F99C67CA8D92C4A7330E6351FD4A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335394   (277338) от 08.11.2019
-
-New London Chorale - Celebration: 25 Years The New London Chorale (2004) [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wings Of Gold - Giuseppe Verdi (3:26)
-02. Every Valley - George Frideric Handel (3:26)
-03. Stay With Me 'Til The Morning - Wolfgang Amadeus Mozart (3:48)
-04. Say Goodbye - Wolfgang Amadeus Mozart (4:05)(   Читать дальше...   )Жанр: Сrossover Classical, Pop, BalladПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D15FE297030CE300A644F160C2BB1ED14345D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187739   (276947) от 30.11.2017
-
-Jose Carreras, Placido Domingo, Natalie Cole - A Celebration of Christmas (1996) [FLAC|Lossless|tracks] <Vocal, Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Walked Today Where Jesus Walked
-02. Panis Angelicus
-03. O Joyful Children
-04. The Christmas Song(   Читать дальше...   )Жанр: Vocal, ClassicalПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15060C72299E48E36D145E8B5B915BD6713D93A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336941   (276246) от 09.11.2019
-
-New London Chorale - Het Mooiste Van (2006) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stay With Me 'Til The Morning (3:48)
-02.  Schubert: The Uprising (4:01)
-03.  Schubert: Love Will Find A Way (3:48)
-04.  Wings Of Gold (3:26)(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369254B890D730D49606F75C1F75671FD9403C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 949674   (367886) от 27.10.2015
+
+Rachmaninov - Piano Concerto No.2, Etudes-Tableaux (Valery Gergiev & London Symphony Orchestra) (1993) [FLAC|image +.cue]<Classical, Concerto, Post-Romantic, Character Piece, Etude>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 2 in C minor, Op. 18
+01. Moderato; Allegro (11:33)
+02. Adagio sostenuto (11:46)
+03. Allegro scherzando (11:30)(   Читать дальше...   )Жанр: Classical, Concerto, Post-Romantic, Character Piece, EtudeПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024B6717AC4AD301D6098EC6EEC230A1A67AD7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948703   (367871) от 27.10.2015
+
+Chopin - 24 Preludes op.28 (Orchestral Version) (2002) [FLAC|image +.cue]<Classical, Romantic Period, Preludes>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Preludes op.28
+01. Agitato (00:44)
+02. Lento (02:01)
+03. Vivace (01:14)(   Читать дальше...   )Жанр: Classical, Romantic Period, PreludesПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C604991EA12D4AD41ADE9EE66076BDB75744D0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949833   (367775) от 27.10.2015
+
+Rachmaninov - Piano Concerto No.3, Vocalise, Prelude  (Evgeny Kissin, Seiji Ozawa & Boston Symphony Orchestra) (1993) [FLAC|image +.cue]<Classical, Concerto, Live Performances, Post-Romantic ...
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 3 in D minor, Op. 30
+01. Allegro ma non tanto (18:35)
+02. Intermezzo: Adagio (10:30)
+03. Listesso tempo; Finale: Ala breve (15:19)(   Читать дальше...   )Жанр: Classical, Concerto, Live Performances, Post-Romantic Period, Song, Prelude, Transcription, VocaliseПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA8E78C2BDEAA62106997A862D5CBDAC576517E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950900   (367764) от 27.10.2015
+
+Anna Netrebko, Elina Garanca, Ramon Vargas, Ludovic Tezier, SWR Sinfonieorchester - The Opera Gala. Live from Baden-Baden (2007) [FLAC|Lossless]<Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Lo Delibes / Lakm: Act I. "Viens, Mallika - Dme pais le jasmin"		06:43
+02.	Gaetano Donizetti / L'Elisir d'Amore: Act II, Scene VII. "Una furtiva lagrima"		05:08
+03.	Georges Bizet / Les Pcheurs de Perles: Act I. "Au fond du temple saint"		06:19
+04.	Vincenzo Bellini / Norma: Act I, Scene I. "Casta Diva - Ah, bello a me ritorna" (   Читать дальше...   )Жанр: ОпераПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16879755F0EC0BFD2CCC5DF3D46D1EA64392B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950719   (367556) от 27.10.2015
+
+Schubert - Piano Works for Four Hands (Jeno Jando & Ilona Prunyi) (1994) [FLAC|image +.cue]<Classical, Romantic Period, Character Piece, March, Divertimento>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lebenssturme, D. 947
+01. Allgero ma non troppo (11:44)
+Marches Caracteristiques, D. 886
+02. Allegro Vivace (06:57)(   Читать дальше...   )Жанр: Classical, Romantic Period, Character Piece, March, DivertimentoПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EAE09B8C2708587F8135A7E35187B7B7D93A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950727   (367404) от 27.10.2015
+
+Nox Arcana - Gothic (2015) [MP3|320 кб/с]<Neo-Classical, Dark Ambient, Darkwave>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testament
+02. Grimstone Manor
+03. Ashes To Ashes
+04. Forgotten By Time(   Читать дальше...   )Жанр: Neo-Classical, Dark Ambient, DarkwaveПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AEC9C73A7BC15EA63B7B567612DD63A649D3A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950673   (367273) от 27.10.2015
+
+Ludovico Einaudi - Elements (2015) Deluxe Edition [MP3|320 кб/с]<Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludovico Einaudi & Daniel Hope – Petricor (6:34)
+02. Ludovico Einaudi & Amsterdam Sinfonietta – Night (5:30)
+03. Ludovico Einaudi – Drop (5:00)
+04. Ludovico Einaudi & Amsterdam Sinfonietta – Four Dimensions (4:42)(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A121AE84D2930F12013CB13E0DEA1A43C5050E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950817   (367132) от 27.10.2015
+
+Andrea Bocelli - Cinema (2015) Deluxe Edition [MP3|320 кб/с]<Pop/Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria (From "West Side Story")                          03:13
+02. La chanson de Lara (From "Dr. Zhivago")                 03:15
+03. Moon River (From "Breakfast At Tiffany's")              03:49
+04. E piu ti penso (From "Once Upon A Time In America")     04:27(   Читать дальше...   )Жанр: Pop/Classical CrossoverПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D25FF9243F0BC7D345D831008C1E2A4465390D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327848   (366020) от 29.09.2019
 
 Piano Novel - Lumino Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
@@ -523,250 +755,6 @@ Jordi Savall, Hesperion XXI - BAL·KAN Miel et Sang - Honey and Blood [3CD] (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B485B6E9737A11F3D4EBDE861D5B9AAE64AF3AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329600   (349605) от 06.10.2019
-
-RIOPY - Tree of Light (2019) Warner Classics [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tree of Light - A Call to Arms (2:34)
- 02. Ukiyo (3:55)
- 03. Flo (3:53)
- 04. Summer Night (5:10)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD4EC227DDBE096E68F31FF6431D83A7C8A0983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951980   (349423) от 04.11.2015
-
-W.G. Still - Symphony No.1; Duke Ellington - The River Suite (Neeme Jrvi & Detroit Symphony Orchestra) (1993) [FLAC|image +.cue]<Classical, Orchestral,  20th Century Period, Symphony, Modern ...
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 1 ("Afro-American")
-01. Moderato assai (07:26)
-02. Adagio (05:21)
-03. Animato (03:09)(   Читать дальше...   )Жанр: Classical, Orchestral,  20th Century Period, Symphony, Modern, SuiteПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95418444FA91E2D1262B753129DB0078437FB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838290   (348889) от 06.11.2014
-
-Ludwig van Beethoven - Berliner Philharmoniker conductor Herbert von Karajan (1965-1985) Remastering 2011, Deutsche Grammophon  [FLAC|Lossless]<Classical>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Караян крайне удачно вписался в контекст новой Германии – белокурый, с резкими чертами лица и пронзительным взглядом, он служил рекламным лицом нацистской культуры...» Любимец Геринга и Геббельса, Караян открывал многие свои выступления «Хорстом Весселем». Такие музыканты, как Исаак Стерн и Ицхак Перлман отказывались играть в одних концертах с Караяном.01. Missa solemnis in D major, Op.123 - Kyrie - Kyrie eleison (03:27)
-02. Missa solemnis in D major, Op.123 - Kyrie - Christe eleison (01:44)
-03. Missa solemnis in D major, Op.123 - Kyrie - Kyrie eleison (04:04)
-04. Missa solemnis in D major, Op.123 - Gloria - Gloria in excelsis Deo (04:53)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 14:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F732550BD96F4BD414DAB6C40522388A56E695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951774   (348555) от 04.11.2015
-
-Haydn - Complete Music for Solo Keyboard (Ronald Brautigam)  (15CDs) (2008) [FLAC|Lossless]<Classical, Chamber Music, Recitals, Classical Period, Sonata, Character Piece, Dance - Classical, Fant ...
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Die Sieben letzten Worte unseres Erlosers am Kreuze (The Seven Last Words of Christ on the Cross), keyboard version (1787)
-01. Intrada. Maestoso e Adagio (06:39)
-02. Sonata 1. Largo. Pater, dimitte illis quia nesciunt quid faciunt (Father, forgive them; for they kn (06:41)
-03. Sonata 2. Grave e Cantabile. Hodie mecum eris in Paradiso (Today shalt thou be with me (   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Classical Period, Sonata, Character Piece, Dance - Classical, Fantasy, Variations, March, Hymn, Sonatina, Partita, Minuet, Theme & Variations, Capriccio, Landler, ContredanceПродолжительность: 17:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8B5884197DDB8EEEA419094B3CFF2500BFD9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579306   (347813) от 23.11.2012
-
-Barbara Hendricks & VA - Ave Maria (1994) [FLAC|Lossless]<Classical, Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Franz Schubert - Ave Maria    (06:16)
-02. Mozart - Et incarnatus est    (08:21)
-03. Gabriel Fauré - Pie Jesu    (04:16)
-04. Ravel - Kaddish    (03:45)
-05. Negro spiritual - Sometimes I feel like a motherless child   (03:13)
-06. Negro spiritual - When the saints go marchin' in    (03:33)
-07. Mozart - Dans un bois solitaire    (03:08)
-08. Schubert - La Truite    (02:28)
-09. Schubert - Serenade    (03:42)
-10. R Strauss - Wiegenlied    (04:48)(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C1811E6C1E61EE2205B78A1C8DC1C3C10C6EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329955   (347540) от 07.10.2019
-
-Lindsey Stirling - Artemis (2019) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Underground (4:22)
-02. Artemis (3:54)
-03. Til The Light Goes Out (4:47)
-04. Between Twilight (4:20)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, PopПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36553ED7E6AF0579CA132B71FD3571D206CD15A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579960   (347493) от 23.11.2012
-
-VA - The Acoustics Collection. Guitar (2002) [MP3|320 кб/с]<Classical, Instrumental, Acoustic guitar>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347493.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:58) 01. Concierto De Aranjuez
-(3:17) 02. Romeo and Julieya
-(2:28) 03. Romance Anonimo
-(2:51) 04. Carman
-(3:27) 05. Quelques Notes Pour Anna
-(3:50) 06. Green Sleeves
-(2:09) 07. Air On G String
-(3:35) 08. Granada
-(3:03) 09. Guantanamera
-(7:14) 10. Sakura(   Читать дальше...   )Жанр: Classical, Instrumental, Acoustic guitarПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFE65331039471DD399590B2FA9B7AD9FEAFE3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073081   (347392) от 15.11.2016
-
-Cord Garben / Arturo Benedetti Michelangeli - Mozart: Klavierkonzerte Nos. 13 & 15 (1990) Digital recording [FLAC|Lossless|image + .cue] <Фортепиано>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfgang Amadeus Mozart - Piano Concerto No.13 in C Major, K.415:
- 0. Applause (0:23)
- I. Allegro (11:40)
- II. Andante (8:17)(   Читать дальше...   )Жанр: ФортепианоПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96420D69048A48DE348825518394478B2DC71B22
 ```
 
 https://mybot314.ru/tekegram_catalog/

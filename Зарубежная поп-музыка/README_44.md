@@ -1,3 +1,32 @@
+###  Публикация: 1238596   (545493) от 31.07.2018
+
+VA - Synth Planet (2010) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.C.D - Cwejmansong (4:34)
+02. Keen K - When The Moon Falls Down (5:15)
+03. Aldo Bergamachine - Ice Sun (4:25)
+04. Anosphere - Epsilon Hunter Part2 Remix (5:28)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-pop, DiscoПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60469AB39681003894234EF04152949C1E48D791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310966   (544537) от 27.06.2019
 
 VA - Mellow Gold: 70s Classics (2019) [MP3|320 Kbps] <Pop, Soul, Funk>
@@ -711,35 +740,6 @@ Heather Bond - So Long (2015) [MP3|320 кб/с]<Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6977788CF5B67BABAAFCFC7D7DDCC5DA919521ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558375   (531644) от 20.06.2022
-
-VA - Radio Hits 2022 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Animals - Heat Waves (3:58)
-02. OneRepublic - Sunshine (2:43)
-03. Deve - Cold Life (2:37)
-04. Alesso - When I'm Gone (2:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF20AD2FA27B2314C7FD87071F965931851B0C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

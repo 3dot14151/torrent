@@ -1,3 +1,32 @@
+###  Публикация: 1198517   (808393) от 11.01.2018
+
+Heidevolk - Vuur van Verzet (2018) [MP3|320 Kbps] <Folk Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ontwaakt
+02. A Wolf in My Heart
+03. Onverzetbaar
+04. Yngwaz' Zonen(   Читать дальше...   )Жанр: Folk Metal, Viking MetalПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907D07C349CF9722DE577D7B825AB3CBE92AF0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198440   (808290) от 11.01.2018
 
 Diablo Swing Orchestra - Pacifisticuffs (2017) [MP3|320 Kbps] <Avant-Garde Metal, Jazz Metal>
@@ -714,35 +743,6 @@ Forever Free - Metal is Back (2016) EP [MP3|320 Kbps] <Heavy Metal, Thrash Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC81009EFCB37E6C7727180F4A9FF04C78EFB851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199413   (801787) от 15.01.2018
-
-Tremonti - Dust (2016) [MP3|320 Kbps] <Alternative Metal, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Last Mistake (4:30)
-02. The Cage (3:35)
-03. Once Dead (3:06)
-04. Dust (5:22)(   Читать дальше...   )Жанр: Alternative Metal, Post-GrungeПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47AF7A364799AA0AADB19378922AED6CF4D2B1E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1119367   (806830) от 28.03.2017
+
+VA - Deep House Collection Vol. 114 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806830.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 1WayTKT feat. Nytasha Nicole - Dancing in the Rain  (Original Mix) 3:46
+002. Aberton - Just Dance (Original Mix) 6:45
+003. Andrey Exx, Elis M. Feeling feat. Mary Irene - Rapture  (Dim2Play & Techcrasher Remix) 6:24
+004. Alex Dee Gladenko - Attraction (Original Mix) 8:16(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7A68AEEC6A741E4A158E021CA8CBA27235672E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384018   (806276) от 18.05.2020
+
+VA - Beatport Bassline: Electro Sound Pack #84 (2020) [MP3|320 Kbps] <D&B, Dubstep, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806276.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sbstrd - Apart
+002. Oclock - Delicate (Original Mix)
+003. Nanocore - Red Moon
+004. Yatuza & Wave - Rico Nasty(   Читать дальше...   )Жанр: D&B, Dubstep, BasslineПродолжительность: 12:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796FAED7E0EADB299258D229B3291ACE0EB74353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384049   (806273) от 18.05.2020
+
+VA - Simple Elegance: Ultimate Lounge Mix (2020) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806273.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mauro Rawn - Perfume Of You
+002. Gianluigi Toso - My Blue Love
+003. Shawn White - Want To Be My Babe
+004. Alex Cortiz - Chase Me(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 09:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6740579E2946EE044CF16FC1C7B58578450F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384037   (806265) от 18.05.2020
 
 VA - Beatport Electro House: Sound Pack #83 (2020) [MP3|320 Kbps] <House>
@@ -658,93 +745,6 @@ VA - Beatport Hardstyle: Electro Sound Pack #360 (2021) [MP3|320 Kbps] <Hardstyl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5F315D3DC176959A78EC4B3F05082B4F1F85C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505344   (802938) от 28.10.2021
-
-VA - Synth of Waves 5 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Mortal - Hex Machina (Gertrudda Edit) (5:08)
-02. Alex Boychuk - Escape (5:13)
-03. Michael Cassette - My Name Is Michael Cassette (Extended Mix) (5:28)
-04. FM Attack - Cinematic (4:37)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC8FDC4B660251228ECCDB7A0CE7D034AF2D783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505350   (802927) от 28.10.2021
-
-VA - Synth of Waves 6 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demesys - Cocktails & Dreams & Tropical Haze (Gertrudda Edit) (7:53)
-02. Backfrom84 - Lost Summer Love (4:33)
-03. The Midnight - Nighthawks (Gertrudda Summer Mix) (8:17)
-04. Stan DuClare - Newtown Mall (3:14)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672A101E572290C756393D72DFC1F224A44A618D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505334   (802866) от 28.10.2021
-
-VA - Synth of Waves 3 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castroe - Chase Arrival (Gertrudda Edit) (8:58)
-02. 2DCAT - On My Own (3:38)
-03. Runaway Droid - Dance (3:29)
-04. A-Reis - Hyperdrive (4:13)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18004B4D53A73D45BE844D65A5756FAFF123726
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1385665   (797161) от 25.05.2020
+
+BELLATRIX - Droids (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Story From Space (5:27)
+02. Vector (5:37)
+03. Glass Heart (8:39)
+04. Abyss (6:51)(   Читать дальше...   )Жанр: Spacesynth, DiscoПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3B1BDD428B72363098A618BD8374C823EBEF71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011479   (796698) от 27.04.2016
+
+Zodiac - Pacific Time (2014) [FLAC|Lossless|image + .cue] <Electronic, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Zodiac (04:11)
+02. Pacific Time (04:31)
+03. Disco In The Province (04:47)
+04. Distant Galaxy (05:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947ABD4B90F40DA9960154239BA304AE569D3CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319368   (796543) от 26.05.2020
 
 W O L F C L U B (Wolfclub) - Collection 5 Releases (2017-2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
@@ -688,64 +746,6 @@ Depeche Mode - LiVE SPiRiTS SOUNDTRACK (2020) [FLAC|Lossless|WEB-DL|tracks] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE653D4C09F9BE4EACBAE88C50FA9DE77E93D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393648   (766835) от 01.07.2020
-
-Depeche Mode - Live Spirits Soundtrack (2020) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Intro (00:02:31)
-02. Going Backwards
-03. It's No Good(   Читать дальше...   )Жанр: Electronic, New Wave, Synthpop |Продолжительность: 01:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4777D99243CA0C14D61973229812F11AF0E33A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521336   (766106) от 01.01.2022
-
-Midnight Danger - Nights at Lake Milsen (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into an Abyss of Fear (feat. Sonia Anubis) (4:55)
-02. Maniac (feat. Martin Sweet) (4:44)
-03. Fatal Attraction (feat. Max Cruise) (4:43)
-04. A Storm Out There (3:25)(   Читать дальше...   )Жанр: Retrowave, Darksynth, SynthwaveПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84FF1C1F88A685604630DBD673EB429B27D690B
 ```
 
 https://mybot314.ru/tekegram_catalog/

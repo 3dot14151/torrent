@@ -1,3 +1,32 @@
+###  Публикация: 1173031   (391239) от 10.10.2017
+
+Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391239.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Synchronicity (8:08)
+2.  Second Chances (9:02)
+3.  Making Magic (7:58)
+4.  The Beginning of All Beginnings (6:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A215E550E28A8705BA61CC04B4FAD4B590C91F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173549   (389699) от 12.10.2017
 
 Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, Ambient>
@@ -746,41 +775,6 @@ VA - Dreamline 3 (2017) [MP3|320 Kbps] <New Age, Balearic, Leftfield>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4CFA003A8D06AA071413D153363F83E93E8DE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578731   (352360) от 21.11.2012
-
-В. Рейтхофер - Кама-Сутра. Эзотерическая Музыка (2001) [MP3|320 кб/с]<Meditative, Relax, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прикосновения и поцелуи
-02. Сражение языками и укусы
-03. Возрастание влечения и объятия
-04. Ласка и игра рук
-05. Любовный массаж
-06. Открытие пути и сближение
-07. Способы наслаждений
-08. Страстное соединение
-09. Ласки руками
-10. Подражание мужчине (сверху)(   Читать дальше...   )Жанр: Meditative, Relax, New AgeПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E62A6E259F15E71A64C8DFF7792C8AE3688B83
 ```
 
 https://mybot314.ru/tekegram_catalog/

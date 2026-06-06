@@ -1,3 +1,73 @@
+###  Публикация: 514832   (656937) от 25.06.2012
+
+Franz Ignaz Beck - Symphonies: Nicolas Ward & Northern Chamber Orchestra (1996) [FLAC|Lossless]<Classical, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony in B flat major, op.12, No.4
+01. Allegro (03:59)
+02. Largo (07:27)
+03. Allegro (01:56)
+
+Sinfonia in D major, Callen 30
+04. Allegro    (04:25)
+05. Andante (03:49)
+06. Minuetto (02:34)
+07. Presto (02:23)(   Читать дальше...   )Жанр: Classical, SymphonyПродолжительность: 58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311F258088C219AD1D02F6D406E2B3AA4C9F0FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514928   (656830) от 25.06.2012
+
+Wolfgang Amadeus Mozart – Divertimenti KV 136-138, 251: The Amsterdam Baroque Orchestra conductor Ton Koopman (1772) Authentic instruments/1990 Erato/FLAC|Lossless<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Divertimento D-dur KV 136 (125a)
+01. 1. Allegro
+02. 2. Andante
+03. 3. Presto
+Divertimento B-dur KV 137 (125b)
+04. 1. Andante
+05. 2. Allegro di molto
+06. 3. Allegro assai
+Divertimento F-dur KV 138 (125c)
+07. 1. Allegro(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DA15278504A728715F98D8732BF86F000DFB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515819   (654165) от 27.06.2012
 
 Johann Sebastian Bach – Oboe Concertos: VA Swedish Chamber Orchestra oboe Alexei Ogrintcouk, Authentic instruments (1713-1730)/2010, BIS BIS-SACD-1769/[FLAC|Lossless]<Oboe>
@@ -706,64 +776,6 @@ in F major, H. 408, Wq. 46
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6532017673E436B4EF36ED1B77E1DFF29B08CE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033840   (635812) от 12.07.2016
-
-Jordi Savall, Lislevand, Behringer, Cocset, A. Savall, Estevan, A. Gonzalez-Campa - La Folia (1490-1701) 1998 [FLAC|Lossless|image + .cue] <Renaissance, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635812.jpg" />
-</div>
-
-
-###  Подробнее
-
-I. Folias Antiguas 
-01.  Folia Rodrigo Martinez (1490)    05:36
-02.  Recercada Quarta sobre la Folia (1553)    01:30
-03.  Folia Para quien crie cabellos (1557)    02:11(   Читать дальше...   )Жанр: Renaissance, BaroqueПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91A8209237945B2AF35BA8C203D49FA1F5389FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542203   (633433) от 09.04.2022
-
-Daniel Harding, Deutsche Kammerphilharmonie – Beethoven: Overtures (1999) [FLAC|Lossless|image + .cue] <Classical, Overtures>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633433.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coriolan, Op. 62 (7:22)
-2. Leonore III, Op.72 (12:49)
-3. Egmont, Op. 84 (7:42)
-4. Leonore II, Op. 72a (12:44)(   Читать дальше...   )Жанр: Classical, OverturesПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B41630A3A193573893EA9AA00DFB3E3C9F478F
 ```
 
 https://mybot314.ru/tekegram_catalog/

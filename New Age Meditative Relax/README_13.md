@@ -1,3 +1,32 @@
+###  Публикация: 912048   (614083) от 24.06.2015
+
+Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflute, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Silverstar 5:24
+02. Chica 3:14
+03. Amigos 2:40
+04. Brothers 5:52(   Читать дальше...   )Жанр: New Age, Native American, Panflute, FolkПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037458   (613965) от 24.07.2016
 
 Jamie Llewellyn - Muzyka do spania: Marzy delfinow (To Dream of Dolphins) (2014) [MP3|320 Kbps] <New Age>
@@ -770,35 +799,6 @@ VA - Pure Spirit Of Relaxation 3CD Boxset (2005) [MP3|320 kbps]<Meditativ, Relax
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6982A4BBD9D6BA6626BEA63CD1F88BC2671FCDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918951   (584880) от 17.07.2015
-
-Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maple Love
-02. Mythos
-03. The Unforgettable Love Affair
-04. Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
 ```
 
 https://mybot314.ru/tekegram_catalog/

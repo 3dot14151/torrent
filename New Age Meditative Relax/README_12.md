@@ -1,3 +1,32 @@
+###  Публикация: 1228556   (635697) от 01.06.2018
+
+Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dreams of sunbeams
+02 Cloud pictures passing by
+03 Spring break
+04 Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034422   (634309) от 13.07.2016
 
 VA - Legends (2016) [MP3|320 Kbps] <New Age>
@@ -746,35 +775,6 @@ VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Medit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60410EF1253501C6E779AB25B6F059E087D75654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912048   (614083) от 24.06.2015
-
-Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflute, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Silverstar 5:24
-02. Chica 3:14
-03. Amigos 2:40
-04. Brothers 5:52(   Читать дальше...   )Жанр: New Age, Native American, Panflute, FolkПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

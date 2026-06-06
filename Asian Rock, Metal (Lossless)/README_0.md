@@ -1,3 +1,32 @@
+###  Публикация: 1495908   (875970) от 15.09.2021
+
+Loudness - Sаmsаrа Flight (2016) 2xCD, Compilation, 35th Anniversary [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875970.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Samsara Flight:
+01. Street Woman
+02. The Law Of Devil’S Land
+03. Loudness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4459C6CDB034DED68C4094588FD78C1BBAFEC7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496926   (868135) от 20.09.2021
 
 Concerto Moon - Rain Fire (2020) 2xCD, Japanese Edition [WavPack|Lossless|image + .cue] <Power Metal, Neoclassical Metal>
@@ -727,35 +756,6 @@ Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97BCC97D99151BA07BC70232E8D352AC7DF5B4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148194   (604213) от 05.07.2017
-
-One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternative Rock, Power Pop>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambitions (Introduction)
-02. Bombs Away
-03. Taking Off
-04. We Are(   Читать дальше...   )Жанр: Alternative Rock, Power PopПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629117DFF360AF43014FA08F08555938ECE20A10
 ```
 
 https://mybot314.ru/tekegram_catalog/

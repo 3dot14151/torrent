@@ -1,3 +1,32 @@
+###  Публикация: 946177   (429453) от 12.10.2015
+
+Bernard L'Hoir - She's... (2015) [OGG| 407-500 кб/с]<New Age, Jazz, Folk, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My gypsy girl (05:25)
+02. Between you and me (03:42)
+03. A classy blues (05:53)
+04. Osar’s Naad (03:55)(   Читать дальше...   )Жанр: New Age, Jazz, Folk, InstrumentalПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBB5C9855BBF92CF28E169D4730C471255CF29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410924   (429360) от 24.09.2020
 
 Enigmatic Hits - Reloaded (2020) [MP3|320 Kbps] <Enigmatic, New age>
@@ -756,35 +785,6 @@ Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173031   (391239) от 10.10.2017
-
-Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Synchronicity (8:08)
-2.  Second Chances (9:02)
-3.  Making Magic (7:58)
-4.  The Beginning of All Beginnings (6:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A215E550E28A8705BA61CC04B4FAD4B590C91F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

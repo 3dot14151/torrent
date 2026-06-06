@@ -1,3 +1,119 @@
+###  Публикация: 1569818   (447187) от 15.08.2022
+
+VA - The Best Of Italo-Disco Vol. 5 (1986) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Strangers – My Delight	6:12
+02. Jimmy & Susy – Come Back	6:03
+03. Max-Him – Japanese Girl	5:58
+04. Cruisin' Gang – America Medley With Machinery	7:27(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0E796CEBA427BA1CBECA06B2202D0EB5FB98ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569830   (447104) от 15.08.2022
+
+VA - The Best Of Italo-Disco Vol. 8 (1987) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solo – Harem	5:36
+02. Linda Jo Rizzo – Heartflash (Tonight)	5:58
+03. Silver Pozzoli – Pretty Baby	5:58
+04. Mike Mareen – Agent Of Liberty	8:50(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2706F85D77DC620EF7C93917769864C43DF775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409427   (445247) от 17.09.2020
+
+Michele Freeman - Michele Freeman (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice And Slow  (7:55)
+02. Find The Fire  (5:12)
+03. Where'd You Get What You Got  (5:43)
+04. Tumble Heat  (6:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE01C7DE0370C5EBA8FECF8AEBE67677E75DB1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570255   (445012) от 16.08.2022
+
+Mike Mareen - Greatest Hits & Remixes (2020) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Spy (Night Mix)	8:42
+02. Dancing In The Dark (Galactica Remix)	7:08
+03. Lady Ecstasy (12" Version)	5:39
+04. Stand Up (Alternative Maxi Version)	8:18(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D365AA08CA6E05F101016CC8580AB6C0AC376A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570292   (445011) от 16.08.2022
 
 VA - The Best Of Italo-Disco Vol. 7 (1991) Vinyl-rip [OGG|485 Kbps] <Italo-Disco>
@@ -636,122 +752,6 @@ C.C.Catch - Like A Hurricane (1987) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F43473BFF17E7D354B5D77A76A50EB7B057D1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250529   (422654) от 29.09.2018
-
-Tony Rallo And The Midnite Band - Burnin' Alive (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holdin' On (Instrumental) (0:59)
-02. Burnin' Alive (7:24)
-03. Fais L'Amour (6:29)
-04. Holdin' On (7:34)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6674D2F0CA517C5E63B5345C8F38CAFAB856D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250832   (422641) от 29.09.2018
-
-Tim Maia - Disco Club (1978) Reissue CD, Atlantic, 2018 [MP3|320 Kbps] <Disco, Funk/Soul, MPB>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Fim De Voltar (4:07)
-02. Acenda O Farol (3:12)
-03. Sossego (3:44)
-04. Vitoria Regia Estou Contigo E Nao Abro (2:17)(   Читать дальше...   )Жанр: Disco, Funk/Soul, MPBПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA62BC34D075C51A3674858A6D133A052051A29A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065192   (421763) от 22.10.2016
-
-VA - Decade of the Synth  Vol.1 (2016) [MP3|320 Kbps] <Disco, Nu Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vasiliy Arefiev - My Lost Melody  6:40
-02. Italo Brutalo - Velodrome  6:51
-03. Boy Funktastic - Beachs  4:16
-04. Ocsav - Move Your Soul  6:02(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCF77C5512116EEA62DEDE1328EEB1151E49CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572756   (419328) от 28.08.2022
-
-Pisces - Disco 6 (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Love (5:25)
-02. Touch Me (4:40)
-03. Superman (6:16)
-04. Magic Flight (3:21)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A79578CCF21BDFC662941F7F046516023B1B21
 ```
 
 https://mybot314.ru/tekegram_catalog/

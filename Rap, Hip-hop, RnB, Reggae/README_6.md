@@ -1,3 +1,90 @@
+###  Публикация: 1368027   (914250) от 17.03.2020
+
+2 Chainz - Rap Or Go To The League (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgiven (feat. Marsha Ambrosius) (5:23)
+02. Threat 2 Society (3:46)
+03. Money In The Way (2:42)
+04. Statute Of Limitations (2:29)(   Читать дальше...   )Производство: Def Jam Recordings – B0030006-02Жанр: Hip-HopПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29907E441613CA0D0235917DC45FB9B76337FF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368030   (914245) от 17.03.2020
+
+Czarface - The Odd Czar Against Us (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bizarro (2:49)
+02. Call Me (2:09)
+03. The Gift That Keeps On... (2:36)
+04. Me's Company (2:15)(   Читать дальше...   )Производство: Silver Age – SIL 011-CDЖанр: Hip-HopПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7235EB08FB8ABC3CBA3EF9AEA7CDCD58C418FFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367586   (913891) от 17.03.2020
+
+Die Antwoord - House Of Zef (2020) [MP3|320 Kbps] <Alternative Hip-Hop, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open the Door (feat. Panther Modern)
+02. Zonke Bonke (feat. Bukhulubakhe & Gqwa!)
+03. Da Godz Mus B Krazy
+04. Naai Is 'N Lekker Ding (feat. Moonchild Sanelly, Gqwa! & JouMaSePoes)(   Читать дальше...   )Жанр: Alternative Hip-Hop, ElectronicПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEADEACAA59C4BAB7B72D36ABD09F50E73E2E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368624   (909245) от 20.03.2020
 
 Sagath - Вынос тела (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC9E9C53EE3299B0E5FC8DC14AF56B02BA9FA05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370445   (896817) от 27.03.2020
-
-MATRANG - ТРИ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896817.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Глава 1
-2. Крейсер
-3. Драма
-4. Мой сон(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029BAF4359EE765AB5A7242E10550CBA20F4A361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370499   (896785) от 27.03.2020
-
-Jelly Roll - A Beautiful Disaster (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop, Country Rap, Blues Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bottom (2:37)
- 02. I Need You (2:52)
- 03. Nothing Left At All (3:24)
- 04. Suicide (3:43)(   Читать дальше...   )Жанр: Hardcore Hip-Hop, Country Rap, Blues RockПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F98A72074D54BFD017029D909BDC311198D198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370540   (896704) от 27.03.2020
-
-Childish Gambino - 3.15.20 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, R&B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 0.00 (02:59)
-02. Algorhythm (03:32)
-03. Time (06:07)
-04. 12.38 (06:32)(   Читать дальше...   )Жанр: Hip-Hop, R&BПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC643368690BB71BA491F46258560A133FF6C91
 ```
 
 https://mybot314.ru/tekegram_catalog/

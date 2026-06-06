@@ -1,3 +1,32 @@
+###  Публикация: 1421822   (315295) от 06.11.2020
+
+Workout Music Tv - 40 Best Pop Remixes 2020 For Running [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liar - Workout Remix 128 Bpm (4:23)
+02. Break Up With Your Girlfriend - Workout Remix 128 Bpm (5:19)
+03. Lover - Workout Remix 128 Bpm (6:06)
+04. So Am I - Workout Remix 128 Bpm (4:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC18D2E5072D36C6FA50390543725EDE0034917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583057   (314121) от 13.10.2022
 
 VA - Mega Hits Autumn/Fall 2022 [MP3|320 Kbps] <Pop>
@@ -748,35 +777,6 @@ MØ - When I Was Young (2017) (EP) [MP3|320 Kbps] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:762E074617CE0A05BE1675E46A7DBA8A2E9D6A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261529   (303488) от 11.11.2018
-
-Konrad Plaickner & His Orchestra - Atlantic Crossing (1981) LP [MP3|320 Kbps] <Stage & Screen, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantic Crossing (3:04)
-02. New Horizon (3:39)
-03. Hobby Cat (2:45)
-04. Junior Talker (3:02)(   Читать дальше...   )Жанр: Stage & Screen, Pop Rock, DiscoПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9B5CCF70D801733607AB9BA957C36774A5F249
 ```
 
 https://mybot314.ru/tekegram_catalog/

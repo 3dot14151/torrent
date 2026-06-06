@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1872897   (1070664) от 25.05.2026
+
+VA - Rap Hits 1990-99  [MP3|320 Kbps] <Rap, hip-hop, rnb>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070664.jpg" />
+</div>
+
+
+###  Подробнее
+
+[6:07]. 001-C-Block - So Strung Out
+[3:55]. 002-Nana & Mariah - Let It Rain
+[4:04]. 003-Down Low - Johnny B.(cover The Hooters)
+[4:24]. 004-Hoodys - Trappet(   Читать дальше...   )Жанр: Rap, Hip-hop, RnbПродолжительность: 08:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CF70C76608248FDA2C9217C898DF9744B0A220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868234   (1067449) от 29.04.2026
 
 Кирпичи & Вася Васин - Compilation (1996-2026) [MP3|320 Kbps] <Alternative rap, Funk rock, Hip-Hop>
@@ -717,35 +746,6 @@ VA - Exotic Reggae: Dub Edition (2CD) (2021) [MP3|320 Kbps] <Reggae, Dub, Riddim
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D891B9E8FD1E5218BC3FDC2893DF69F9B062422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459841   (1022998) от 03.04.2021
-
-VA - Dread Lion Dub (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub, Ska>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reggae — это путь. Это такая тропинка. Через тьму, через страх, через cвои собственные ночные кошмары. Если у тебя в груди живет боль, и ты поешь, ты играешь ее — ты выводишь ее в мир. Выводишь себя к свету.01. Max Romeo - Chi Chi Bud
-02. Prince Fatty - Black Rabbit
-03. Mad Professor - Dub Dread
-04. Dennis Brown - Easy, Take It Easy(   Читать дальше...   )Жанр: Reggae, Riddim, Dub, SkaПродолжительность: 04:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7A3B957C54F391A1730708BDEB6D016D3C2592
 ```
 
 https://mybot314.ru/tekegram_catalog/

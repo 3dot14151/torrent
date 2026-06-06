@@ -1,32 +1,3 @@
-###  Публикация: 1136157   (676612) от 21.05.2017
-
-VA - Relaxing SPA Music Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676612.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Zen Soothing Sounds Of Nature - Natural Deep Breathing 3:31
-002.  Macerio - Sweet Dreams (Chill Mix) 7:04
-003.  Vitali And His Lounge Orchestra - Too Late 3:40
-004.  Tequila Sunset - Sea And Me (Feat. Snare) 4:00(   Читать дальше...   )Жанр: Downtempo, Chillout, RelaxПродолжительность: 08:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016E007770EC05F131764FF5D54112563FF17674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507623   (676513) от 11.06.2012
 
 VA - Инструментальная музыка (2012) vol. № 70 [MP3|320 кб/с]<Instrumental>
@@ -755,6 +726,35 @@ VA - Best Of New Age (2018) [MP3|256-320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEE26608D86D0AA9607616E92BE061064D17A597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294199   (629455) от 07.04.2019
+
+VA - SEXofon (Relaxing and romantic saxophone music) (2019) [MP3|320 Kbps] <Dream SAX, Romantic Relax, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fausto Papetti - I Just Called To Say 'I Love You' 3:12
+02. Gil Ventura - Love Story 3:51
+03. Peter Schilperoort Quintet - Petite Fleur 2:29
+04. Sil Austin - Unchained Melody 2:44(   Читать дальше...   )Жанр: Dream SAX, Romantic Relax, InstrumentalПродолжительность: 03:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ECB3D85754B70D54329549E955CA5CF37D66226
 ```
 
 https://mybot314.ru/tekegram_catalog/

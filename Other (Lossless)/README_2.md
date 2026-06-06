@@ -1,3 +1,61 @@
+###  Публикация: 1401575   (707521) от 11.08.2020
+
+The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breakaway (03:17)
+2. Jeepers Creepers (02:50)
+3. Piccolo Pete (02:58)
+4. The Very Thought of You (03:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03124F4B4561E290135534CBAB846C826C3A7777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 328145   (706993) от 11.08.2020
+
+VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armik - Sailing To Bimini (05:14)
+02. The Ventures - Blue Chateau (02:43)
+03. Hugo Strasser - Raindrops Keep Falling On My Head (02:30)
+04. Boris Zepyr - Fernando (04:25)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 03:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E66ABB2198EC3FA015AD9BA52933E092715E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472893   (696585) от 11.05.2017
 
 Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Trance, Instrumental>
@@ -787,64 +845,6 @@ Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148497   (603412) от 07.07.2017
-
-Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. The Love I Lost
-02. Satisfaction Guaranteed (Or Take Your Love Back)
-03. Be For Real(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 03:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDD75659B38FC441E7ED8F25AA5584D42A85D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297703   (603089) от 24.04.2019
-
-Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Атомы любви
-2. Перезагрузи
-3. Родины нет во мне
-4. Рядом с тобой(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
 ```
 
 https://mybot314.ru/tekegram_catalog/

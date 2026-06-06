@@ -1,3 +1,90 @@
+###  Публикация: 1020903   (743885) от 27.05.2016
+
+VA - Depth Of Perception: Uplifting Trance Mix (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Allen Belg - The Other Side (Original Mix) 08:04
+002. Ex-Driver ft. Julie Harrington - Aurora (Original Mix) 06:46
+003. Sean Mathews - Paradise (Andy Tau Remix) 07:08
+004. Adam Ellis & Katty Heath - Made It Through The Rain (Original Mix) 07:37(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4077F74E984221F7DA621089357A1966B69780F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020891   (743791) от 27.05.2016
+
+VA - Ibiza In The House (2016) [MP3|192-320 кб/с] <Trap & Bass, Urban, Electro, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Kuba & Ne!Tan Vs. Paul - Gangsta (Original Mix) 03:30
+02. Jack U (Skrillex & Diplo) - Take U There (Feat. Kiesza) 03:30
+03. Akcent Feat. Lidia Buble & Ddy Nunes - Kamelia (Dj Ackym Mombahton Remix Edit) 03:30
+04. Dekku - Rescue Me (Feat. Juliana Chahayed) 05:41(   Читать дальше...   )Жанр: Trap & Bass, Urban, Electro, Future HouseПродолжительность: 06:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC15084B9A45DA997DE71A11E5C54923ADC970F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282396   (743743) от 13.02.2019
+
+VA - Breaks Pro V.01 [Compiled by GvertO] (2018-2019) [MP3|320 Kbps] <Breaks, Electronica, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Fixx - Stars (Original Mix) [4:23]
+02. Borka FM - High (Original Mix) [5:56]
+03. Face & Book - Fuck Machine (Binary (SP) Remix) [3:41]
+04. NGHTMRE & Big Gigantic - Like That (Original Mix) [4:20](   Читать дальше...   )Жанр: Breaks, Electronica, Techno, TrapПродолжительность: 02:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2AFDAB929BDF35DB5CCCB83BD36779F6B638FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282587   (743739) от 13.02.2019
 
 VA - House Garden Music: Progressive Selection (2019) [MP3|320 Kbps] <Progressive, Dance House>
@@ -662,93 +749,6 @@ VA - Empire Records - Red Star 5 (2019) [MP3|320 Kbps] <SpaceSynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018743718D0E079587C24A0E397D6682B8B08214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283471   (739476) от 17.02.2019
-
-VA - Flower Sound Chill House (2019) [MP3|320 Kbps] <Chill, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Crossing Colors - Feel The Sun (Original Mix)
-002. Bearson Ft. Mndr - I Only Need One
-003. Imran Khan - Dark Waves
-004. Schwarz & Funk - Chudera(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E166F1BA1ABFCB0B09A5BEF603DF857E1FB669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525797   (739128) от 22.01.2022
-
-Tony Birch - Introspective Waves (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introspective (3:37)
-02. Sundown City (3:17)
-03. Into The Flow (3:33)
-04. Ocean Breeze (3:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F8F095DC46B847B377BDF80906E75B14D6CA1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525862   (738990) от 22.01.2022
-
-Space - Space Symphony (2022) 2CD Compilation [MP3|320 Kbps] <Electronic, Space Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prison (06:19)
-02. Velvet Rape (04:23)
-03. Voices of Jupiter (04:20)
-04. Mixed Up (05:44)(   Читать дальше...   )Жанр: Electronic, Space PopПродолжительность: 01:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F85608E3DA69B798D5AC650818A010DFFC4A1FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

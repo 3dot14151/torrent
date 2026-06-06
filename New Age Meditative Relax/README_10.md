@@ -1,3 +1,32 @@
+###  Публикация: 1027834   (694697) от 20.06.2016
+
+Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ufology
+02. Saucers over Stonehenge
+03. Suspended Animation
+04. Roswell (feat- Annaspaceia)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534111   (694253) от 02.03.2022
 
 Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kbps] <New Age, Ambient, Downtempo>
@@ -729,35 +758,6 @@ Kevin Wood - Eternal (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:748B28F22ED59492E99B7A48632233644056CA4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224481   (666008) от 10.05.2018
-
-Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days of Sorrow (3:26)
-02. The Return (5:06)
-03. Retired By a Mistake (3:18)
-04. Futura (4:50)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D040F7C50BCB1A70075FE0A9AF3993D39FDC15
 ```
 
 https://mybot314.ru/tekegram_catalog/

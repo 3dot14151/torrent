@@ -1,3 +1,138 @@
+###  Публикация: 979633   (958241) от 27.01.2016
+
+Проекты - BlueFX - Multi Cultural Package [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации.
+Используется в Adobe After EffectsФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C2B0FACAF5971617F933FA64A9B6975AA6EAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979628   (958238) от 27.01.2016
+
+Проекты - BlueFX - Locations Package [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации.
+Используется в Adobe After EffectsФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2209227E5C2B6862DF492966D2AAD1911930C1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979728   (958234) от 27.01.2016
+
+Проекты - BlueFX - Pets Package [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации.
+Используется в Adobe After EffectsФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40493624C7DFE10FFAB712E7E1AD0A7F8725B77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979723   (958224) от 27.01.2016
+
+Проекты - BlueFX - Office Character Package [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации.
+Используется в Adobe After EffectsФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A94821CCDFCED830EAE5CBAF77135196832D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979706   (958196) от 27.01.2016
+
+Проекты - VideoHive - Valentines Day - 14439869 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтический проект-открытка ко Дню Святого Валентина.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63592C69F8DF72233479373061B78272FAC81C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979719   (958139) от 27.01.2016
 
 Проекты - VideoHive - The Two Of Us Love Story Timeline & Save The Date - 13374987 [AEP]
@@ -559,140 +694,6 @@ New Zoom - динамичный и простой проект, для ваше�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0D9002BBB8540FFE6F396BDDF273D4675CB73B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361405   (955217) от 19.02.2020
-
-Проекты - VideoHive - Torn Paper Titles - 25779361 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955217.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Torn Paper Titles» - стильный элегантный проект для создания креативного слайд шоу.
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2881A087F0D399BF562F899F3AA0D77E1C3D3358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361411   (955204) от 19.02.2020
-
-Проекты - VideoHive - Photo Gallery - Memories Slideshow - 23933553 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект идеально подходит для любых видов слайд-шоу. Слайд-шоу воспоминаний, отпуск, свадьба, простое мероприятие, фотоальбом и многое другое. Минимальные титры, красивая камера, винтаж, история, стиль.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F6EEF7A62342C2DB91470224E8BA905A3775DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981026   (954498) от 30.01.2016
-
-Проекты - RocketStock - Primetime [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания динамичного фото-видео слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA94B1F86FA00C5B0C5D8774CE9DDE02E29C6880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980843   (954356) от 30.01.2016
-
-Проекты - VideoHive - Colorized Inkflow Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эффектного логотипа.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1485F565FCC92D44CA3A2C63AE28A9116A71D7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980726   (954265) от 30.01.2016
-
-Проекты - VideoHive - Summer Music Event [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект, который может быть использован для широкого спектра маркетинговых кампаний, особенно летние музыкальные концерты или фестивали, вечеринки, дискотеки и т.д.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A5A114ACCE08FF194E010ADA1D5FEC6A80500A
 ```
 
 https://mybot314.ru/tekegram_catalog/

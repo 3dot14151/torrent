@@ -1,3 +1,58 @@
+###  Публикация: 1430828   (169159) от 11.12.2020
+
+Windows 10, Version 20H2 with Update [19042.685] AIO 64in2 (x86-x64) by adguard (v20.12.09) [En/Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образов MSDN. Были интегрированы обновления по 8 декабря 2020 года, а также интегрирован SmartFix 2.3.7 и Microsoft DaRT.. В ней нет никаких косметических изменений и ничего не вырезано!Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A739EA8D6D307B1951B831935DFBF48672FA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824693   (136907) от 16.10.2025
+
+Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6456 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_sep_2025_x64_dvd_8ff5dabe
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
+Установлены обновления по 15.10.2025 года включительно(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73F214991544FA99DCDE55A6FB87878D044239A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825368   (136773) от 17.10.2025
 
 Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Windows Umbrella (v8, 10.2025) [Ru/En]

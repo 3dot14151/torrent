@@ -1,3 +1,148 @@
+###  Публикация: 992384   (900314) от 02.03.2016
+
+VA - Мой Любимый Русский Рок (2016) [MP3|128-320 кб/с] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900314.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Диалог - Kpacный poк
+002.Аракс - Чёрные Кони
+003.Мeтaллобoл - Звездный Кандидaт
+004.Poк-Ceнтябрь - Компpoмиcc(   Читать дальше...   )Жанр: RockПродолжительность: 19:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8823E22292D519B8CEFD9D19FA52C94888A2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369854   (899922) от 25.03.2020
+
+Ozzy Osbourne - 100% Ozzy (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ozzy Osbourne; Elton John - Ordinary Man
+02. Ozzy Osbourne - Under the Graveyard
+03. Ozzy Osbourne - Crazy Train
+04. Black Sabbath - Paranoid(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:22:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B80F3B536BF06AE8E4854D3404CCCAD4680FC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868226   (898899) от 10.02.2015
+
+Парк Горького (Gorky Park) - Коллекция легендарных песен (2014) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stare
+02. California Promise
+03. Five Wheel Drive
+04. Ego(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1398393E7CB17BC0A6BCF56917371403CEA58903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992897   (898733) от 03.03.2016
+
+VA - Rock Hits (Remastered by KronStudioLab) [4CD] (2015) [MP3|320 кб/с] <Rock, Hard Rock, Metal Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Hush (04:26) (1968)
+02. Led Zeppelin - Whole Lotta Love (05:33) (1969)
+03. Electric Light Orchestra - Don't Bring Me Down (04:08) (1979)
+04. Scorpions - Fly People Fly (05:04) (1974)(   Читать дальше...   )Жанр: Rock, Hard Rock, Metal RockПродолжительность: 04:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C468E9EBF97F835BAE55D8EA1019CCAD8802D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369987   (898260) от 26.03.2020
+
+ZZ Top - 100% ZZ Top (2020) [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Grange (2005 Remaster)
+02. Gimme All Your Lovin'
+03. Sharp Dressed Man (2008 Remaster)
+04. Got Me Under Pressure (2008 Remaster)(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 03:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210507E6D0F47E9C5D1F2B1EF2A3B9691B9DB268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370260   (898097) от 26.03.2020
 
 Rammstein - All Hits (1995-2019) Compilation by DON Music [MP3|320 Kbps] <Industrial Metal>
@@ -600,157 +745,6 @@ VA - Open-Road Essentials (2021) [MP3|320 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B714870157FB4B7AD31909D55E6AD8717126DE1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494641   (887455) от 08.09.2021
-
-VA - The Timeless Rock Classic Collection (2021) [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887455.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nazareth - Love Hurts
-002. The Stranglers - Golden Brown
-003. Uriah Heep - Free 'n' Easy
-004. Royal Blood - Out Of The Black(   Читать дальше...   )Жанр: Classic RockПродолжительность: 08:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E2CF50B3617E2A02FCE1702286057F3B8CE54B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372026   (887197) от 02.04.2020
-
-VA - Pandemic: Hardcore And Hard Rock Selection (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fists Of Time - Lifeless
-002. Elsewhere - Overwhelm
-003. No Home - Nothing Gold Can Stay
-004. Linkin Park - The Catalyst(   Читать дальше...   )Жанр: Hardcore, Hard Rock, MetalПродолжительность: 08:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1750D4A82361BDC07FDF6FD344086FEAF476320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372024   (887128) от 02.04.2020
-
-VA - Indie Night: Pop Rock Season Alternative (2020) [MP3|320 Kbps] <Indie, Pop, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887128.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Girl Ray - Show Me More
-002. Anthony Green - You're So Dead Meat Reimagined
-003. Brightness - Dallas
-004. Kate Davis - Animals(   Читать дальше...   )Жанр: Indie, Pop, RockПродолжительность: 08:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02026F43B23409171126F54BB70D9EA3B2AB845B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185777   (884850) от 23.03.2010
-
-VA - Русский Рок На Все Времена (2010) [MP3|128-256 kbps]<Русский Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_884850.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ддт - Дождь
-002. Б. Гребенщиков - Никита Рязанский
-003. Чайф - Не Спеши
-004. Аквариум - Скорбец (Radio Edit)
-005. Ундервуд - Парабеллум
-006. Тараканы! - Кто-То Из Нас Двоих
-007. Смысловые Галлюцинации - Вечно Молодой
-008. Ария - Воля И Разум 2005 (+бутусов, Кинчев, Самойловы И Шевчук)
-009. Танцы Минус - Город
-010. Мумий Тролль - Это По Любви(   Читать дальше...   )Жанр: Русский РокПродолжительность: 11:05:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373086   (881887) от 05.04.2020
-
-VA - 100% 70s Rock (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagles - Hotel California (2013 Remaster)
-02. AC/DC - Highway to Hell
-03. The Rolling Stones - Brown Sugar
-04. The Doors - Riders on the Storm(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 04:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33613EE4BA7522544A2C8EFF95AB6A0355F7889E
 ```
 
 https://mybot314.ru/tekegram_catalog/

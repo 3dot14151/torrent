@@ -1,3 +1,61 @@
+###  Публикация: 1002195   (848686) от 31.03.2016
+
+Elina Garanca - Romantique (2012) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  L'ai-je bien entendu? ... O mon Fernand! (Donizetti)  8:25
+02.  Mon coeur s'ouvre a ta voix (Saint-Saens)  6:15
+03.  Da, chas nastal! ... Prostite vi, kholmi, polya rodniye (Tchaikowsky)  6:26
+04.  Ou suis-je? ... O ma lyre immortelle (Gounod. Sapho)  7:55(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7CF47D7BAE46FE71733C85656EBE5E9D3F88C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002188   (848685) от 31.03.2016
+
+Elina Garanca - Arie Favorite (2002) [APE|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfgang Amadeus Mozart:
+01.  Non so Piu cosa Son  2:51
+02.  Voi Che Sapete  2:54
+03.  Den per questo Instante  6:22(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165CE16FFF09D8933B6E522B048DD0656B73E689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002204   (848681) от 31.03.2016
 
 Elina Garanca - Aria Cantilena (2007) [FLAC|Lossless|image + .cue] <Classical, Opera>
@@ -684,64 +742,6 @@ VA - Rainy Autumn Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5DCF0D1EFAECA270959C7A35600E289BDFADE5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112968   (839779) от 10.03.2017
-
-Boismortier - Motets avec symphonies (1991) 2004,  Accord [FLAC|Lossless|image + .cue] <Classical sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motet a Grand Choeur
-01. Symphonie et duo de basses tailles 2:21
-02. Choeur 2:12
-03. Recit basse taille 2:15(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01616280CC5248967712BAB954494FBC1B1536AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004467   (838049) от 06.04.2016
-
-Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch - Philadelphia Orchestra) (2012) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony no. 8 in G major, op. 88
-01 (1) Allegro con brio
-02 (2) Adagio
-03 (3) Allegretto grazioso(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F7103D323DA04A51C4B898BEF9EEE83AB7ECFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

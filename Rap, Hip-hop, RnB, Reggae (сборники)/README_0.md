@@ -1,3 +1,32 @@
+###  Публикация: 1459841   (1022998) от 03.04.2021
+
+VA - Dread Lion Dub (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub, Ska>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reggae — это путь. Это такая тропинка. Через тьму, через страх, через cвои собственные ночные кошмары. Если у тебя в груди живет боль, и ты поешь, ты играешь ее — ты выводишь ее в мир. Выводишь себя к свету.01. Max Romeo - Chi Chi Bud
+02. Prince Fatty - Black Rabbit
+03. Mad Professor - Dub Dread
+04. Dennis Brown - Easy, Take It Easy(   Читать дальше...   )Жанр: Reggae, Riddim, Dub, SkaПродолжительность: 04:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7A3B957C54F391A1730708BDEB6D016D3C2592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459850   (1022959) от 03.04.2021
 
 VA - Rap Blender Mix (Vol.03) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ VA - Reggae Hits (Presents: Elgujakviso) (2017) [MP3|210-320 Kbps] <Reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C502273248E7236B20651F91E0BE4FAC46EF378A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992568   (900701) от 02.03.2016
-
-VA - Collection Reggae (2016) [MP3|320 кб/с] <Reggae, Ska, Hip-hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bazzookas - Haha  02:28
-02. Manaky - Ain't Nobody  04:57
-03. Nas & Damian Marley - Africa Must Wake Up (f. K'naan)  06:40
-04. The Wailers Band - MY FRIEND  03:41(   Читать дальше...   )Жанр: Reggae, Ska, Hip-hopПродолжительность: 02:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029D879445419C715FCA04E9C6FF3B9CF17DFA1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

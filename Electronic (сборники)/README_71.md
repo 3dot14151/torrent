@@ -1,3 +1,90 @@
+###  Публикация: 1395168   (755580) от 10.07.2020
+
+VA - Beatport Disco House: Electro Sound Pack #125 (2020) [MP3|320 Kbps] <Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claborg - Twenty Four
+02. Jack Le Funk - Get Funky
+03. Eliezer - Crown Zero
+04. Paul Older - A Boo Kee Moon(   Читать дальше...   )Жанр: Disco, Funky HouseПродолжительность: 06:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79D14E1C63B3EBC1062053685D6B9E10E512707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395167   (755576) от 10.07.2020
+
+VA - Silent Prayer (2020) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755576.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. C.K.B. Magnetophon - Hello Phobos Hello Deimos
+002. Sol Oosel - In Allegiance To The Unknowable
+003. Jeb Ash - More Towards You
+004. Mauro Rawn - Soundtrack(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 10:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAB96AD80FBB721DD61034C6D01E54CDECB5A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522857   (754939) от 09.01.2022
+
+VA - E-Dance Tech House: Club Trendy Session (2022) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый трек в этом плейлисте имеет нечто особенное. Эти записи пробуждают очень много прекрасных чувств и воспоминаний, и я надеюсь, что то же самое произойдёт и с Вами.001. Eserex - Tricks & Sticks
+002. Danil Gurov & Broska - Hotta
+003. Paul Parsons - Dog Days
+004. Defunkt Hau5 - Poison(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 09:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C4868747CCE7B1CE57D50482CA7AFA6DB4582A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215871   (754853) от 28.03.2018
 
 VA - The Seven Sense (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -659,93 +746,6 @@ VA - Deep House Collection Vol.162 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04FF7F93016197FB9A4EF00247927899D5632323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216269   (751079) от 30.03.2018
-
-VA - Deep House Collection Vol.163 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751079.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 7even (GR) - Mystery  (Original Mix)
-002. Ada  -  Rostock  (Original Mix)
-003. Adelina  - Bye Bye  (Robert Cristian Remix)
-004. Ahmet Kilic - We Still Alive  (Extended Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D379026971AEC06D38225FEBE4CC3F7F2369FE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019532   (750340) от 23.05.2016
-
-VA - Incepto Music. 100Th Release (2016) [MP3|320 кб/с] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephen J. Kroos - Numb (SureICan Remix)
-02. Dimix - Turnover (Bicycle Corporation Remix)
-03. Monojoke - Deceitful (Forerunners Remix)
-04. 2NNEL - You (Katrin Souza Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF3737F05EE2987EFDB72342DC585773655EF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019407   (750339) от 23.05.2016
-
-VA - Pacific Progressive Trance (2016) [MP3|320 кб/с] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750339.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dennis Sheperd - Dive (Radio Edit) 3:48
-002. TrancEye - Aviator 7:05
-003. Yuri Kane - Running Wild (Radio Edit) 3:35
-004. Kaimo K - Afraid (Radio Edit) 4:16(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2EB7C7C0C13ADC03D7C08C89EED9202C6D104D
 ```
 
 https://mybot314.ru/tekegram_catalog/

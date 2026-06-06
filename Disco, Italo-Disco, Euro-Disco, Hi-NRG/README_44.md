@@ -1,3 +1,146 @@
+###  Публикация: 1516203   (166881) от 10.12.2021
+
+Disco Getters - Disco Disco Disco (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Girls (6:16)
+02. Boogie Wonderland (6:25)
+03. Ring My Bell (6:40)
+04. H.A.P.P.Y. Radio (6:21)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE713301E71A194BBEDA11695403F50F186221C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516682   (165345) от 12.12.2021
+
+Kelly Marie - 2 Albums (1976-1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Келли Мари (урожденная Жаклин Маккиннон, 16 октября 1957 года) - шотландская певица, наиболее известная песней "Feels Like I'm in Love", хитом № 1 в Великобритании в 1980 году.Список альбомов:
+1976 - Who's That Lady With My Man?
+1978 - Make Love To Me
+1979 - Do You Like It Like That(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 02:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18CF698751A3856B6BB48956A6887E335B9E7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432530   (164216) от 17.12.2020
+
+The Philarmonics - Philadelphia Disco (1977) LP [MP3|320 Kbps] <Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Elise (Beethoven) (4:39)
+02. Lullaby (Brahms) (4:10)
+03. Prince Igor 1st Theme From Polovetsian Dance (Borodin) (4:21)
+04. Symphony No. 5 From The New World (Dvorak) (4:30)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B45CF91F1A74F6358D9FCCA8110992048F0106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597772   (163258) от 18.12.2022
+
+Chester - Hold The Line (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold The Line (Extended Version)
+02. Hold The Line (Dub Version)Жанр: Electronic, Italo-DiscoПродолжительность: 00:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD8FD7FCD414E8C2D5A310763B51B8DE7A1D4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517335   (162889) от 15.12.2021
+
+Barbara Law - Take All Of Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take All Of Me (7:23)
+02. Can You Read My Mind (3:04)
+03. On My Own Again (3:51)
+04. I Just Live (3:53)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4032236D1A8D8E67F33F559EA41A88A2A0C61B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599573   (159637) от 24.12.2022
 
 VA - Nu-Disco & Re-Edits Vol.1 (2022) [MP3|320 Kbps] <Deep Disco, Funky, Soulful, Nu Disco>
@@ -600,151 +743,6 @@ Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastere
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7EEDF1F2B79E022F2DFCABB121EE2127888A52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678961   (141806) от 23.11.2023
-
-VA - Hit Lights '79 (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exile - Kiss You All Over (3:19)
-02. Smokie - Mexican Girl (3:32)
-03. Boney M. - Painter Man (3:07)
-04. Barry Manilow - Copacabana (At The Copa) (4:05)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783D57E52F22271097228E96695F0A1C8FF7B93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435971   (141771) от 29.12.2020
-
-Karen Silver - Hold On I'm Comin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On! I'm Comin' (7:22)
-02. Fake (6:21)
-03. Can't Stop Dancing (5:18)
-04. Hot Stuff (5:25)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14801F482BFA7603069CDF7DC2B67122813A2351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088332   (140728) от 30.12.2016
-
-Don Ray - The Garden Of Love (1978) LP (Sound from Cerrone) [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совместный студийный проект с Cerrone, принявшим участие в записи как ударник, клавишник, автор  и продюсер на своей студии звукозаписи Malligator.01. Got To Have Loving  (8:19)
-02. Body And Soul  (4:25)
-03. Midnight Madness  (5:44)
-04. Standing In The Rain  (6:36)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B6DB84A887736E8FB08A864901B49CB09E685C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195859   (139037) от 31.12.2017
-
-Calderon - Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dame Un Poco De Tu Amor (6:49)
-02. Mr. Pianoforte (5:22)
-03. Assassination (7:24)
-04. Latin Lover (7:12)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49736A12E370D38357C9FBEB23C4B1585055FF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195768   (138991) от 31.12.2017
-
-VA - Planet Italo Disco Vol. 7 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aldo Lesina – Another Time (Instrumental Version) 7:02
-02. Aldo Lesina – Castles And Dungeons (Instrumental Version) 5:07
-03. Aldo Lesina – Pain (Instrumental Version) 7:31
-04. Aldo Lesina – Tell Me Why (Instrumental Version) 7:01(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759542577262C161A442436FDC7FDD11401909F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

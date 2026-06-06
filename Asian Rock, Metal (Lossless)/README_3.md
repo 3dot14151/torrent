@@ -1,3 +1,58 @@
+###  Публикация: 1669392   (172067) от 20.10.2023
+
+Babymetal - Babymetal Begins - The Other One - Black Night & Clear Night (2023) The One Limited Edition, 2023, BMD Fox Records [FLAC|Lossless|tracks + .cue] <J-Metal, Modern Metal, Kawaii Me ...
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Black Night (DISC 01)
+Black Night (DISC 02)
+Clear Night (DISC 03)(   Читать дальше...   )Жанр: J-Metal, Modern Metal, Kawaii MetalПродолжительность: 4CD, 02:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097E95C7E8D7FE5299B56FB4C5FAFB8CA680F7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596779   (169071) от 11.12.2022
+
+Dragon Guardian - Destiny of the Sacred Kingdom (2012) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OvertureЖанр: Symphonic Power MetalПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379E5A9DD79B420D6128A68DCDCE5DD8BBDDA133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597410   (166743) от 14.12.2022
 
 Eizo Sakamoto - Speed Metal Show (1999) [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -578,6 +633,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 352193   (74077) от 04.02.2012
+
+A-Mei - 17 albums (1996-2011) Complete discography [FLAC|Lossless]<Chinese,Mandopop,C rock,R&B>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_74077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 给我感觉
+ 02. 日出
+ 03. 给我感觉(unplugged)
+ 04. 给我感觉(弦乐版)1996-2011Жанр: Chinese,Mandopop,C rock,R&BПродолжительность: 00:18:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799149   (66540) от 25.05.2025
 
 Galneryus - The Stars Will Light The Way (2024) Japanese Edition, Limited Edition [WavPack|Lossless|image + .cue] <Power Metal>
@@ -658,64 +742,6 @@ Isiliel - Moonbow Rebellion (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BCBDC4F547C0E9391BC95744F519C5E728469CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562227   (54690) от 01.06.2024
-
-Prompts - Fracture (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Nu Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54690.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Age of Fracture
-2. Face Me
-3. Asphyxiate (feat. Ryo Kinoshita of Crystal Lake)
-4. Be My Cure, Be My Pain(   Читать дальше...   )Жанр: Progressive Metalcore, Nu MetalПродолжительность: 00:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCF0209D596558FD950D9623AA6D92FFC144CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817345   (3445) от 10.09.2025
-
-Sigh - I Saw The Worlds End / Hangman's Hymn MMXXV (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный Hangman's Hymn, вероятно, один из моих любимых релизов в уникальном и стилистически обширном творчестве Sigh, и, как и у каждого их релиза, у него есть свои явные, хотя и очаровательные, недостатки. Я был особенно удивлен объявлением об этой перезаписи, учитывая их послужной список нераскаявшихся "странностей" на фронтах продакшена и микширования, (   Читать дальше...   )Act1
-01. Introitus / Kyrie 4:30
-02. Inked in Blood 3:13
-03. Me-Devil 3:19Жанр: Black Metal, AvantgardeПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDBE7C71A553B9FF2D24AAAB374B32974B1B10A
 ```
 
 https://mybot314.ru/tekegram_catalog/

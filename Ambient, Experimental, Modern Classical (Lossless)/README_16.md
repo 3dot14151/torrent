@@ -1,3 +1,90 @@
+###  Публикация: 1180152   (342807) от 03.11.2017
+
+Ghost And Tape - Vár (2017) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sprout (03:40)
+02. Eostre (05:03)
+03. Monarch (06:41)
+04. Hatch (02:50)(   Читать дальше...   )Жанр: Ambient, Minimal, Drone, ExperimentalПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4721A9421EB76EE0E1090FDC6BCB95C7DAE74D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180347   (342649) от 03.11.2017
+
+The Seven Fields Of Aphelion - Discography 2 Releases (2010-2017) Graveface Records, Rad Cult [FLAC|Lossless|tracks+.cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divining (Naming Of The Lost) (04:51)
+ 02. Horizon Obscure (02:01)
+ 03. The Crossing (02:25)
+ 04. Drift (Losing Light) (02:39)(   Читать дальше...   )Тип издания: CDЖанр: AmbientПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B87157FD109E7403E1494173F5EA85103B5A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419221   (342194) от 27.10.2020
+
+David Moufang - Solitaire (1995) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <Ambient, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In/Out (15:59)
+ 02. Mad Mood (07:23)
+ 03. Damaskus - Dakar (08:57)
+ 04. Indian Mantra (04:58)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266198DBE541CC8E13E83916E67C386011B48B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419378   (340118) от 28.10.2020
 
 Qik - Alba (2020) Aula Magna Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
@@ -654,93 +741,6 @@ Atrium Carceri & Cities Last Broadcast - Black Stage of Night (2019) Cryo Chambe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7D0B3D625FA3DB198ED57D1CC81A4C03D88AEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422849   (306288) от 10.11.2020
-
-Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306288.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Boy's First Kill (05:59)
-2. Cut Me Open (04:51)
-3. Facing the Laccadive (05:22)
-4. Alpine Swift (02:18)(   Читать дальше...   )Жанр: Ambient, Experimental, DroneПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44B07E681CDF1FBDFEA0446D0B4434987254BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848881   (304071) от 29.11.2016
-
-Nigel Stanford - Solar Echoes (2014) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo, New Age>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar Echoes (10:17)
-02. Entropy (09:02)
-03. Deep Space (08:05)
-04. Cymatics (04:46)(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 01:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC7E4A0B1A99949DC2C295B0BB871B50834B304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423414   (299797) от 13.11.2020
-
-Ana Roxanne - Because Of A Flower (2020) Kranky [FLAC|Lossless|WEB-DL|tracks] <Ambient, Contemporary>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (00:50)
- 02. A Study In Vastness (06:50)
- 03. Suite Pour L'invisible (07:01)
- 04. - - - (05:15)(   Читать дальше...   )Жанр: Ambient, ContemporaryПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F637F25A8DC01BEAD84F4D19E4865897B0CEE32F
 ```
 
 https://mybot314.ru/tekegram_catalog/

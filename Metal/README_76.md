@@ -1,3 +1,147 @@
+###  Публикация: 1072221   (354779) от 12.11.2016
+
+Freedom Call - Master of Light (2016) Limited Edition  [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Is For Everyone
+02. Hammer of the Gods
+03. A World Beyond
+04. Masters of Light(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22818E7B7E040CD49D6AF926547A6C91CC3EE678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329328   (354443) от 04.10.2019
+
+ЧУР - Four-faced (2019) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354443.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Goddess 06:35
+2.Four-faced 06:12
+3.Дике полеЖанр: Folk MetalПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD654186A706BFBF1A5CBC462409C5AF262FE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178945   (354088) от 29.10.2017
+
+Hanging Garden - I Am Become (2017) [MP3|320 Kbps] <Doom-Death Metal, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. As Above, So Below
+2. Hearthfire
+3. Elysium
+4. Our Dark Design(   Читать дальше...   )Жанр: Doom-Death Metal, Post-MetalПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46009425DCD1678247098807E326F21403703D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178958   (353976) от 29.10.2017
+
+Winds of Plague - Blood of My Enemy (2017) [MP3|320 Kbps] <Symphonic Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Day
+02. Nameless Walker
+03. Kings Of Carnage
+04. Soul Eater(   Читать дальше...   )Жанр: Symphonic Metalcore, DeathcoreПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6F684B2DC7EA98F8F7A2F2816DAD5D7C37603C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072284   (353768) от 12.11.2016
+
+Korn - The Serenity Of Suffering (2016) Japanese Edition [MP3|320 кб/с]<Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353768.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:50] 01. Insane
+[03:33] 02. Rotting In Vain
+[04:01] 03. Black Is The Soul
+[04:22] 04. The Hating(   Читать дальше...   )Жанр: Alternative Metal, Nu-MetalПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6B82B8947EC5FC5B0C23E6BD3E2E7894BDBAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417832   (353685) от 22.10.2020
 
 Parsifal - Mountain King (2020) [MP3|320 Kbps] <Epic Heavy Metal, Power Metal>
@@ -602,151 +746,6 @@ Dr. Living Dead! - Cosmic Conqueror (2017) [MP3|320 Kbps] <Thrash Metal, Crossov
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:459731621AB6F3B2FB1481D66E6FF6ACC0FD3C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578211   (348073) от 22.09.2022
-
-Novichok - Geo-Desiccant (2022) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thrash Free or Die!
-02. First World Problems
-03. Tire Fire
-04. Apes with Sticks(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD28A61CE1C1F4F0DF7A68C115FB57855C61D591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578215   (348069) от 22.09.2022
-
-Confessions of a Traitor - Punishing Myself Before God Does (2022) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punishing Myself Before God Does (4:09)
-02. Hearts of Stone (3:32)
-03. Lovecraft (3:43)
-04. Forever Hollow (feat. Brian Wille of Currents) (4:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB870DA569228F4CE5FDD27134B026FCB18C9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578111   (348068) от 22.09.2022
-
-Infidel Rising - 3 Albums (2015-2022) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State Of Dysphoria [00:01:03]
-02. All The Fear [00:04:59]
-03. Silence Of The Night [00:07:26]
-04. Ov Wormwood [00:05:14](   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 03:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207CB97B19D8416159E82EFE3BD5B143DF682855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578212   (348066) от 22.09.2022
-
-Vermilia - Ruska (2022) [MP3|320 Kbps] <Atmospheric Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alkusointu [00:01:55]
-02 - Marras [00:05:41]
-03 - Hautavajo [00:05:33]
-04 - Kuun Tytär [00:05:53](   Читать дальше...   )Жанр: Atmospheric Pagan Black MetalПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F058809390F6C7D02388F65D5E0A6D09E3F56C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073138   (347952) от 15.11.2016
-
-Conflict Theory - Monologue (2016) [MP3|320 Kbps] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cognitive Dissonance 03:26
-02. Shadows of the Financial District 03:23
-03. Vulnerability Index 04:33
-04. Substance Abuse 03:19(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D06C57EE12A3613467F357EE51D963AE8CA2460
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 974815   (975805) от 12.01.2016
+
+VA - Tech House Masters Fresh (2016) [MP3|259-320 кб/с] <Deep House, Minimal, UK Jackin, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Derek Howell - Lickety Split (Original Mix) 08:12
+02. Jim Noize - Amplify (Radio Edit) 03:59
+03. Perseus Traxx - Harmony Of Elements 07:31
+04. Mcmxc - 12 Dec / 13 Jun 04:11(   Читать дальше...   )Жанр: Deep House, Minimal, UK Jackin, SoulfulПродолжительность: 09:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788651B60DB6BD1DCFED4C1B544205ADA6E90903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974180   (975800) от 12.01.2016
+
+VA - EdShar Music (10.01.16) [MP3|128-320 kbps]<DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliverse - Wormholes (03:20)
+02. Jarvis & Roughmath - Time (feat. Ivy J) (04:21)
+03. BH & Kirk Cosier - Slipping Away (feat. Cheney) (03:49)
+04. Tristam - My Friend (04:22)(   Читать дальше...   )Жанр: DubStepПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57142A50E04C73342F4F18A67B6AD557340207ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974810   (975795) от 12.01.2016
+
+VA - Alive Strong Best Of Hits (2016) [MP3|262-320 кб/с] <Electro, Club, Bigroom, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canberra - Rebirth
+02. Exis - Manifestation (Original Mix)
+03. The Fish House - Venture (Original Mix)
+04. Fedde Le Grand - The Noise (Original Mix)(   Читать дальше...   )Жанр: Electro, Club, Bigroom, Future HouseПродолжительность: 03:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0A06BF10E41F279A8A5C4F16C1AD5B83AB4975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357026   (975544) от 02.02.2020
 
 VA - Record Super Chart 623 (2020) [MP3|320 Kbps] <Pop, House, Dance>
@@ -664,91 +751,6 @@ VA - Beatport Top 100 (15.01.2016) [MP3|320 кб/с] <House, Electro, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C1CA919AF9917C3FB508F1BA83133C802EB4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975736   (970186) от 16.01.2016
-
-VA - Promo DJ Top 100 Remixes Winter 2015-2016 (2016) [MP3|320 кб/с] <Club House, Vocal House, Electro House, Club, Trance, House, Deep House, Progressive, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970186.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Disciples - How Deep Is Your Love (DJ Shevtsov Remix) 05:01
-002. IOWA - Одно и то жеЖанр: Club House, Vocal House, Electro House, Dance, Club, Trance, House, Deep House, Progressive, Chillout, Dubstep, PopПродолжительность: 07:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C74BDF5B4AA687F8A3678276506FE0F705C070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976486   (969844) от 17.01.2016
-
-VA - Winter Chill Essentials (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Diggs - Ojala
-02. Lemon Grass - It's Easy
-03. Groovecatcher - Shifting Skies
-04. Madison Park - Don't Let Go(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1ED29BD1479C7CE8E41135EC667E9F514F2002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976148   (969841) от 17.01.2016
-
-VA - Super Bomb Electro 54 (2015) [MP3|320 кб/с] <Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 22Bullets - It's Time (Original Mix) (4:33)
-02. Alvaro & D-Wayne - Take U (Original Mix) (4:20)
-03. Apashe, Sway - I'm a Dragon (Jaycen A'mour Remix) (5:18)
-04. Apster - Get Down Like That (Original Mix) (4:09)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0286981BE50AFD711C1F090A07F4F240BC65119E
 ```
 
 https://mybot314.ru/tekegram_catalog/

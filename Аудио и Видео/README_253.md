@@ -1,3 +1,380 @@
+###  Публикация: 1428259   (180933) от 01.12.2020
+
+VA - Good Morning Lounge: Chillout Your Mind (2019) [AAC|~309 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Silver Drops (Original Mix) (5:53)
+02. Michael e - It's Your Time (Original Mix) (6:05)
+03. Charlie North - Early Morning Call (Original Mix) (5:43)
+04. Finland & Aaskoven - Melzi (Original Mix) (4:19)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7160EC85EEA83594B150737E910BF4EE5262098E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428252   (180920) от 01.12.2020
+
+VA - Lovely Evening Lounge: Chillout Your Mind (2019) [AAC|~316 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Watching the Sky Go By (Original Mix) (5:28)
+02. Michael e - Conversations (Chill Mix) (5:50)
+03. Weathertunes - People Love (Original Mix) (4:47)
+04. Chillson, Marc Hartman - The Streets of Love (Original Mix) (3:52)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BAEB0F09B44632932F7BBEF2661E8011469377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428167   (180908) от 01.12.2020
+
+VA - Joyful Lounge: Chillout Your Mind (2020) [AAC|~302 Kbps] <Chillout; Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Grooves - Secrets (Original Mix) (4:21)
+02. Mission Brown - Same Old Temptations (Original Mix) (4:34)
+03. Ingo Herrmann - A New Day Is Dawning (Original Mix) (3:37)
+04. Luis Hermandez - A Tu Lado (Original Mix) (4:06)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3296963CF7974DB07894014C1EFEDE51CF29F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428270   (180903) от 01.12.2020
+
+VA - Jazz Leaves Lounge: Chillout Your Mind (2019) [AAC|~326 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Away in a Dream (Original Mix) (5:33)
+02. Michael e - Conversations (Original Mix) (5:26)
+03. Mission Brown - Starting Over (Original Mix) (4:53)
+04. Beamy - Azure Waters (Chillout Mix) (5:24)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D831C24F1EAF5146818F991E827313C54AFF452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428113   (180892) от 01.12.2020
+
+VA - Silent Day Lounge: Chillout Your Mind (2020) [AAC|~321 Kbps] <Chillout; Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Day Dream On (Original Mix) (3:52)
+02. Michael e - Conversations (Chill Mix) (5:50)
+03. Chillson, Marc Hartman - Giant Steps (Original Mix) (3:50)
+04. Johannes Huppertz - At Frederun (Original Mix) (4:28)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FFA690D4A5140AAE9056F38D044ADC7229B7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428174   (180881) от 01.12.2020
+
+VA - Beautiful Morning Lounge: Chillout Your Mind (2020) [AAC|~312 Kbps] <Chillout; Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Blue Haze (Original Mix) (4:53)
+02. Marga Sol - Beautiful Morning (Seven24 & S.A.T Remix) (5:04)
+03. Gary B - World Feel (Original Mix) (4:05)
+04. Charlie North - A Quiet Life (Original Mix) (6:24)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D8026A3C3D900B9BF9FE6B6F4ED4C6EA12859A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428245   (180857) от 01.12.2020
+
+VA - Asian Heart Lounge: Chillout Your Mind (2019) [AAC|~331 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage Of Deep - The Mountain (432Hz) (7:25)
+02. Stuce The Sketch, Vini Hush, Derek Mwensi - Enchanted Mara (4:44)
+03. La Estación Del Mar - A Flute in the Mood (Original Mix) (3:26)
+04. Eskadet - Jade (Original Mix) (7:25)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9193B0DC83D2F8B33B064139E0C47004E2914ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428277   (180855) от 01.12.2020
+
+VA - White Sensation Lounge: Chillout Your Mind (2019) [AAC|~321 Kbps] <Chillout, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eskadet - Lost in Your Eyes (Original Mix) (6:05)
+02. Peter Pearson - A Rose for You (Original Mix) (5:39)
+03. Elmara - In Time (Original Mix) (4:21)
+04. Michael e - As Far as the Eye Can See (Original Mix) (8:18)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9D2B2B04FE52AD922114F698BF90D7FF2CFB8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428158   (180841) от 01.12.2020
+
+VA - Trip to Munich Lounge: Chillout Your Mind (2020) [AAC|~320 Kbps] <Chillout; Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Liege - Stream of Love (Original Mix) (4:20)
+02. Chillson, Marc Hartman - Easy Does It (Original Mix) (4:05)
+03. Michael e - Cafe Con Leche (Original Mix) (6:29)
+04. Pier-O - Elisa's Story (Space Dream Mix) (5:14)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2217F6BCD417FA8C0E5D83057E207EEE97F04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428114   (180832) от 01.12.2020
+
+VA - Pop Vocal Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Chillout; Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - A Tu Lado (Original Mix) (4:06)
+02. Florzinho, Ma'deevah - Take Me Higher (Original Mix) (3:32)
+03. Man In A Room, Sanura - Thief of Time (Original Mix) (4:36)
+04. Mission Brown - Same Old Temptations (Original Mix) (4:34)(   Читать дальше...   )Жанр: Chillout; LoungeПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5122005915D52B0DE0C30BF02346DB725A058D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428410   (180195) от 02.12.2020
+
+Mirko Hirsch - Missing Pieces: Return to Neon (Special Edition) (2020) [AAC|~347 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return to Neon (4:33)
+02. Pandora's Box (Remix) (5:02)
+03. Heart on Fire (4:34)
+04. When Love Said No (4:22)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD3F1E7A056E06B2E0AC8CFF63E6D2360A9A9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428518   (180123) от 02.12.2020
+
+VA - Cinderella, vol. 3 (50 Lovely Lounge Cookies) (2019) [AAC|~329 Kbps] <Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightgroovaz - Mesmerized (Original Mix) (4:29)
+02. Bossasonic - Better Never (Original Mix) (3:56)
+03. Jazzamor - Dreamer (Original Mix) (6:00)
+04. The K2 Project - Drinks at Sunset (Original Mix) (4:48)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 03:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC3E07C2AA4201391D1489F5807279F4B77DBCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428497   (180114) от 02.12.2020
+
+VA - Cinderella, vol. 2 (50 Lovely Lounge Cookies) (2019) [AAC|~313 Kbps] <Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien Café - Sundae Dream (Original Mix) (4:31)
+02. Yves St. Pierre - Only Presence (Original Mix) (2:53)
+03. Flashbaxx - So Close to Midnight (Original Mix) (5:23)
+04. James Butler - Montmartre Impressions (Original Mix) (2:04)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 03:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7DA9EB7FB95EF50DAD74E8F29D9839046B649B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428345   (180087) от 02.12.2020
 
 VA - Modern Blues (2020) [AAC|~313 Kbps] <Rock, Blues>
@@ -368,380 +745,6 @@ Ad Infinitum - Chapter I Revisited (2020) [AAC|~338 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90EF941542240F72AA885F406FBF8B14008B0E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428924   (178402) от 04.12.2020
-
-VA - Armada Christmas Dinner Mix (2020) [AAC|~312 Kbps] <Pop, House, Dance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Clement Leroux, Emma Hoet - U Got My Heart (Mixed) (Christmas Mix) (3:58)
-1.02. AmPm, Michael Kaneko - Best Part Of Us (Mixed) (Acoustic Version) (2:33)
-1.03. Shallou - Heights (Mixed) (3:29)
-1.04. Lost Frequencies - Are You With Me (Mixed) (Christmas Mix) (1:52)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB30E7A289FCC373B0D9611843213A2AF78E049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429041   (178362) от 04.12.2020
-
-Мумий Тролль - После Зла (2020) [AAC|~361 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солист (4:02)
-02. Собаки (2:04)
-03. Лира (3:06)
-04. Лето без Интернета (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59406759DC7ABBBA97AF9D2C485C479584B5B32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428918   (178352) от 04.12.2020
-
-Алсу - Я хочу одеться в белое (2020) [AAC|~328 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не молчи (3:59)
-02. Вольтер (4:22)
-03. Я хочу одеться в белое (4:51)
-04. Алсу, Микелла - К тебе (4:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF74C56A2E54EF64B01001FB8EB84F492AEE011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429043   (178350) от 04.12.2020
-
-Мумий Тролль - Призраки Завтра, часть 2 (2020) [AAC|~349 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Космические силы (Acoustic) (2:28)
-02. Призраки завтра (Acoustic) (3:39)
-03. Мумий Тролль, Saint Mesa - Ghosts of Tomorrow (3:41)
-04. Charan-Po-Rantan - Cosmic Force (3:33)Жанр: RockПродолжительность: 00:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8A3FD0CB1AB7936EF40E5A09B2C66DA19BB8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429095   (177701) от 05.12.2020
-
-VA - Winter Lounge Mood: Chillout Your Mind (2020) [AAC|~308 Kbps] <Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mission Brown - Savage (Original Mix) (6:22)
-02. Marga Sol - Follow You (Original Mix) (4:10)
-03. Chillson, Marc Hartman - For a Time (3:20)
-04. Clelia Felix - Keep Watching the Stars (4:17)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B049B7D9C92335013B396E43A53290EC114E7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429097   (177683) от 05.12.2020
-
-VA - All Night Jazz: Chillout Your Mind (2020) [AAC|~317 Kbps] <Lounge, Chillout, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Micarelli - La Genesi Del Fraseggio: Another Me, Another You (1:01)
-02. Belinha Bossa Duo - Carinhoso (4:34)
-03. Raquel Silva Joly - Estate (4:26)
-04. Lisa Maroni - Eu Sem Voce (Instrumental) (5:15)(   Читать дальше...   )Жанр: Lounge, Chillout, JazzПродолжительность: 01:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595E479B65063043E9EEA229679F59D7F4443A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429075   (177632) от 05.12.2020
-
-##### - Новые пророки (2020) [AAC|~356 Kbps] <Rock, Alternative>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кибер-диктат (0:55)
-02. Новые пророки (3:35)
-03. Холивар (4:42)
-04. Джохацу (2:48)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6E6629914348A4C5A71E97C197A9E08F261078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429378   (176786) от 06.12.2020
-
-Ночные Снайперы - Remixes (2020) [AAC|~325 Kbps] <Electro, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Актриса (remix) (2:55)
-02. Инстаграм (remix) (4:02)
-03. Раскаленные (remix) (3:58)
-04. Нелюбовь (remix) (3:13)(   Читать дальше...   )Жанр: Electro, PopПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABCA2726E650CFAB08FF409CC1D831C81192998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429582   (176772) от 06.12.2020
-
-Buddha Bar - Buddha-Bar Elements (2020) [AAC|~324 Kbps] <Electronic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176772.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Tebra - Jovano (6:33)
-1.02. Kled Mone - Manastir (6:06)
-1.03. Tebra - Sve na Crno (6:58)
-1.04. Calavera Manya - Mir (6:32)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2671CDFB6D6FE39CC28BC638C2368BA9704591F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429381   (176760) от 06.12.2020
-
-Ани Лорак - Неизданное (2020) [AAC|~254 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бегущая по волнам (2:08)
-02. Бывшая (1:28)
-03. Дождь для нас (3:18)
-04. Мышка (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1EE542C70A6ECAF62C4DF2E8095DCED6EFFEE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429567   (176664) от 06.12.2020
-
-Dua Lipa - Future Nostalgia (2020) [AAC|~311 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (3:05)
-02. Don't Start Now (3:03)
-03. Cool (3:30)
-04. Physical (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9115F8EA47DE9EBE55C017470BDF0978B6D56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429571   (176605) от 06.12.2020
-
-Dua Lipa, The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [AAC|~299 Kbps] <Electro, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (Joe Goddard Remix)Жанр: Electro, PopПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1981D63829B85B67B26C17F5E2478A33F65167F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429623   (176052) от 07.12.2020
-
-Uniform - Shame (2020) [AAC|~334 Kbps] <Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delco (4:36)
-02. The Shadow of God's Hand (3:54)
-03. Life in Remission (4:26)
-04. Shame (4:02)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D5EC5FFAF7DA96C4D6582EF6087B84DF2B6234
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 1029689   (678471) от 28.06.2016
+
+VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678471.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daniel Moss & Gandalf Bosch Feat. Francy -  Mi Alma (Instrumental Edit) 3:17
+002. KSHMR & Felix Snow feat. Madi -  Touch (Runway Remix) 4:56
+003. Hardwell feat. W&W -  Jumper (Madd Dave Bootleg) 4:53
+004. Robin Schulz feat. Akon -  Heatwave (Muzzaik Remix) 4:17(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511301DAC97601D4003016B1BE0F9AA95330C9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029687   (678467) от 28.06.2016
+
+DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678467.jpg" />
+</div>
+
+
+###  Подробнее
+
+СборникЖанр: House, Dance PopПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B058F1D4B5B34E4829C0C5548AF403127C650D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290489   (678371) от 20.03.2019
+
+VA - YR Best Chillout Vol.41 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Seven24 & Soty feat. Maria Opale - Don't You Cry (Alexander Volosnikov Remix) 4:59
+002. Rank1 - Airwave (Vyacheslav Sketch Remix) 5:49
+003. Aurosonic feat. Katty Heath - My Good Place (Mark Otten Downtempo Remix) 7:00
+004. Vyacheslav Sketch - Forever (Original Mix) 4:13(   Читать дальше...   )Жанр: Chillout, Downtempo, Lounge, Trap, Ambient, ElectronicaПродолжительность: 06:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6A4554FA17F21009B4D923ACD1D50B80B35322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290484   (678357) от 20.03.2019
 
 VA - YR Best Chillout Vol.40 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Balearic>
@@ -667,93 +751,6 @@ VA - Digitize Just A Dream (2016) [MP3|320 Kbps] <Trance, Energy, Melodic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D45833B1EAC24C10EA92E878CFB025B0C5E8D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030529   (674998) от 30.06.2016
-
-VA - Club Continued Sound Places (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674998.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Schweizer -  Renegade (Extended Mix) 5:41
-002. Andrew Rayel -  Epiphany (Extended Mix) 4:53
-003. Orkidea -  Nana (Jerome Isma-Ae Remix) 6:51
-004. Tiesto & Bobby Puma -  Making Me Dizzy (Extended Mix) 4:40(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 09:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA02169F6D1B1586D278BA508842EC890A41CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030402   (674988) от 30.06.2016
-
-VA - Dj Sound Club Flash Colours (2016) [MP3|240-320 Kbps] <Club, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674988.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Gollum & Empyre One - Let The Love Shine (Radio Edit) 03:34
-002. Dj Eddy-N Feat. Iva & Heat - Be Free (Club Electro Remix 2K13) 05:04
-003. Dj Dan - American Girls (Club Mix) 06:54
-004. Dj Kay Huff - Don't Let Me Down (Roby Arduini Main Floor Mix) 04:48(   Читать дальше...   )Жанр: Club, House, ElectroПродолжительность: 09:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0102EA56D71D4283D197AAD24EB546145597A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030505   (674978) от 30.06.2016
-
-VA - Bar Grooves Vol.3- From Groovy Lounge to Soft Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luigi Seviroli - Lifesource - Full Mix
-02. Jolstone - Distances - Full Mix
-03. Luigi Seviroli - Silky - Full Mix
-04. Giacomo Bondi - One Room Heart - Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D54CCF6BD9EE78A0FC7419CDABBE2C00E4148C
 ```
 
 https://mybot314.ru/tekegram_catalog/

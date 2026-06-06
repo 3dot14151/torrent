@@ -1,3 +1,61 @@
+###  Публикация: 701625   (474277) от 19.09.2013
+
+Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image + .cue] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equinoxe Part 1 (2:26)
+02. Equinoxe Part 2 (5:00)
+03. Equinoxe Part 3 (5:10)
+04. Equinoxe Part 4 (6:59)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82163399DE3FD901D9F41769D0CC1E1518636DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058563   (468832) от 01.10.2016
+
+Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks] <Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Meditation [00:12:15]
+02. Believe the Mental Power [00:13:20]
+03. On the Wings of Time [00:13:17]
+04. Reincarnation [00:08:22](   Читать дальше...   )Жанр: MeditationПродолжительность: 01:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA244E70745E24651D5FA118BC5C81A8DC8AC3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245978   (467787) от 08.09.2018
 
 VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -687,64 +745,6 @@ Thierry David - Zen World (2006) 2008, Real Music [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81E22DE6C09E0EDEA3461EAFC416A978BC786D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411421   (427557) от 25.09.2020
-
-Hiroka Matsuda - The Black Fire Original Image Album (1987) [FLAC|Lossless|tracks + .cue] <New Age, Minimal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Fire (5:34)
-02. Market (3:49)
-03. Dim Soul (5:26)
-04. Searcher (3:50)(   Читать дальше...   )Жанр: New Age, MinimalПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC5F4D7C9F6B69D59D72C8B1AEE968E7D7A8210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946844   (424428) от 14.10.2015
-
-Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [FLAC|image+.cue]<Ambient, New age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Time Machine (feat. Boys Noize)
-02. Glory (feat. M83)
-03. Close your eyes (feat. AIR)
-04. Automatic (part 1) (feat. Vince Clarke)(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F4769D1FAB4E832FD308625DE97D0C1592D461
 ```
 
 https://mybot314.ru/tekegram_catalog/

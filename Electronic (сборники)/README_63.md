@@ -1,3 +1,90 @@
+###  Публикация: 1209646   (779263) от 27.02.2018
+
+VA - Deep House Collection vol.159 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Снова вместе (Vadim Adamov & Hardphol Remix) 3:50
+02. A&G, Northmark feat. Gabrielle Ross - Run With Me (A&G, NorthmaAeris Remix REMASTERED 2k18) 4:56
+03. A-Mase & Sharliz - My Love (Deep Radio Mix) 3:29
+04. A-Mase feat. Rave CHannel - Just Be (Deep Radio Mix) 3:48(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049270735CF86475E944CBF356F6943279F1B831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209643   (779251) от 27.02.2018
+
+VA - Melodic Vocal Trance: Beautiful Radio Edit (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779251.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Ana Criado  -  Vulnerable (Denis Kenzo Edit)  4:17
+002.  Giuseppe Ottaviani feat. Kyler Eng  -  Firefly (Omnia Remix)  3:32
+003.  Allen Watts  -  Break Without The Pain (Original Mix)  6:06
+004.  Raz Nitzan feat. Maria Nayler  -  Nothing Breaks Like A Heart (Radio Edit)  4:20(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 08:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E90A49DF6D53A6605631217932A5ACECA9C062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209440   (779218) от 27.02.2018
+
+VA - Need For Speed Vol.12 (2018) [MP3|320 Kbps] <House, Hands Up, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jens O.  -  Day After Day (Extended Mix)  3:45
+02.  Imagine Dragons  -  Whatever It Takes (Andy Light & Ramirez Remix)  3:21
+03.  Ha-Ash feat. Abraham Mateo  -  30 De Febrero (Ghostly Raverz! Bootleg Edit)  3:49
+04.  DJ Gollum & DJ Cap  -  Oxymorons 2018 (Extended Mix)  5:00(   Читать дальше...   )Жанр: House, Hands Up, DanceПродолжительность: 05:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A6341D00FDAD4F6EBEBEC90D0E2DF01389229D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209761   (779154) от 28.02.2018
 
 VA - Psychometry: 100 Psy Goa Trance (2018) [MP3|320 Kbps] <Psy, Goa Trance>
@@ -658,93 +745,6 @@ VA - 100 Ultimate Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FF1466AE9F7DA6DDBF6E28CC956BDF818C9E02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013615   (777663) от 04.05.2016
-
-VA - TOP 100 Club Tracks (April) (2016) [MP3|160-320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace - Of Bass (Original mix)
-02. al l bo - Intergalactic (MAVIE Remix)
-03. Alessia Cara - Wild Things (NuKid Remix)
-04. Alex Kafer & Lera - Ничего не говори (Рок Острова Cover extended)(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 07:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903848EB4A543CC137F057E7CF0DDE865D6D7DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013186   (777647) от 04.05.2016
-
-VA - Workout Motivation Mix (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker -  Faded  3:33
-02. Alesso -  Sweet Escape  3:53
-03. Alexis Jordan -  Acid Rain  3:37
-04. Anastacia -  I'm Outta Love  4:18(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 03:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08AAA264EA1CC67339D6CFE558D8DA4E7E9349F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013604   (777624) от 04.05.2016
-
-VA - TOP 100 Deep House (April) (2016) [MP3|24-320 кб/с] <House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriatique - Soul Valley (Original Mix)
-02. Alok & Fractal System feat. Bea Jourdan - Don't Ya (Lodeek Remix)
-03. Alok & Fractal System feat. Bea Jourdan - Dont Ya (MichaelBM & Minow Remix)
-04. Andre Queiroz - The Temple (Original Mix)(   Читать дальше...   )Жанр: House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech HouseПродолжительность: 11:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD6C7596FC4642283AF25E4B48AC6CF494E56BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

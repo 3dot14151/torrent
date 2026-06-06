@@ -1,3 +1,61 @@
+###  Публикация: 1253457   (381619) от 10.10.2018
+
+Daniel Deluxe - Corruptor • Instruments of Retribution (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firewall (3:16)
+02. Cypher (3:53)
+03. Price of Progress (3:53)
+04. Silent Kings (3:11)(   Читать дальше...   )Жанр: Electronic, Synthwave, Darkwave |Продолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB76C159AEBB9A8BC5F81F0A16EA902EDFFEA756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574710   (381558) от 07.09.2022
+
+Purple Fog Side & Elsehow - How To Disappear (2022) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Post-Punk, Dreampop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To the Moon and Back (00:05:46)
+02 - Running on My Mind (00:04:19)
+03 - State of Grace (00:05:33)
+04 - Shading a Life (00:05:20)(   Читать дальше...   )Жанр: New Wave, Post-Punk, DreampopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFAD724A6971D67C5179E9A79E1C72644A29101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326980   (380914) от 22.09.2019
 
 VA - The Best Electronic Album In The World... Ever! (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue] <Synth-Pop, Electro, Dance>
@@ -693,64 +751,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE15385EC2BBE44A66D38144976800527BC949D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257476   (345641) от 26.10.2018
-
-Scandroid - Scandroid (2016) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2517 (4:39)
- 02. Salvation Code (5:50)
- 03. Aphelion (5:35)
- 04. Shout (3:58)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE91BE630528828E53159541094614A77DB96E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257277   (345492) от 26.10.2018
-
-Scandroid - Dreams In Monochrome (2018) FIXT Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow (Michael Oakley Remix) (3:36)
- 02. Rendezvous (VHS Dreams Remix) (3:52)
- 03. Monochrome (Sunset Neon Remix) (3:34)
- 04. Time Crime (Turboslash Remix) (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE5483AE89A454B4A8ABAD11720D99D3FA52B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

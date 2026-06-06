@@ -1,3 +1,90 @@
+###  Публикация: 1694500   (121002) от 25.01.2024
+
+VA - 100 Hits Ultimate Number 1s (2016) 5 CD [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Jacksons - Show You the Way to Go
+02.  Bay City Rollers - Bye Bye Baby
+03.  Tony Orlando & Dawn - Knock Three Times
+04.  Middle of the Road - Chirpy Chirpy Cheep Cheep(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57BC8F35C77219B2482D1C93C7049F0D222B4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694612   (120835) от 26.01.2024
+
+VA - 100 Hits Supersonic 70's (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock, Latin, Funk / Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eric Carmen - All By Myself
+02.  Harry Nilsson - Without You
+03.  Sad Cafe - Every Day Hurts
+04.  Smokie - If You Think You Know How to Love Me(   Читать дальше...   )Жанр: Pop, Rock, Latin, Funk / SoulПродолжительность: 05:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27B8253BAB7A80CF3D9DCF7CCC003F4FA318DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694727   (120795) от 26.01.2024
+
+VA - Bravo Hits 107 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tones And I - Dance Monkey
+02.  DJ Snake & J Balvin &Tyga - Loco Contigo
+03.  Lena X Nico Santos - Better
+04.  Ava Max - Torn(   Читать дальше...   )Жанр: Electronic, Hip Hop, Pop, RockПродолжительность: 02:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F66A25C1D08313ACB325226BDB4412227B47A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694848   (120653) от 27.01.2024
 
 VA - Bravo Hits 30 (2000) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Funk / Soul>
@@ -658,93 +745,6 @@ Luther Vandross - Luther (1976) Remaster, 2024, Legacy Recordings [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C48F8149BD8E0AA755B4E218D76A06B8233E21D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724960   (109142) от 22.05.2024
-
-VA - The Classic Dance Remixes (Arthur Baker Presents Dance Masters John Luongo) (2023) 4CD, Limited Edition [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - The Best (Extended Mighty Mix) (6:35)
-02. John Waite - Missing You (Extended Mix) (7:02)
-03. Billy Idol - Eyes Without A Face (Full-Length Version) (4:59)
-04. Rick Springfield - Human Touch (Extended Mix) (7:20)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, EuropopПродолжительность: 05:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414EE83EFBCF5D8DA2492FFDAF6CDBA918C2652C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725156   (109055) от 23.05.2024
-
-VA - Nothing But... Pure Dance, Vol. 20 (2024) [MP3|320 Kbps] <Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viktor Vos - Neuro (05:24)
- 02. Cookie - Cookie 21 (Radio Edit) (02:40)
- 03. Viktor Vos - Love The Way (04:14)
- 04. Geo Da Silva, George Buldy - Doctor Beat (03:37)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2215D34988DEFB81842848A0686C09D95CFFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726247   (108835) от 27.05.2024
-
-VA - Nothing But... Pure Dance, Vol. 21 (2024) [MP3|320 Kbps] <Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levi Kreis - Tell Me Twice (Jared Jones Remixes) (Jared Jones Radio Mix) (03:23)
- 02. Onur Aktemur - Look At My Eye (02:45)
- 03. Jarah Damiel, Tara Louise - Tired Of Being In Love (02:03)
- 04. Ben Neeson - Movin' On Up (Radio Edit) (03:30)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E2B47E91459782CEE7B79776EC213FB60661EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

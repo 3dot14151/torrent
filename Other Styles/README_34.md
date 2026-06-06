@@ -1,3 +1,351 @@
+###  Публикация: 1002499   (846832) от 01.04.2016
+
+Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Have You Kept Your Ticket 04:06
+02 Flying Clouds (feat. Phoenix Pearle) 03:40
+03 These Days (feat. Sena) 03:53
+04 Inside Galaxies (feat. Phoenix Pearle) 03:50(   Читать дальше...   )Жанр: Chillout, Lounge, PopПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203A489A4E12A0A854A4FAAC1B82D70A47801F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378595   (846600) от 25.04.2020
+
+Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craft of War [02:13]
+02. Blood Crave [01:52]
+03. Bleak Profecy [02:15]
+04. Dark Ritual [01:54](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2EE74C6D5F8BC654620BAF9FD66DD8ED272350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378593   (846599) от 25.04.2020
+
+Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wicked [02:35]
+02. The Freak [02:05]
+03. Megaprimatus [03:16]
+04. Creature [02:22](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888537672FE146D2C9B9AC29DA00EE1FE5E05B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111911   (846572) от 06.03.2017
+
+VA - Somewhere My Love: Romantic Guitar  (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chet Atkins - Somewhere My Love (Lara's Theme From Dr, Zivago) (2:39)
+02. Laurindo Almeida - The Girl From Ipanema (2:30)
+03. Gregg Galbraith - Mack the Knife (Moritat) (2:23)
+04. Francis Goya - You Belong to My Heart (Solamente Una Vez) (3:07)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C9DA02FA91367EA57CA98109DC5772C1C569BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378594   (846538) от 25.04.2020
+
+Atom Music Audio - Dystopia (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Dimension [02:31]
+02. Dystopia [02:16]
+03. Portal [02:41]
+04. Blackhole [03:28](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624976A3B62CA56E191E9FF75BA768AD3BA8C110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378596   (846537) от 25.04.2020
+
+Atom Music Audio - Heroes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. United [02:53]
+02. Fly Like a Bird [02:58]
+03. Just a Man in a Suit [02:46]
+04. Not a Hero [02:52](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32EB5F31833D7490478FC89A5ECE28C8CA099E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002407   (846509) от 01.04.2016
+
+VA - Одинокий пастух (2001) 2 альбома, Compilation [FLAC|Lossless|tracks] <Pop, Classic, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.Clayderman - Gemini    03:10
+02. Caravelli ORC. - Flash bach    03:09
+03. G.Zamfir - Ave maria    04:43
+04. Space - Just blue    04:30(   Читать дальше...   )Жанр: Pop, Classic, Instrumental |Продолжительность: 02:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80328B946D38F40F7173F589EA1ECE762BEB695D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110827   (846311) от 06.03.2017
+
+The Legend of Zelda 30th Anniversary Concert (2017) 2CD+DVD, Limited Edition [FLAC|Lossless|image + .cue] <Soundtrack, Symphonic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846311.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD#01
+01. Hyrule Castle (2:29)
+02. Zelda's Theme (3:02)
+03. The Wind Waker Medley (11:23)(   Читать дальше...   )Тип издания: Commercial, Limited EditionПроизводство: NIPPON COLUMBIAЖанр: SymphonicПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9849B0855787EFF2D79A2ACF9F063478B734BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003044   (845099) от 02.04.2016
+
+Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [FLAC|Lossless|tracks + .cue] <Score / Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malaguena - Brian Setzer
+02. Traeme Paz - Patricia Vonne
+03. Eye Patch - Alex Ruiz
+04. Yo Te Quiero - Marcos Loya(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73BBFE8A32773A4A937F8EB80D6871FB8C7ADE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111938   (845052) от 07.03.2017
+
+Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Heart [00:04:17]
+02. Unspeakable Love [00:06:44]
+03. Sunshine Mind [00:04:36]
+04. March 5th [00:06:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D6DDEDA18C01900885184C9B0CB1EDDB240A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003171   (845019) от 02.04.2016
+
+VA - Los clasicos argentinos Tango - Vol.08  - Roberto Goyenche: El cantor de Buenos Aires (1996) [MP3|128 кб/с] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Gardel - El dia que me quieras
+02. Floreal Ruiz - Por la vuelta
+03 Alberto Marino - Tres amigos
+04. Astor Piazzolla - Orgullo criollo(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B9B7F01A586483ADD2077259563311927A23A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003061   (845012) от 02.04.2016
+
+Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [MP3|320 кб/с] <Score / Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malaguena - Brian Setzer
+02. Traeme Paz - Patricia Vonne
+03. Eye Patch - Alex Ruiz
+04. Yo Te Quiero - Marcos Loya(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709649576D1AD87A3917614E0E79EA3E9438D221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111994   (844960) от 07.03.2017
 
 VA - 50 Sleep Better: Relaxing Beach Ocean Waves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, New Age>
@@ -391,361 +739,6 @@ Armik - Romantic Spanish Guitar Vol. 1,2,3 (2014-2016) [MP3|320 кб/с] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE4173075C4B5DB9F64AC278ACECCA5630A31723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378705   (840692) от 28.04.2020
-
-Nicholas Gunn - Pacific Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840692.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into the Vastness	04:55
-2. And I	03:13
-3. Sailing	04:25
-4. Chasing the Light	04:23(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401077FD743A38CC3E58D74BBBC9AAFC761C1899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003472   (840196) от 05.04.2016
-
-Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dentist Theme (1 & 2 Combo)
-02. Toothache
-03. Not Again
-04. Perfect Fit(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DFBEB7FA3A3683C73688372F5374E656BA16D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757071   (839206) от 29.04.2020
-
-Diane Arkenstone - Jewel in the Sun (2002) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jewel in the Sun (6:35)
-02. Adrift (5:20)
-03. Under the Blue Sky (5:06)
-04. Beyond Borders (6:07)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94D5014C66120360BAB2BE692F0AB76967DCC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113056   (838525) от 11.03.2017
-
-Bridget McMahon - Celtic Woman - Black Is the Colour (2016) Single [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celtic Woman Black Is the Colour [00:04:55]Жанр: New Age, VocalПродолжительность: 00:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C40C317F2219E9A2CBF795163D90DCB2A89B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004269   (838395) от 06.04.2016
-
-Harry Manfredini - House & House II: The Second Story / Дом & Дом 2: Проклятая обитель (1986, 1987) [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Opening Titles
-02. The Abduction
-03. Hey, Rog!
-04. A Fiery SandyWitch(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21494EB112A12044F4AB9D535272D18BC5DCC949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113184   (838320) от 11.03.2017
-
-VA - 50 Healing Music. Deep Relaxation Therapy: Sleep Easy, Soothing Massage, Music Wellbeing and Mindfulness (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenity Music Relaxation - Healing Music: Deep Relaxation Therapy
-02. Healing Meditation Zone - Relaxation Meditation Music
-03. Spa Music Paradise - Deep Sleep Music
-04. Peaceful Sleep Music Collection - Stress Relief Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E129F3E5F920A662C1DEB08CEEFF1AB8BB54AF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751230   (837551) от 30.04.2020
-
-Adventure Cargo (Diane & David Arkenstone) - African Skies (2003) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The River Winds Thru the Night (14:45)
-02. Safari on the Serengeti (15:28)
-03. Voices in the Jungle (13:33)
-04. Horizon of Stars (15:43)Жанр: New AgeПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5387DCA4317EF47606BF59B24E47DB36C0CB7546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818572   (837467) от 30.04.2020
-
-Chrystalia Ensemble - Angels Of Healing (2000) [FLAC|Lossless]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837467.jpg" />
-</div>
-
-
-###  Подробнее
-
-(25:45) 1. Angels of Healing I
-(26:07) 2. Angels of Healing IIЖанр: New age, RelaxПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD1A07D205DE916AF33A7F3EA3B8368937231C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310318   (837304) от 18.03.2011
-
-Jesper Kyd - Assassin's Creed: Brotherhood OST (2010) [MP3|320 kbps]<Game OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borgia Occupation 3:01
-02. Master Assassin 3:19
-03. Cesare Borgia 2:59
-04. Infiltrating the Borgia Castle 2:34
-05. City of Rome 5:31
-06. The Brotherhood Escapes 2:01
-07. Brotherhood of the Assassins 3:02
-08. The Pantheon 3:04
-09. Villa Under Attack 2:11
-10. Echoes of the Roman Ruins 2:50(   Читать дальше...)Жанр: Game OSTПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBAB9E34F06EE2A14B1705EB36D0F5278598037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310267   (837216) от 18.03.2011
-
-The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanna's theme [02:08]
-02. Escape 700 [05:16]
-03. Chalice 1 [00:47]
-04. The devil is in the details [03:22]
-05. Map sounds - Chalice 2 [00:15]
-06. The forest [01:07]
-07. Quayside synthesis [01:21]
-08. The sandman [01:45]
-09. Marissa flashback [02:44]
-10. Bahnhof rumble [02:37](   Читать дальше...)Жанр: Techno, Big-BeatПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A73D1528F265B578663D7C89EF74FE6F06C5C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004607   (836890) от 07.04.2016
-
-Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude and Pursuit
-02. Descent to Fortress
-03. Forbidden Dream
-04. Kick Fight(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA62B713BA169F6A393DC76BC26176FE92991B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004663   (836786) от 07.04.2016
-
-Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cantos I
-02. Cantos II
-03. Cantos Profanae
-04. Cantos IV(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1878B8ABDB884145E00CC2324CB0EE02D3AF2071
 ```
 
 https://mybot314.ru/tekegram_catalog/

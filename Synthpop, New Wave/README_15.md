@@ -1,3 +1,119 @@
+###  Публикация: 1755709   (40090) от 17.10.2024
+
+Lusa - The Colour Of Space (2024) [MP3|320 Kbps] <Electronic, Synthpop, Pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TMAAS (with Beth Malcolm) (4:37)
+02. Probably (with Beth Malcolm) (3:55)
+03. Hawea (6:06)
+04. Crosses (with Beth Malcolm) (5:51)(   Читать дальше...   )Жанр: Electronic, Synthpop, PopПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5F840C059C2FF1B34DE68265A10EC9447D2191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759087   (38086) от 06.11.2024
+
+Blondie - Live In Boston 1978 (2024) HQ Remastered [MP3|320 Kbps] <New Wave, Punk, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In The Sun [00:03:49]
+02 - X Offender [00:03:05]
+03 - Hanging On The Telephone [00:02:04]
+04 - Detroit 442 [00:02:50](   Читать дальше...   )Жанр: New Wave, Punk, Synth-popПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19DFFE8897D729B208F53FA7DEDEB8AEBE73B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763841   (35312) от 03.12.2024
+
+Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Feature Presentation [00:00:20]
+02 - Murder Miami 1983 [00:03:41]
+03 - Renegade [00:03:09]
+04 - Higher [00:03:55](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB82A332DC8B39CFB49CB76412BD6FC1E3C30EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768629   (33034) от 25.12.2024
+
+Yuri Sosnin - New Times (2024) [MP3|320 Kbps] <Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Dawn (6:13)
+02. A New Reality (6:08)
+03. New Times (6:20)
+04. Awakening (4:50)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA9C473D82BF3AB974792BA32ECFE656D5B49E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768638   (33031) от 25.12.2024
 
 Yuri Sosnin - Travel into Space (2024) [MP3|320 Kbps] <Spacesynth>

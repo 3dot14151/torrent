@@ -1,3 +1,29 @@
+###  Публикация: 947611   (418115) от 17.10.2015
+
+Обои - Реки 16 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему рекФормат: JPGРазрешение файлов: 1920x1080 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A18872D97A94D10CAB063CF95B7D051CE2ABE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947605   (417976) от 17.10.2015
 
 Обои - Amazing Abstract Wallpapers [JPG]
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC0C393F4FB5DF423340E9A861DE9229937D14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561437   (406158) от 17.10.2012
-
-Wallpaper & Pictures: 3D Art Wallpapers: Collection#1 [Графика]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wallpaper & Pictures: 3D Art Wallpapers: Collection#1
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF28F3C5F38202C67CAC21EFE1A184480760A55E
 ```
 
 https://mybot314.ru/tekegram_catalog/

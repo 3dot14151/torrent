@@ -1,3 +1,90 @@
+###  Публикация: 1360526   (242758) от 15.02.2020
+
+VA - 100 Greatest Throwback Songs (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242758.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Jess Glynne - Hold My Hand (3:47)
+2.Jason Derulo - Trumpets (3:37)
+3.Flo Rida - Whistle (3:44)
+4.Bruno Mars - Treasure (2:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256BA6FEC0259C938A2F23A43E35C65D972D4BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624537   (242423) от 06.04.2023
+
+VA - Mega Hits 2014 (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OneRepublic - Love Runs Out
+02. Katy Perry - Dark Horse
+03. Avicii - Addicted To You
+04. Sam Smith - Stay With Me(   Читать дальше...   )Жанр: PopПродолжительность: 03:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D98AE3D7510AE76C5AC85BBB82EA0D5F86721B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624549   (242255) от 07.04.2023
+
+VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-ha - Take on Me
+02. Buster Poindexter - Hot Hot Hot
+03. Billy Ocean - Caribbean Queen (No More Love on the Run)
+04. Bangles - Walk like an Egyptian(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E8271EE0E27BA693CD0787AC51873CF41C4539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372326   (242111) от 03.04.2020
 
 Corine - Un air de fete (2018) [MP3|320 Kbps] <Dance-Pop, Disco, Chanson>
@@ -657,93 +744,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC8B7D64ABC639B314B53ABE7A0878A5E12B06BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627954   (239355) от 21.04.2023
-
-Ани Лорак - Остров (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239355.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лабиринт
-2. Обратный отсчет
-3. Рядом, но не вместе
-4. На мели(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368263337D983AF873431FBFCA7A9B590DC2D637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622891   (239041) от 30.03.2023
-
-VA - Select Mix Essentials Vol. 193 (2023) [MP3|320 Kbps] <Disco, Synthpop, Rap, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gayle - Abcdefu (Select Mix Remix)
-02. Juice Wrld, Justin Bieber - Wandered To La (Select Mix Remix)
-03. Drake, Future, Young Thug - Way 2 Sexy (Select Mix Remix)
-04. 24kgoldn - More Than Friends (Select Mix Remix)(   Читать дальше...   )Жанр: Disco, Synthpop, Rap, R&BПродолжительность: 00:40:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2CD01598E9CED817E012DBBB2AB3CADE8D2449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638516   (238995) от 09.06.2023
-
-VA - Acoustic Delight (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vance Joy - Riptide
-02. Ed Sheeran - Castle on the Hill (Acoustic)
-03. Christina Perri - A Thousand Years
-04. Coldplay - Everglow(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 02:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0B406E2DEC028211E197DEDEF978BCF53E032B
 ```
 
 https://mybot314.ru/tekegram_catalog/

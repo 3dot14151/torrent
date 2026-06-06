@@ -1,3 +1,115 @@
+###  Публикация: 1191059   (265930) от 11.12.2017
+
+Векторный клипарт - Vector Woman Accessories Collection #5 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Женские аксессуары
+50 Ai Jpg PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC29374F83B4BEDBBB36ED9819379C3BF85A0AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339612   (265301) от 20.11.2019
+
+Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vol2 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Векторный набор Нового года 2020
+13 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E27C0F24AE2C9E71797A393D40C715C48452D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339613   (265256) от 20.11.2019
+
+Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vol4 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Векторный набор Нового года 2020
+16 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B554CEC0E236D2AC7FF55E3815E5FF4177ADB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339616   (265249) от 20.11.2019
+
+Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vol3 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Векторный набор Нового года 2020
+15 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9F4AC4E890284E57DF1176AB4EA7697F581685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191286   (264480) от 13.12.2017
 
 Векторный клипарт - Vector Drinks Collection #2 [AI]
@@ -605,118 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA7B191C060FDE6C0F161BB1D42E1F424A0C3AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193647   (261944) от 22.12.2017
-
-Векторный клипарт - Ornate Vintage Frames 53 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Декоративные винтажные рамы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD998D1BB14FF29B58587CEE9DCA3546D99F83F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193642   (261928) от 22.12.2017
-
-Векторный клипарт - Fotolia - Nature & Landscape Village [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Природа и ландшафтная деревня
-25 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF02AD407D68C3F77BBDFCF810AE9277A63482E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193634   (261913) от 22.12.2017
-
-Векторный клипарт - Fotolia - Merry Christmas Collection #6 [EPS, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С Рождеством Христовым
-25 EPS, SVG + PREVIEWФормат: EPS, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0B3FC79B4FEB2CDA60A8230258F85F08FF8C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193932   (261778) от 23.12.2017
-
-Векторный клипарт - Vector Roses Collection #20 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Коллекция векторных роз
- 25 Ai +Jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAE72172AB4B3F199480FB899E0CAC4B96CF848
 ```
 
 https://mybot314.ru/tekegram_catalog/

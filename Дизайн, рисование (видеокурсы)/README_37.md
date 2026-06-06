@@ -1,3 +1,29 @@
+###  Публикация: 1544405   (621886) от 15.04.2022
+
+Allegorithmic, What's New in Substance Designer 5, Wha's New in Substance Painter 1.5 | Wes McDermott (2015) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти видеоуроки являются логическим продолжением урокам в продукцию продукцию Allegorithmic более раних версий, в данных видео будут показаны нововведения последних крупных обновлений Substance Designer и Substance Painter, всё такое информативное видео по новым возможностям и преимуществам последних версий программ все тот же Вес Мак Дермонт.Производство: Allegorithmic, What's New in Substance Designer 5, Wha's New in Substance Painter 1.5Жанр: Цифровая живописьЯзык озвучки: РусскийПродолжительность: 03:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C85B91329694525AFFEA02FC6B45AD0B50B662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544418   (621876) от 15.04.2022
 
 Levelup.Digital, Daniel Thiger | Plaster Wall with Parameter-driven Bullet Holes (2019) PCRec [EN, RU]
@@ -663,33 +689,6 @@ ArtStation, Amir Kabiri | 8 Facade Material: Building Material + Tutorials (2021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31AB6A5A39A9FDE161E352137C92A113D2AD5A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547170   (603305) от 27.04.2022
-
-MIX Training, Varomix | The Nature of Vex (2019) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603305.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последнее время VEX стал одной из самых популярных частей Houdini и действительно необходимым навыком для TD и Houdini FX Artist. С момента внедрения VEX в Houdini он постоянно развивался и в последнее время стал очень важным элементом в арсенале технических директоров, художников и всех, кому в Houdini необходимы пользовательские инструменты.
-В этом курсе вы увидите (   Читать дальше...   )Производство: MIX TrainingЖанр: 3D-моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 08:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0744F060B70C794CC061C992E16B380592041CDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

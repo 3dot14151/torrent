@@ -182,6 +182,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953902   (346364) от 05.11.2015
+
+Проекты - VideoHive - The Park Photo Gallery [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_346364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект на весенне-летнюю тематику.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D887578590FF2A0887BC64C8DCC2B84356FB62A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953765   (346230) от 05.11.2015
 
 Проекты - VideoHive - Old Memories Album Gallery [AEP]
@@ -657,32 +684,6 @@ VideoHive - Trendy And Stylish Slideshow - 2564009 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C904F0578E4453A64A4F96B5542A7A97BDD04540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180184   (341747) от 03.11.2017
-
-Проекты - VideoHive - Ink Slideshow - 19740122 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ink Slideshow - проект для создания элегантного слайд-шоу с красивыми и необычными переходами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C2C3D2B27B960F19BFDD7443EF82E39FBBB360
 ```
 
 https://mybot314.ru/tekegram_catalog/

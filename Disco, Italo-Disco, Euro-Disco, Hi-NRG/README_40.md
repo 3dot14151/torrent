@@ -1,3 +1,148 @@
+###  Публикация: 1649850   (228570) от 29.07.2023
+
+Narada Michael Walden - The Dance Of Life (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul, Jazz-Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're So Good (6:05)
+02. I Shoulda Loved Ya (6:38)
+03. Lovin' You Madly (5:18)
+04. Crazy For Ya (3:56)(   Читать дальше...   )Жанр: Disco, Funk / Soul, Jazz-FunkПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DCC4A20C5F242DADFCAA57B004A03ECC04943D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513060   (227638) от 27.11.2021
+
+Chatelaine - Chatelaine (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corps A Corps In Love We'll Be (6:28)
+02. Je Vis Ma Vie (3:20)
+03. Je N'ai Que Toi (4:25)
+04. I Wouldn't Give You Up (2:59)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7ED6292146AFE84DBE7029E0768561D9228F95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513129   (227401) от 27.11.2021
+
+Wham - Wham! (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovemaker (5:06)
+02. In Love With Love (3:05)
+03. Say What (2:37)
+04. Prison Of Love (3:04)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C11C4DEF4E8D71D289D88BE09098C25FAAD4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513021   (227343) от 27.11.2021
+
+Phylicia Allen - Josephine Superstar (1978) LP [MP3|320 Kbps] <Funk Soul, Disco, Ballad>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (0:32)
+02. Medley - Saint Louis, Broadway, Star Of Paris (10:47)
+03. Around The World (4:39)
+04. Medley - Two Loves Have I (J'ai Deux Amours), Josephine Superstar (7:37)(   Читать дальше...   )Жанр: Funk Soul, Disco, BalladПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6838D82C78FF5785F6055A3B61BAD984BE940502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268657   (226449) от 11.12.2018
+
+VA - Venti Compilation 5 (2018) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleph - I'm On Fire (7:29)
+02. Robert Camero - Welcome Back (7:13)
+03. Max System - You Bring The Sun (6:04)
+04. Ryan Paris Feat Mauro - Buona Sera Dolce Vita (7:22)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F525BB19C79BDAD964B9391692BD0328D706C5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342049   (225969) от 01.12.2019
 
 Weapons Of Peace - Weapons Of Peace (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -603,151 +748,6 @@ VA - ZYX Italo Disco Spacesynth Collection 9 (2023) 2CD, Compilation [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD467ED7CA1F96EAA9F2D23D3540A00B6397AAA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640408   (211236) от 17.06.2023
-
-VA - Nu Disco 2023 (Best Of Disco House) (2023) [MP3|320 Kbps] <Nu-Disco, Disco House, Indie Dance, Soulful>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Karma Is A Killer (Makin Bakin Remix)
-02. Softmal - Ladies Night (Radio Edit)
-03. Lissat - Sweet Disco (Nu Disco Mix)
-04. Da Clubbmaster - La Tribu De Dana (Saint Tropez Capz Club Mix)(   Читать дальше...   )Жанр: Nu-Disco, Disco House, Indie Dance, SoulfulПродолжительность: 01:04:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A863002A53DB26123A6C1FFCE2D2D45027C11EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641005   (210996) от 20.06.2023
-
-The New Topnotes - Where Do We Go From Here? (1978) LP [MP3|320 Kbps] <Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For My Mama (3:30)
-02. Just The Way You Are (5:15)
-03. Emotion (4:34)
-04. Be Good To Me (3:10)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477683A6926E915B081A0974AD767459AB3F5234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587350   (192861) от 30.10.2022
-
-VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, Euro-Disco, Progressive, Electro Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cappella - Move On Baby (Mike Candys Remix)
-02. Mauro Picotto - Komodo (Klaas Remix Extended)
-03. Niels Van Gogh - Tell Me Why (Extended Mix)
-04. Deep Divas - Uh La La La (Original Radio Mix)(   Читать дальше...   )Жанр: Italo-Dance, Euro-Disco, Progressive, Electro PopПродолжительность: 01:02:49 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C31D0876DC5476FB569C638E5BC690EF0932B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588008   (192125) от 02.11.2022
-
-VA - Keep It Disco Vol. 05 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.P.V. - Boogying (Original Mix)
-02. Vinny Terranova - I'm The Same Boy (Original Mix)
-03. DJ Patisso - Hold On (Original Mix)
-04. HP Vince - Funky Africa (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:05:27 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97D7FFC94C56C4FA5A55AE32340B524AD9069D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588217   (191816) от 03.11.2022
-
-Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Drive Me Crazy
-02. Anything
-03. I Miss You
-04. I Love The Way You Are(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

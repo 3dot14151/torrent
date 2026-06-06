@@ -446,6 +446,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302710   (579264) от 17.05.2019
+
+Обои - Desktop Wallpapers Full HD. Part (438) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813E9D4B877336A8B907700B21DF31CE9BD09E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302711   (579207) от 17.05.2019
 
 Обои - Desktop Wallpapers Full HD. Part (439) [JPG]
@@ -650,36 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F994707797C835E10E5F7251323ACBCE0C0EABE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526450   (574587) от 27.07.2012
-
-[Wallpapers] 35 Ultimate Light Effects Volume 3 – GraphicRiver
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Световые эффекты Том 3
-Пакет содержит готовые к использованию 35  прозрачных PNG файлов с высоким разрешением
------------------------------------------------------------------------------------------------------------
-
-Item – 35 Ultimate Light Effects Volume 3 | Pack contains ready to use 35 high resolution transparent PNG files with pixel dimensions 4000×2000.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBC5F568B82F706C2CBE6EE8E26135715445505
 ```
 
 https://mybot314.ru/tekegram_catalog/

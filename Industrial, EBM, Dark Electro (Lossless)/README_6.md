@@ -1,3 +1,32 @@
+###  Публикация: 1637292   (230817) от 04.06.2023
+
+Stahlnebel & Black Selket - Time Between Passion & Despair (2019) Limited Edition [FLAC|Lossless|image + .cue] <EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breed My Hate
+02. Deeper
+03. A Fatal Desire (Hocico Cover)
+04. Pädophilie(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB8F19BFEE68CC47E1239A24AC7B15EA9D85EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649503   (229146) от 28.07.2023
 
 Qulonium - Hexia (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Industrial>
@@ -714,35 +743,6 @@ Peter Andersson (raison d'etre, Atomine Elektrine, Necrophorus, Bocksholm, etc..
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:990D32C4B3E2EB738E4E3A59D2FA8616D1E0B99D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432204   (165221) от 16.12.2020
-
-Witch of the Vale - Commemorate (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Electro, Synth-Goth>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something Lost [00:01:16]
-02. Fever [00:04:19]
-03. Trust the Pain [00:03:19]
-04. Undressed [00:04:51](   Читать дальше...   )Жанр: Gothic Electro, Synth-GothПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F9D0880DA2CC5EECCF3ECE5231C3FCEA7EDCAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

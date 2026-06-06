@@ -1,3 +1,32 @@
+###  Публикация: 1432204   (165221) от 16.12.2020
+
+Witch of the Vale - Commemorate (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Electro, Synth-Goth>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something Lost [00:01:16]
+02. Fever [00:04:19]
+03. Trust the Pain [00:03:19]
+04. Undressed [00:04:51](   Читать дальше...   )Жанр: Gothic Electro, Synth-GothПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F9D0880DA2CC5EECCF3ECE5231C3FCEA7EDCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362336   (162934) от 18.12.2020
 
 Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Synthpop, Industrial>
@@ -715,35 +744,6 @@ Persher - Sleep Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7716807BFC768D800F0FD1E4CDA980BA078BAE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719475   (110576) от 29.04.2024
-
-Sacrothorn - Та сторона (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вольт [00:03:36]
-02. Карта за картой [00:03:22]
-03. Дверь без веры [00:03:57]
-04. Злой язык [00:03:26](   Читать дальше...   )Жанр: Dark ElectroПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9139AA4BF60D6D6D000DA8B1D64E84E78ABBD0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

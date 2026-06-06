@@ -1,606 +1,22 @@
-###  Публикация: 1569319   (453654) от 12.08.2022
+###  Публикация: 1162382   (458447) от 01.09.2017
 
-WinBin2Iso 5.66 Build 001 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами крошечная утилита, которая была разработана компанией Nenad Hrg с целью помочь пользователям быстро и качественно преобразовать образ компакт диска формата BIN в более распространенный и удобный для работы формат ISO, особенно пригодится если вы не хотите пользоваться для выполнения этой задачи большими программами, которые зачастую стоят денег и занимают (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C732BAA5A6B0C4DBFD6841BDCD37406A0774FC68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 826689   (453640) от 30.09.2014
-
-Журнал | Playboy [Украина] №10 (октябрь 2014) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy (Плейбой) — имя, ставшее легендой. Популярнейший во всем мире глянцевый мужской журнал появился в России в 1995 году и очень быстро стал самым востребованным изданием в своей категории. Playboy охватывает очень широкий тематический спектр: самые красивые женщины мира, эффектные пикториалы и эксклюзивные съемки знаменитостей, яркие фоторепортажи со светских (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7938F25DA44FD4C5DABD2E27F777A826A343E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551051   (453630) от 24.09.2012
-
-VA - Avto Club September Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Rodrigezz - Dutch Bitch (Album Extended Mix) Fuckin House
-02. Anton Neumark, Johnny Beast - We Rock The Party (Techno Logic Remix)
-03. Frankie T - Star (Original Mix) Skat Records
-04. Dunjinz - Orc (Original Mix) THaF Records
-05. Christopher S - Miss You Tomorrow feat. Manuel (Original Mix) Sirup Music
-06. Atomic Electrolab - Mucker Lucker (Original Mix) Toast & Jam Recordings
-07. Transformer di Roboter - Baghdad Disco
-08. Hot Shit - 26 Years Old (Original Mix)
-09. K12 - Rocknroll (Original Mix)
-10. Wrestling Gang Bang - Shake (Troublegum Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BE7F78E1D50B14894FF039A5328FEE27015AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551467   (453626) от 24.09.2012
-
-Psidream & Pacific - Golden Oldies Selection Vol. 1 (2008) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pacific - City of Glass
-02. Pacific - Less than A Second
-03. Pacific - Lust
-04. Pacific - Shine Thru
-05. Pacific - Unspoken
-06. Psidream - Hidden Planet
-07. Psidream - Mnemonix
-08. Psidream - Pantheon
-09. Psidream - Secret Life
-10. Psidream - ShapeshiftПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49007FD6A1AA09112840FD8F3CF58D4AF24E3E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550480   (453624) от 24.09.2012
-
-VA - Dance Миссия Осени. Зарубежный (2012) [MP3|256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Laurentiu Duta feat. Andreea Banica - Shining heart
-002. Jay Sean - Im All Yours
-003. Miralva - Venga A La Noche (Radio Edit)
-004. Serenity & Spyer Feat. Tevin - Club Rockin Beats (Ti-Mo Remix Remix Edit)
-005. Professor Green feat. Emeli Sande - Read All About It (Cahill Explicit Radio Edit)
-006. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
-007. Mick Lion - International Love (Smithee Mix)
-008. Shogun - Lotus (Original mix edit)
-009. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia
-010. Jennifer Lopez feat. Flo Rida - Goin In(   Читать дальше...   )Жанр: DanceПродолжительность: 05:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA0FBFA85A973AF90636E764B51B9D29331F70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551717   (453623) от 24.09.2012
-
-VA - Spirit del Mar Lounge Collection (2012) [MP3|320 кб/с]<Lounge, Downtempo, Ambient, Dub>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453623.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Sura Quintet - Private Pleasures (5:39)
-2. Rey Salinero - Cabo Verde (6:05)
-3. Don Gorda Project - Attractive Qualities (5:41)
-4. Silent Breeze - Codimension (5:41)
-5. Christian Hornbostel - Love Supreme (Lovelight Mix) (4:18)
-6. Enrico Donner - Forget Me Not (5:56)
-7. Cesar Martinez Ensemble - Whatever You (5:16)
-8. Blue Wave - Falling Skies (5:49)
-9. Cane Garden Quartet - Ageless (5:51)
-10. Zadar - Soul Ambitions (5:45)(   Читать дальше...   )Жанр: Lounge, Downtempo, Ambient, DubПродолжительность: 01:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DFB2611E5679D078D29CCCFBB0B69B9F948AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551537   (453622) от 24.09.2012
-
-Antillas & Dankann - Remixes 2002-2012 Vol 2 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antillas & Dankann - Remixes 2002-2012 Vol 2 (2012)
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:29:40Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Dash Berlin feat. Chris Madin - Silence In Your Heart (Antillas Remix) (07:16)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD216FD47DF1BEF0B75568CD05248EBCBD4C600E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550105   (453621) от 24.09.2012
-
-VA - Absolute Club Autumn Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deenk & Home Alone - Run Around (Original Mix)
-02. Anton Neumark - Benghazi (Original Mix)
-03. Miami Posh - Fk You All (Edlington Remix) Emun Music
-04. Dafter - Up To Your Mind (Original Mix)
-05. David Di Sabato - Orbits (Michele Calo Remix)
-06. DisCo RoCk - Tokyo Anarchy In The Cellophane (Esteban Cors Remix)
-07. Marcel Woods - Black Angus (Original mix)
-08. Freq Maverick - Batteries Not Included (Dubble JD Remix)
-09. David Heat - Easy (Zero Gravity Remix)
-10. Sonny Black, Demon Groove - Crazy Glue (Original Mix) Big Alliance Records(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6651FFCE8B391BA98924155BC00DD41B842411E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551461   (453620) от 24.09.2012
-
-Rcola - Rub A Dub Wize (2009) [MP3|320 кб/с]<Dubwise, Ragga Jungle>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat the System (featuring Soultrain) - 07:16
-02. A What a Bam Bam (ft. Sister Nancy) - 05:19
-03. Lost and Found (ft. Barrington Levy) - 05:17
-04. Dancehall Operator (RCola Remix) - 05:24
-05. Azeri (ft. Swank) (RCola Remix) - 04:57
-06. A1 Sound (ft. Jimmy Riley) - 03:35
-07. Got Me Trying (ft. Belle Humble) (RCola Remix) - 04:54
-08. Warn Ya - 05:58
-09. ABomb Busted - 05:26
-10. Flamante 04:32(   Читать дальше...   )Жанр: Продолжительность: 01:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05845F4BE0C0CCD5B8D86229390BC4E260EF99D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550547   (453617) от 24.09.2012
-
-VA - Русское Ассорти Новинок (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Герцен - Вери Гуд
-002. MainstreaM One - Больше Не Надо
-003. Виктор Рыбин и Наталья Сенчукова - Для тебя
-004. Конец Фильма - Прощание
-005. Инфинити - А Он Такой
-006. Ваня Чебанов - Отпусти
-007. Вика Гранд - Я Не Боюсь (DJ Armilov & DJ S-nike Remix)
-008. Оля Полякова - Лепесток
-009. K.Melody - Воспоминание
-010. MaкSим - Это же я(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08D108C496B74AD192AAE2B37C18812D84520D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549645   (453616) от 24.09.2012
-
-VA - Liquid V Club Sessions Vol 4 (Compiled by Kabuki) (2012) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453616.jpg" />
-</div>
-
-
-###  Подробнее
-
-02. Stealth - High Plane Drifter
-03. dRamatic & dbAudio - Vigilante (Level 2 Remix)
-04. Andy Skopes & Mr Joseph - Gatcherman
-05. dRamatic & dbAudio - Seduction
-06. Level 2 - No Time VIP
-07. Kabuki - Rhodesia VIP
-08. Serum & Bladerunner - Take It Back
-09. Mr Joseph - Sparkle In Your Eye
-10. DJ Chap & Level 2 - Skys The Limit
-11. Mr Joseph - Wonderful Feeling(   Читать дальше...   )Жанр: Продолжительность: 01:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA1947B22357B97FD1BD617268716C34DC0CCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408734   (453613) от 13.09.2020
-
-Светлана Пятак | Ломоносовская школа. Читаю слова и предложения. Для одаренных детей 6-7 лет (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие подготовлено для детей, которые уже знают буквы. Основные задачи издания: совершенствование навыков и техники чтения; закрепление знаний о гласных и согласных звуках и буквах; знакомство со слогом как частью слова и с предложением как синтаксической единицей русского языка; закрепление навыков письма печатными буквами.
-Предлагаемые упражнения способствуют (   Читать дальше...   )Жанр: Развивающая литература для дошкольниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26945D6AB6049F2BEFD166296CAFA8C0E1CDB1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408715   (453612) от 13.09.2020
-
-Zoner Photo Studio X 19.2004.2.262 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC052EE6896BA243FA6B1B7087BEC69DF8BE76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408050   (453611) от 13.09.2020
-
-Журнал | The English Garden [UK] №10 (октябрь 2020) [PDF] [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_453611.jpg" />
-</div>
-
-
-###  Подробнее
-
-The English Garden - журнал для всех, кто любит красивые сады. Каждый выпуск оживляет лучшие сады Великобритании благодаря великолепным фотографиям и увлекательным историям, поддерживаемым опытными советами по посадке растений и вдохновляющими дизайнерскими идеями опытных садоводов.Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408783   (453610) от 13.09.2020
-
-Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2020. Гран-При Сан-Марино / MotoGP 2020. San-Marino GP (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453610.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02745CA3BB912659EBFFA1F7BC378176DE20E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408591   (453609) от 13.09.2020
-
-VA - The Jazz Hop Conspiracy, Vol. 3 (2020) S!X Music [FLAC|Lossless|Web-DL|tracks] <Jazz Hop, Instrumental Hip-Hop, Trip Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JK Soul – All the Beauty in This World (2:48)
-02. Funkonami – Lucid Dreams (3:04)
-03. Karmawin – Cotemplation (3:18)
-04. Josh Furey – Small Time (3:15)(   Читать дальше...   )Производство: S!X MusicЖанр: Jazz Hop, Instrumental Hip-Hop, Trip Hop, BeatsПродолжительность: 01:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244CFBDFE357F70A48DBA56E0B19F17C16D32FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408703   (453608) от 13.09.2020
-
-Seisenshi Dunbine | Aura Battler Dunbine | Святой воин Данбайн [1983, TV, 49 из 49] BDRip 1080p raw
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_453608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой японский парень Шо Зама оказался таинственным образом перенесён в странный мир, где феи и рыцари соседствуют с летающими линкорами и меха. Он должен управлять одним из таких боевых меха и участвовать в непонятной ему войне.
-Основным оружием в этом мире являются "аура-баттлеры (аура-воины)", которыми управляют элитные рыцари, именующиеся "сей (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фэнтези, меха, драмаРежиссер: Томино ЁсиюкиПеревод: antinormanistЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 49 эп. по 25 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408619   (453607) от 13.09.2020
-
-Леонид Млечин | С Россией или без России (2019) [MP3]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_453607.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот выпуск, третий из посвящённых гражданской войне в России, вошли эссе:
-• Тамбовские волки, или Антонов против Антонова
-• Трагедия эмиграции, или Почему Савинков выбросился из окна
-• Адмирал Колчак. За наше блестящее прошлое!(   Читать дальше...   )Жанр: История, РоссииПродолжительность: 04:23:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408577   (453606) от 13.09.2020
-
-Trio Kontraszt - Cryptic Scattered Images of Time Forgotten (2020) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Garden of the Wizard (In Memoriam Marta Kurtag) (06:24)
- 02. Dark Ramifications (04:36)
- 03. Different Divisions and Rags (06:35)
- 04. Night Song of Icicles on the Banks of the Danube (04:31)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5898B8A1D8108DCB3CFFA203008E33E319DEAEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408599   (453605) от 13.09.2020
-
-Око фортуны / Forutuna no hitomi / Fortuna's Eye (2019) BDRip [H.264/720p] [DVO]
+Телохранитель киллера / The Hitman's Bodyguard (2017) WEB-DLRip [H.264/720p]
 
 >>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еще в детстве Кияма Синитиро потерял семью, у него не было друзей, он жил в одиночестве. Однажды Синитиро понимает, что обладает способностью видеть сквозь тело людей, которые вот-вот умрут. Из-за этого его жизнь меняется. Он знакомится с Аой, которая привлекает его своей яркой индивидуальностью и обретает радость жизни благодаря любви. Девушка отвечает взаимностью, (   Читать дальше...   )Производство: Япония, Amuse, East Japan Marketing & Communications Inc., GyaoЖанр: Мелодрама, фэнтезиРежиссер: Такахиро МикиАктеры: Рюноскэ Камики, Касуми Аримура, Юкия Китамура, Дзюн Сисон, Юки Саито, Аири Мацуи, Дайго, Сабуро ТокитоПеревод: Двуголосый любительский (RealFake)Субтитры: Английские, польские, китайскиеПродолжительность: 01:50:57
+Он — телохранитель мирового уровня. Его новая работа — охранять киллера, которого все мечтают убить. Он и сам с удовольствием прикончил бы этого гада. Но работа есть работа: смертельные враги в прошлом, они вынуждены объединиться в настоящем, чтобы выжить. Однако их методы настолько различны, а принципы противоположны, что вопрос выживания — под большим вопросом.Производство: США, Китай, Болгария, НидерландыЖанр: Боевик, комедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдс, Сэмюэл Л. Джексон, Элоди Юнг, Сальма Хайек, Гэри Олдман, Жоаки де Алмейда, Юрий Колокольников, Тине Жустра, Сэм Хэзелдайн, Ричард Э. Грант ...Перевод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: Английские, испанскиеПродолжительность: 01:58:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC06508B674AA7D814C625A880502B3C2FA27973
+magnet:?xt=urn:btih:3C9E9BBBB2086051A6A2F3CF59D74EDBADDEC547
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408620   (453604) от 13.09.2020
+###  Публикация: 1162148   (458446) от 01.09.2017
 
-Леонид Млечин | Начало гражданской войны (2019) [MP3]
+Грейсфилд / The Gracefield Incident (2017) WEB-DL [H.264/1080p-LQ]
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_458446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этот выпуск, посвящённый началу гражданской войны в России, вошли эссе:
-• Мир рождает войну, или Троцкий в Брест-Литовске
-• Демократы у власти, или Самарский Комуч
-• Ярославское восстание, или Глоток свободы в сгоревшем городе(   Читать дальше...   )Жанр: История, РоссииПродолжительность: 03:06:31
+Три парочки проводят выходные в Грейсфилде в комфортабельном домике в лесу — веселятся, отдыхают. Вдруг неподалёку в лесу падает метеорит. Конечно же они идут посмотреть на него и потрогать такую редкость, не подозревая, что скоро начнётся веселье совсем другого рода.Производство: США, КанадаЖанр: Ужасы, фантастика, боевик, триллер, детективРежиссер: Матье РэтхиАктеры: Лоуренс Дофинаис, Джульетт Госселин, Лори Грэхэм, Кимберли Лаферрье, Алекс С. Нати, Матье Рэтхи, Виктор ТрельеПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:25:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43CC529593F9C322DDFFA22B9D586C36D8210F4C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,27 +50,315 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408786   (453603) от 13.09.2020
+###  Публикация: 1162445   (458445) от 01.09.2017
 
-Формула 1. Сезон 2020. Этап 9. Гран-при Тосканы. Гонка (13.09.2020) HDTV [H.264/1080i-LQ]
+Телохранитель киллера / The Hitman's Bodyguard (2017) WEB-DLRip [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — телохранитель мирового уровня. Его новая работа — охранять киллера, которого все мечтают убить. Он и сам с удовольствием прикончил бы этого гада. Но работа есть работа: смертельные враги в прошлом, они вынуждены объединиться в настоящем, чтобы выжить. Однако их методы настолько различны, а принципы противоположны, что вопрос выживания — под большим вопросом.Производство: США, Китай, Болгария, НидерландыЖанр: Боевик, комедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдс, Сэмюэл Л. Джексон, Элоди Юнг, Сальма Хайек, Гэри Олдман, Жоаки де Алмейда, Юрий Колокольников, Тине Жустра, Сэм Хэзелдайн, Ричард Э. Грант ...Перевод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98909C6553F27238C999FA0DC7C846B6D3A09F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408166   (458421) от 11.09.2020
+
+Chris Woods - From Here To Eternity (1974) 2019, Solid Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Here to Eternity [6:18]
+02. Invitation [4:13]
+03. Smoke Gets in Your Eyes [9:02]
+04. You Can't Win None of 'Em [4:59](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547AD92FE86764B67500C7901C47D23A500D2D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408067   (458419) от 11.09.2020
+
+Axenstar - The Final Requiem (2006) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final Requiem (03:53)
+02. Condemnation (04:02)
+03. The Divine (04:18)
+04. Edge Of The World (05:19)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1510F37CC7422D391C2647224FD83B5121D8BE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408176   (458417) от 11.09.2020
+
+June Christy & Stan Kenton - Duet (1955) 2011, Toshiba [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_458417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ev'ry Time We Say Goodbye [3:52]
+02. Lonely Woman [5:57]
+03. Just the Way I Am [3:56]
+04. You're Mine, You! [3:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408193   (458415) от 11.09.2020
+
+Protest The Hero - Palimpsest (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Migrant Mother (3:50)
+02. The Canary (4:28)
+03. From The Sky (7:16)
+04. All Hands (4:40)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445372DDDBA6C5CC5EA5BD8BAF1414292EB678A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408304   (458413) от 11.09.2020
+
+VA - Astral Dimension (2020) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458413.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ozymandias - Sea Emperor
+002. Makai - Are We Dreaming
+003. Sensifeel - Insane
+004. Volcano - What Is Life(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 11:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC8F943C0A86030F55B5040F5D34D7117BFE66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408235   (458411) от 11.09.2020
+
+Illdisposed - Reveal Your Soul For The Dead (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reveal Your Soul... (01:34)
+02. ...For The Dead (04:06)
+03. With Hate (02:56)
+04. This Is Our Calling For The End (04:14)(   Читать дальше...   )Жанр: Melodic Death Metal, Groove MetalПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54CBB763462614859E598C464ECAF68BF9C7056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408003   (458409) от 11.09.2020
+
+Prizm - All Night (2020) [AAC|~329 Kbps]<Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night (3:49) ~346kbps
+02. Disco Biscuit (4:00) ~336kbps
+03. Lose You (3:19) ~338kbps
+04. Mine (3:51) ~337kbps(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68EDC630E435A89D67ACCD8D4ED1B0D5036900B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408281   (458408) от 11.09.2020
+
+Nils Wülker - Go (2020) [AAC|~283 Kbps]<Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distorting Time (4:51)
+02. Hidden Intentions (4:13)
+03. The You of Now (4:36)
+04. Hybrid (4:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CBEADC88B0052D60952A1BBF8528B17E546E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408027   (458406) от 11.09.2020
+
+Mastodon - Medium Rarities (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen Torches (4:23)
+02. A Commotion (4:15)
+03. Asleep in the Deep (Instrumental) (6:13)
+04. Capillarian Crest (Live) (4:20)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF60074BABBFF55A1C9F959D20F7D91668ACBB2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408242   (458404) от 11.09.2020
+
+Футбол. Лига Наций УЕФА 2020-2021. Лига A. Группа 3. 2-й тур. Франция — Хорватия (2020) WEB-DL [H.264/720p-LQ]
 
 >>Спорт и активный отдых
->>Формула 1
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гран-при Тосканы. Гонка
-Арена: Международный автодром Муджелло (Муджелло, Италия)
-13 сентября 2020, воскресенье. 16:10 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), ИнтершумСубтитры: отсутствуютПродолжительность: 02:23:02
+Лига Наций УЕФА 2020-2021.
+08 сентября 2020, вторник. 21:45 МСК
+Лига A. Группа 3. 2-й тур
+Франция — Хорватия(   Читать дальше...   )Телекомпания: Матч! ТВЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D89275C3BDA21321A9459B3A407B81C1716A04B
+magnet:?xt=urn:btih:900627A67E235BF010548E5ECEB81AD6DABD2F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,53 +366,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408706   (453602) от 13.09.2020
+###  Публикация: 1408195   (458402) от 11.09.2020
 
-Seisenshi Dunbine: New Story of Aura Battler Dunbine | Aura Battle Dunbine: The Tale of Neo Byston Well | Дунбин: Новая история о воинах Ауры [1988, OVA, 3 из 3] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит спустя 700 лет после событий сериала. Сюжет закручен вокруг противостояния новых героев - Шиона Заба и принцессы королевства Баран - Баран Ремули (реинкарнации главных героев сериала, Шо Зама и Римели Люфт, соответственно), чёрному рыцарю Рабаану (реинкарнация Барна Барнингса из оригинального сериала). В этом им помогает та самая Сильке Мау и (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фэнтези, мехаРежиссер: Такидзава ТосифумиПеревод: TermЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DD305451469AE48AEDECB591CA1B818FCF9069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408725   (453601) от 13.09.2020
-
-Unreal Commander 3.57 Build 1483 + Portable + GraphXPackv [Multi/Ru]
+VA - Alter Ego Records: Vocalize 06 (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Unreal Commander - бесплатный файловый менеджер выполненный в двухпанельном виде. Программа помогает удобнее и быстрее осуществлять навигацию по вашим файлам и папкам, а также выполнять с ними различные операции.
-
-Помимо операций копирования, перемещения, удаления и переименования файлов и папок, Unreal Commander позволяет сортировать файлы, переименовывать группу (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Colonial One feat. Isa Bell - Always On My Mind (Original Mix)
+02. Ahmet Atasever feat. Monty Wells - Trading Halos (Sunset Remix)
+03. Kenneth Thomas feat. Colleen Riley - Ghost In The Machine 2014 (Original Mix)
+04. Somna feat. Ash Richards - Wherever You Go (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:17:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:090A24ADA193FE1732880AA41A76A170976B1633
+magnet:?xt=urn:btih:1BE5D30516C086B95716F355C4CE1578E1D83C0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -719,25 +395,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408760   (453600) от 13.09.2020
+###  Публикация: 1408234   (458400) от 11.09.2020
 
-ScreenHunter Pro 7.0.1115 RePack (& Portable) by elchupacabra [Ru/En]
+VA - Kate Miles - Voice Of Suanda (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ScreenHunter Pro – программа для получения снимков экрана (скриншотов) с возможностью их обработки и редактирования. Можно получать изображения всего экрана, отдельных окон или областей заданной формы, но гордостью её авторов является уникальная функция получения снимков даже не отдельных окон, а только определенных объектов в них. Не уникальная, но довольно редко (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Don't Let Me Fall (Extended Mix)
+02. Home (Aimoon Extended Remix)
+03. Like A Miracle (Denis Kenzo Extended Remix)
+04. Your Love (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:55:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33FB41C3EC233CB646A2DE9225F548AD8FFE3ADC
+magnet:?xt=urn:btih:7EBDC33A779834EBEB9883EF2A4DA30546D64A2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -745,25 +424,300 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408750   (453599) от 13.09.2020
+###  Публикация: 1408039   (458398) от 11.09.2020
 
-Freemake Video Converter 4.1.11.75 RePack (& Portable) by elchupacabra [Multi/Ru]
+Winter's Verge - The Ballad of James Tig (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. It Begins (6:56)
+02. A Thousand Souls (4:56)
+03. Dead Reckoning (4:40)
+04. Timeless (6:56)(   Читать дальше...   )Жанр: Power Metal
+Страна исполнителя: Cyprus
+Издатель-лейбл: Pride & Joy MusicПродолжительность: 00:48:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F6BB3E6EA9E6FCD76AAD20635728168667829FC
+magnet:?xt=urn:btih:A726A1FEB53E6057A08D3175FB66C2B70C971FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 826130   (458394) от 28.09.2014
+
+Журнал | Forbes [Россия] №10 (125) (октябрь 2014) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458394.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Forbes» - влиятельный журнал о бизнесе, экономике, финансах, карьере и стиле жизни, который имеет непосредственный доступ к политикам и первым лицам компаний, получая информацию от самых осведомленных источников. Издание публикует авторитетные рейтинги, пишет о российском бизнесе, успешных предпринимателях и инвестициях.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA63804C13E909DB2B467E948D414C3179935C2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704160   (458388) от 26.09.2013
+
+Векторный клипарт - 2014 год Лошади 8 / 2014 Year of the Horse 8 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458388.jpg" />
+</div>
+
+
+###  Подробнее
+
+2014 год ЛошадиФормат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CEDEFEF5021DF5F5F1CE36A790F04F65C3FF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704107   (458380) от 26.09.2013
+
+Журнал | Шитье и крой (ШиК) №9 [+выкройки] (сентябрь 2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Шитье и крой» адресован тем, кто следит за модой и создает гардероб своими руками. Любительницы шитья найдут здесь интересные модели от европейских и латиноамериканских дизайнеров плюс удобные выкройки с подробным описанием работы. Более того – он помогает читательницам создать свой собственный модный образ, дополненный модными аксессуарами. Выкройки в журнале.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5486A792949B391F0EB7A27727A7D1BDC033B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704111   (458373) от 26.09.2013
+
+Журнал | Шитье и крой (ШиК) №10 [+выкройки] (октябрь 2013) [PDF+JPEG]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Шитье и крой» адресован тем, кто следит за модой и создает гардероб своими руками. Любительницы шитья найдут здесь интересные модели от европейских и латиноамериканских дизайнеров плюс удобные выкройки с подробным описанием работы. Более того – он помогает читательницам создать свой собственный модный образ, дополненный модными аксессуарами.Формат: PDF+JPEG (выкройки)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E38B40A41F77D7EE5CE467EFEBC41E072AC445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550361   (458371) от 22.09.2012
+
+Журнал | Добрые советы. Спецвыпуск №1 [сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный выпуск женского журнала "Добрые советы" посвящен теме - «Моя Украина: Карпаты». Издание предлагает своим читательницам лучшие маршруты от Львова до Ужгорода. Вы узнаете куда поехать, чтобы отлично отдохнуть, оздоровиться, зарядиться энергией и яркими впечатлениями. В номере: лыжные курорты на любой вкус; 10 особых мест силы, которые исполняют желания; народные рецепты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE35318EC26574F8D63621BCF9A2CD8966377E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550598   (458370) от 22.09.2012
+
+Профессия  репортер. Вольная каторга (2012.09.22) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458370.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Есть край, где золото валяется под ногами…
+Как не сойти с ума от внезапного богатства и не стать рабом золотых гор?Жанр: ДокументальныйПродолжительность: ~ 00:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F68CF12A72ECDF0C60A3469C06E02A1AE07DC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550338   (458368) от 22.09.2012
+
+100 Mix Wallpapers (22.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE1E45C13E1D924F75763DC40880DBCEDCD3729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550358   (458367) от 22.09.2012
+
+Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651FB76560F7F7C05CBE8083745DE6961708A1D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550366   (458365) от 22.09.2012
+
+Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6BC7560FDA7E1AACD5C6BC7F0AC48BE6DC1659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550379   (458364) от 22.09.2012
+
+VA - Zen Chillout Collection (2008) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458364.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cell - Spiritual Moves
+02. Vir Unis - Light Curve
+03. Ochi Brothers - Flowing Synergy
+04. Kalpataru Tree - Dark Clouds
+05. Solar Fields - Velvet Reptile
+06. Kalpataru Tree - Spiral Snakeskin
+07. Vibrasphere - Abra
+08. Gravity South - Zimamele
+09. Paul Kwitek - In The Past(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EA1756252673280C93702E80EECBDD2FD2F7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

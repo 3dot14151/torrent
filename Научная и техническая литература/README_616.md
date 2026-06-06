@@ -1,640 +1,25 @@
-###  Публикация: 1729677   (53508) от 12.06.2024
+###  Публикация: 1722201   (57005) от 10.05.2024
 
-В.С. Попов, С.А. Николаев | Общая электротехника с основами электроники (1972) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53508.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены электрические цепи, электрические машины и трансформаторы, электротехнические намерения и приборы, электропривод и аппаратура управлением, передача и распределение электрической энергии, электронные лампы, гаэоразрядные приборы, полупроводниковые приборы, фотоэлектрические приборы, усилители и генераторы.
-Книга предназначена для учащихся техникумов (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAB86FB98DF538E4733EE76021253A9C9E84A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729893   (53449) от 13.06.2024
-
-Р.С. Гутер, Б.В. Овчинский | Элементы численного анализа и математической обработки результатов опыта (1970) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть содержит основные методы вычислительной математики: приближенное решение уравнений и систем, простейшие задачи линейной алгебры, параболическую интерполяцию, численное интегрирование и решение дифференциальных уравнений. Вторая часть посвящена теории вероятностей в объеме, предусмотренном общей программой втузов. В третьей части рассматривается теория (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A634BB92FF7AD1AA8C9CA6684CF665A4B6B9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729947   (53447) от 13.06.2024
-
-Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn over 500 words and move up a level with our course book English Unlocked! Over 100 pages of quality learning. Your complete, self-study English learning pack.
-Inside...
-How to learn English with us.
-How to access Hot English.(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Hot English PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729889   (53429) от 13.06.2024
-
-Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53429.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Complete Guide to Japanese Kanji: (JLPT All Levels) Remembering and Understanding the 2136 Standard Characters includes: Clear, large-sized entries, All of the General Use Joyo Kanji Characters, Japanese readings and English meanings, stroke-count, stroke order, usage examples, mnemonic hints for easy memorization.
-This book is essential to anyone who is planning (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Tuttle PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694FCFBB3F2F0059BD04B7C066AC096A08FDA040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729994   (53425) от 13.06.2024
-
-Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um curso para estrangeiros. (2 издание) (2006) [PDF] [PT]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Falar, ler, escrever português - Um curso para estrangeiros. Livro do aluno (com a nova ortografia). Este livro, através de método estrutural-comunicativo, leva o aluno totalmente principiante a entender, falar, ler e escrever português com fluência e segurança, em nível de linguagem coloquial correta. É destinado a adultos (   Читать дальше...   )Жанр: учебное пособиеЯзык: португальскийИздательство: Editora Pedagogica E UniversitariaФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3C6A64105D054650E9AAF5BE824E889D690137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730121   (53344) от 14.06.2024
-
-Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53344.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Language Files: materials for an Introduction to Language and Linguistics" has become one of the most widely adopted, consulted, and authoritative introductory textbooks to linguistics ever written. The scope of the text makes it suitable for use in a wide range of courses, while its unique organization into student-friendly, self-contained sections allows (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Ohio State University PressФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6437FFBC83466B028F2FDDD63E19795B5E383E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730033   (53340) от 14.06.2024
-
-А.Е. Каплянский, А.П. Лысенко, Л.С. Полотовский | Теоретические основы электротехники (1972) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53340.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются элементы электрических цепей, их линейные и нелинейные параметры, основы теории источников и приемников, осуществляющих взаимное преобразование электромагнитной и механической энергии. Излагаются теория линейных и нелинейных цепей с сосредоточенными параметрами при постоянном и переменном токе, при переходных процессах, установившиеся и переходные (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8633217AD5E4CBB4FB8109810C417DC4349F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730102   (53300) от 14.06.2024
-
-Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53300.jpg" />
-</div>
-
-
-###  Подробнее
-
-The stories, events, and teachings contained in the scriptures of the Old and New Testaments of the Bible, from Genesis to Revelations explained with accessible text and bold graphics.
-The Bible Book explores the ideas and beliefs key to the teachings of the most widely printed religious book of all time. This highly visual book highlights more than 100 of the most (   Читать дальше...   )Жанр: познавательная религиозная  литератураЯзык: английскийИздательство: D.K. PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730336   (53231) от 15.06.2024
-
-Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfect Phrases for ESL: Conversation Skills is filled with hundreds of ready-to-use English phrases to help you navigate your way through social and business situations. There are phrases for talking with friends, offering opinions, collaborating with co-workers, addressing misunderstandings, and more. The book also includes common slang expressions you can use (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730355   (53196) от 15.06.2024
-
-Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth edition (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53196.jpg" />
-</div>
-
-
-###  Подробнее
-
-The concise clarity of this book makes it a handy reference for anyone interested in good writing-as well as a quick and ideal guide for freshman composition courses, writing courses across the disciplines, and as a supporting text in courses that require clear and direct writing. Style: The Basics covers the elemental principles of writing that will help students (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E416F10F811A7EE26633C8CECD81EF672328FEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730316   (53194) от 15.06.2024
-
-Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (2018) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comprehensive subject review for every section of the exam
-Valuable practice with complex reading comprehension passages and higher-level math problems
-7 full-length practice tests (4 in the book, 3 online) with detailed answer explanations
-Drills for each test section—Reading, Writing and Language, and Math(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Princeton ReviewФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730590   (53115) от 16.06.2024
-
-Р.А. Сапожников и др. | Основы технической кибернетики (1970) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53115.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены основные положения теории информации, общие принципы построения систем автоматического управления, математический аппарат для описания непрерывных и дискретных сигналов, проблема устойчивости, надежность систем автоматического регулирования и другие вопросы технической кибернетики. По теоретическим темам приведены расчетные примеры. В книге приводятся (   Читать дальше...   )Жанр: Технические наукиИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31E50DD86868AE0BD433AD1F6D1B5396606A833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730568   (53105) от 16.06.2024
-
-Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53105.jpg" />
-</div>
-
-
-###  Подробнее
-
-French Conversation is the go-to guide for expanding conversational fluency. Organized into 11 units, it presents realistic everyday dialogues, followed by helpful instruction on correct syntax and word usage, as well as lots of conversation-ready phrases.
-Inside... you'll learn how to Engage in dialogues that illustrate practical conversations. Expand your French (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730512   (53100) от 16.06.2024
-
-Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth edition (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legal English is a professional language. This book is designed for law students who have followed their law studies in a language other than English. Textbooks on English law are too detailed for those who want to understand English legal terminology rather than English law itself. Legal dictionaries are useful but, as the words are ordered alphabetically, terms (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Eleven International PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18755FDA78A431A8EC3EBCF7450AE1F988BD0387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730834   (52905) от 18.06.2024
-
-А.И. Мелуа | Энергетики России и СНГ, 4-е издание [2 тома] (2007) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Включает творческие биографии ведущих специалистов в области энергетики, гидротехники, ряда смежных дисциплин.
-
-Составлена на основе материалов, представленных отдельными организациями, работающими в области энергетики, а также компьютерных баз данных Научного издательства "Гуманистика"; архивов и коллекций научных институтов, библиотек и исследователей, (   Читать дальше...   )Жанр: биографическая энциклопедияИздательство: "Гуманистика" (СПб)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925E563BFC16D878B8D44761ED8056AB461C2A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730837   (52894) от 18.06.2024
-
-А.И. Мелуа (ред.) | Медики России. Биографии (2008) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Включает биографии специалистов в области медицины, науки и практики, а также в области некоторых смежных наук, внесших существенный вклад в развитие этих направлений.
-Составлена на основе материалов, представленных отдельными организациями и гражданами, а также на основе отечественных и зарубежных архивных фондов, компьютерных баз данных Научного издательства "Гуманистика", (   Читать дальше...   )Жанр: биографическая энциклопедияИздательство: "Гуманистика" (СПб)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6A4E757E397C6751537EC27A2F4A3A02CC5F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730899   (52888) от 18.06.2024
-
-Rod Ellis, Natsuko Shintani | Exploring Language Pedagogy through Second Language Acquisition Research (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52888.jpg" />
-</div>
-
-
-###  Подробнее
-
-The ideal text for all students studying language teaching methods, language teacher education, English teaching methodology and second language acquisition modules in advanced undergraduate and postgraduate/graduate TESOL and Applied Linguistics courses.
-Routledge Introductions to Applied Linguistics is a series of introductory level textbooks covering the core (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730959   (52875) от 18.06.2024
-
-Lingo Mastery | Spanish Short Stories for Beginners (2018) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52875.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this book we have compiled 20 easy-to-read, compelling and fun stories that will allow you to expand your vocabulary and give you the tools to improve your grasp of the wonderful Spanish tongue.
-How Spanish Short Stories for Beginners works:
-Each story will involve an important lesson of the tools in the Spanish language (Verbs, Adjectives, Past Tense, Giving (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Lingo MasteryФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6252F69363A7C7CCAA75A583AFA0961FA77FEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730838   (52873) от 18.06.2024
-
-Д.О. Иванов, А.И. Мелуа, А.Д. Ноздрачев | Академики Победы (2020) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биографические статьи и справки о советских ученых и специалистах, участвовавших в боевых действиях и в работах в тылу в период Великой Отечественной войны 1941 — 1945 гг., избранных в действительные члены и/или в члены-корреспонденты Академии наук СССР (Российской академии наук) перед войной, в годы войны или после войны.
-Под общей редакцией профессора А.И. Мелуа.Жанр: биографическая энциклопедияИздательство: "Гуманистика" (СПб)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F4006E128A0A0F8B76CC0A26713EA3A405AE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731141   (52805) от 19.06.2024
-
-Angela Wilkes (editor) | Polish-English Bilingual Visual Dictionary (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52805.jpg" />
-</div>
-
-
-###  Подробнее
-
-A thematic organization of more than 10,000 fully illustrated terms labeled in both Polish and English, and comprehensive two-way indexes put the perfect translation at your fingertips. Additional feature panels include abstract nouns and verbs, as well as useful phrases that you can use in conversation once you are feeling more confident. Polish-English Bilingual (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A866ED92D10CF554823C04A1D5F9FF7B319C397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731176   (52803) от 19.06.2024
-
-Collins | Thai Visual Dictionary (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52803.jpg" />
-</div>
-
-
-###  Подробнее
-
-A photographic guide to the key words and phrases in Thai. This attractive pocket-sized book is a perfect travel companion and provides a practical guide to Thailand and Thai language and culture. Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Thai index help you to find words (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D89CE247190049E0E9A640B0F8CE4C1E739331E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731194   (52801) от 19.06.2024
-
-Collins Dictionaries | Korean Visual Dictionary (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Korean index help you to find words quickly as you learn. 3,000 essential words and phrases for modern life in Korea are at your fingertips with topics covering food and drink, home life, work and school, shopping, sport and leisure, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599524   (52766) от 20.06.2024
-
-Книжная серия | Избранные главы высшей математики для инженеров и студентов втузов [22 книги] (1958 - 1985) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг по различным разделам математики для инженеров и учащихся высших технических учебных заведений.
-Позже была переиздана как серия "Вся высшая математика".Жанр: МатематикаИздательство: Физматгиз / НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E72EEF438DB284BD094D8DC698BF896FE6D0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731265   (52746) от 20.06.2024
-
-Фридерике Файль | Кишечный иммунитет. Простые шаги к крепкому здоровью от врача, который не болеет 5 лет (2023) [PDF, EPUB, FB2, FB3, TXT, MOBI, RTF]
+Валерия Филимонова | Видеть лучше. Как сохранить зрение: истории из кабинета офтальмолога (2024) [PDF, EPUB, FB2, FB3, TXT, MOBI, RTF]
 
 >>Научная и техническая литература
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доктор Фридерике Файль – специалист по поддержанию здоровья кишечника, магистр в области спорта и укрепления здоровья Флоридского атлантического университета (США).
-Представьте человека, который НИЧЕМ не болеет вот уже пять лет. Невозможно? Вымысел? Вот и нет! Этот человек не просто существует – он написал эту книгу!
-Весь секрет в гармоничной работе кишечника – того (   Читать дальше...   )Жанр: ЗдоровьеПеревод: Юлия КнышИздательство: Бомбора, ЭксмоФормат: PDF, EPUB, FB2, FB3, TXT, MOBI, RTFКачество: Изначально электронное (ebook)
+Невозможно улучшить зрение. А с возрастом оно неизбежно падает даже у тех, кто видит идеально. Можно ли это остановить?
+
+В этой книге врач-офтальмолог Валерия Филимонова расскажет, как лечить заболевания глаз, какие инфекции и травмы могут привести к слепоте и как можно остановить прогрессирование близорукости и дальнозоркости.
+(   Читать дальше...   )Жанр: Здоровье, Офтальмология, Популярно о медицинеИздательство: Бомбора,  ЭксмоФормат: PDF, EPUB, FB2, FB3, TXT, MOBI, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A60EC89BE3E71A8A678235794CFBD1E90DAD9B67
+magnet:?xt=urn:btih:DB0F864882DF1DA65F6833B7D72098315CDC6363
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,26 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731345   (52708) от 20.06.2024
+###  Публикация: 1722504   (56917) от 11.05.2024
 
-Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN]
+Йаэль Адлер | Годен до. Распаковка секретов молодости, которые отучат тело стареть (2024) [PDF, EPUB, FB2, FB3, TXT, MOBI, RTF]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A combined reference book and workbook covering over 3,000 entries of essential words and phrases to expand your English vocabulary.
-Designed around the most up-to-date theories of language acquisition, English for Everyone: English Vocabulary Builder includes all the words and phrases English learners need to know. Question words, feelings, hairstyles, technology, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+Все хотят дожить до старости, но никто не хочет стареть…
+Так как максимально долго оставаться молодым и здоровым? Ответ на этот вопрос знает эксперт по борьбе с возрастными изменениями и автор бестселлеров Йаэль Адлер.
+В этой книге известный врач не только собрала все знания о меняющемся с возрастом теле, но и поделилась практическими лайфхаками для повседневной (   Читать дальше...   )Жанр: Анатомия и физиология, Медицина, ЗдоровьеПеревод: К.Е. БочкареваИздательство: Эксмо, БомбораФормат: PDF, EPUB, FB2, FB3, TXT, MOBI, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B4CBE7DC6F2407754A70EDE8986CE7B91DBE39C
+magnet:?xt=urn:btih:6A71E0E7F6AA7E636C27A0242F002B9530B7E44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,25 +55,635 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731300   (52688) от 20.06.2024
+###  Публикация: 1722513   (56890) от 11.05.2024
 
-Jean-Claude Corbeil, Ariane Archambault | 5 Language Visual Dictionary - English, French, German, Spanish, Italian (2003) [PDF] [EN]
+Лиам Фаррелл | Вы точно доктор? Истории о сложных пациентах, современной медицине и силе юмора (2022) [PDF, FB2, EPUB, MOBI]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The quick and intuitive way to learn and recall everyday vocabulary in English, French, German, Spanish, and Italian, this is the only visual dictionary to feature a complete range of objects and scenes from everyday life - showing you what other language dictionaries can only tell you. Clear design and superb illustrations place over 6,000 words ¡n context (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: New York: DK PublishingФормат: PDFКачество: Обработанный скан
+Более 20 лет Лиам Фаррелл работает врачом общей практики в отдаленной сельской местности в Ирландии и пишет статьи и колонки для самых авторитетных медицинских изданий Великобритании. Это сборник рассказов, в которых Лиам Фаррелл, в лучших традициях Булгакова и Чехова, со свойственными ему проницательностью и юмором описывает будни врача, стоящего на переднем крае (   Читать дальше...   )Жанр: Популярно о медицинеПеревод: Татьяна ЗемлерубИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2256CE3DD8C378169A1172AC620FBD342EEB70E2
+magnet:?xt=urn:btih:2AE6DE9F2AAAB4660EFD4DB2F91DF0D2215A9E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723441   (56446) от 15.05.2024
+
+В.В. Мултановский, А.С. Василевский | Курс теоретической физики [4 книги] (1985 - 1991) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс теоретической физики выпущенный в 4-х томах в издательстве «Просвещение», предназначенного для студентов педагогических вузов.Жанр: ФизикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E78AF7557CC1181BE9A48079F12B03D4AE52459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723575   (56390) от 16.05.2024
+
+С.Л. Вальдгард | Занимательная электротехника (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56390.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в популярно-занимательной форме излагаются понятия об электричестве и его применении в различных производствах, в автоматике; приводятся интересные примеры, сопоставления, факты из различных областей электротехники; рассказывается о технике будущего. Содержание книги основано на современных достижениях науки в области физики и электротехники.
+Книга рассчитана (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ПрофтехиздатФормат: DJVUКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEA6621BF22FA4E9C7CA1FF78B1A1E18096DBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723801   (56230) от 17.05.2024
+
+П.А. Ионкин, В.С. Пантюшин, В.А. Смирнов | Сборник задач и упражнений по общей электротехнике (1951) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для неэлектротехнических вузов и факультетов.Жанр: ЭлектротехникаИздательство: Советская наукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBA7AB9B108DC8AE7630202AACD47C8FB0A0FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724277   (56100) от 19.05.2024
+
+С.В. Архиреев | Начальная военная подготовка (2-е изд.) (2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовность гражданина защищать свою Родину предполагает наличие у него соответствующей минимально необходимой специальной подготовки. Именно поэтому в советских школах старшеклассникам преподавали учебную дисциплину «Начальная военная подготовка» (НПВ). Начальной военной подготовкой принято называть курс занятий, на которых знакомят с оружием, учат оказывать первую (   Читать дальше...   )Жанр: Военное делоИздательство: ООО НПП «НОК»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC233742B1DEFF906451AA16C1A140507C99E06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724550   (55843) от 21.05.2024
+
+Moore Martin | Oxford Grammar for Schools 1. Student's Book (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55843.jpg" />
+</div>
+
+
+###  Подробнее
+
+A 5-level series with clear explanations and communicative activities to help young learners and teenagers understand and practise grammar. Oxford Grammar for Schools gives students the opportunity to explore grammar for themselves and encourages them to be aware of their progress through regular self-evaluation and review. As students activate their grammar through (   Читать дальше...   )Жанр: УчебнаяЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC4C2D3965F1402124DBD89A8CAF9836906514D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724996   (55765) от 22.05.2024
+
+Г.С. Ландсберг | Элементарный учебник физики. Том 1. Механика. Теплота. Молекулярная физика (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших курсов элементарной физики, завоевавший огромную популярность. Достоинством курса является глубина изложения физической стороны процессов и явлений в природе и технике.
+
+Для старшеклассников и учителей общеобразовательных и средних специальных заведений, а также лиц, занимающихся самообразованием и готовящихся к поступлению в ВУЗ.Жанр: Учебная литература по физикеИздательство: ФИЗМАТЛИТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF7F9CC09FE1C9DD55D4AE7DBB0BC80467E0060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725004   (55764) от 22.05.2024
+
+Г.С. Ландсберг | Элементарный учебник физики. Том 2. Электричество и магнетизм (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших курсов элементарной физики, завоевавший огромную популярность. Достоинством курса является глубина изложения физической стороны процессов и явлений в природе и технике.
+
+Для старшеклассников и учителей общеобразовательных и средних специальных заведений, а также лиц, занимающихся самообразованием и готовящихся к поступлению в ВУЗ.Жанр: Учебная литература по физикеЯзык: РусскийИздательство: ФИЗМАТЛИТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F575CA12EF952D02291913F351D15707AEA7A79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725054   (55741) от 22.05.2024
+
+Е.В. Шикин, М.М. Франк-Каменецкий | Кривые на плоскости и в пространстве. Справочник (1997) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит справочный материал по геометрии гладких кривых на плоскости и в пространстве. Описаны основные геометрические характеристики почти двухсот классов кривых, наиболее часто встречающихся в различных областях знаний и в практических приложениях. Изложение сопровождается большим количеством рисунков (728), иллюстрирующих ключевые понятия, факты и методы. (   Читать дальше...   )Жанр: МатематикаИздательство: ФазисФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A224267608C90AA5F6C5C143EAE860FF699DD6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725222   (55625) от 23.05.2024
+
+Г.С. Ландсберг | Элементарный учебник физики. Том 3. Колебания и волны. Оптика. Атомная и ядерная физика (2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших курсов элементарной физики, завоевавший огромную популярность. Достоинством курса является глубина изложения физической стороны процессов и явлений в природе и технике.
+
+Для старшеклассников и учителей общеобразовательных и средних специальных заведений, а также лиц, занимающихся самообразованием и готовящихся к поступлению в ВУЗ.Жанр: Учебная литература по физикеЯзык: РусскийИздательство: ФИЗМАТЛИТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE9BB8EDE29F0923F1FE1BFCDADCD19E947ABCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725468   (55511) от 24.05.2024
+
+А.С. Енохович | Справочник по физике (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий справочник адресован учителю физики средней школы. В нем собраны данные, представляющие интерес для учителя и необходимые ему в повседневной работе: при подготовке и проведении уроков, факультативных занятий, производственных экскурсий, при организации и проведении разнообразной внеклассной работы. Справочник может быть использован для подбора материала, (   Читать дальше...   )Жанр: ФизикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99CF7FD25D3430DB72DA19958B47A1A891BF279F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725459   (55510) от 24.05.2024
+
+А.И. Бачинский, В.В. Путилов, Н.П. Суворов | Справочник по физике (1951) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое издание «Справочника по физике» по сравнению с предыдущим, вышедшим в 1941 г., дополнено и в значительной мере переработано. В книгу введены новые главы: «Обозначения основных физических величин» и «Размерности физических величин». Почти полностью переработаны главы: «Единицы измерений, меры и основные метрологические величины», «Универсальные постоянные». (   Читать дальше...   )Жанр: ФизикаИздательство: УчпедгизФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D35C993595493F84A020A08CC668632AFE8818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725495   (55389) от 25.05.2024
+
+Carl W. Hart | The Ultimate Phrasal Verb Book: For ESL and EFL Students (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Presents 400 common phrasal verbs as they are used in everyday English. Updated information includes the most commonly used phrasal verbs, hundreds of examples in context and hundreds of exercises to increase fluency and prep for the TOEFL, and more.
+Updated to reflect questions found on the most recent ESL tests, this book (3rd ed.) presents 400 common phrasal verbs (   Читать дальше...   )Жанр: Учебное пособиеЯзык: английскийИздательство: Barron's Educational SeriesФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B273F64343477922F28BBE357591CE3312FFFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725805   (55314) от 26.05.2024
+
+Н.М. Матвеев | Дифференциальные уравнения (1968) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55314.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании но сравнению с прежними усилены разделы, связанные с современными проблемами теории обыкновенных дифференциальных уравнений. Книга является единым руководством по изучению вопросов теории обыкновенных дифференциальных уравнений и методов интегрирования. В каждой главе приводится содержание соответствующей части курса и литература, даются развернутые (   Читать дальше...   )Жанр: МатематикаИздательство: Вышэйшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BA76B48EC758E9AFBBD3B891C6C6445942DAF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726156   (55212) от 27.05.2024
+
+Dorling Kindersley | Ultimate Visual Dictionary (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55212.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Ultimate Visual Dictionary is a visual dictionary of over 33,000 frequently explored places and things, from the origins of the universe to modern technology.
+The section is divided into 14 main sections, including Animals, Railroads and Railroads, Music, and others, each with its own table of contents, allowing readers to find a graphic definition of an object (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Penguin Random HouseФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5919DAF4906ABAD2B49F2F5565FB303D929771C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726090   (55209) от 27.05.2024
+
+Е.М. Гершензон и др. | Курс общей физики (1979 - 1982) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55209.jpg" />
+</div>
+
+
+###  Подробнее
+
+4-х томный курс физики для студентов физико-математических факультетов педагогических институтов.Жанр: ФизикаИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0E76299D4CB9B9B26FDC1D5EA338AD976C156E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726088   (55202) от 27.05.2024
+
+К.В. Малаховский | История Новой Зеландии (1981) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55202.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Новой Зеландии во многом сходна с историей других «белых доминионов» Британской империи. Так же как Австралия и Канада, Новая Зеландия возникла как переселенческая колония.
+Британские колонисты воспроизвели в Новой Зеландии социально-экономические отношения, свойственные Великобритании того времени. Так же как и австралийский, новозеландский капитализм развивался (   Читать дальше...   )Жанр: ИсторияИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD2C1D38486E4468DD418F28F0BD5A60C455B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726087   (55201) от 27.05.2024
+
+К.В. Малаховский | История Австралии (1980) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография, посвященная исследованию истории Австралии, основана на архивных и официальных документах, критическом изучении фактического материала, содержащегося в наиболее значительных зарубежных работах по истории Австралии, в австралийской, английской, американской, новозеландской и японской периодике. В книге анализируются процесс британской колонизации и ее (   Читать дальше...   )Жанр: ИсторияИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB82817DAA5FE3B5A40EC2ECE7021ABF0532233F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726291   (55115) от 28.05.2024
+
+Н.М. Матвеев | Сборник задач и упражнений по обыкновенным дифференциальным уравнениям (1987) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержится более полутора тысяч задач и упражнений по всем разделам курса обыкновенных дифференциальных уравнений. Перед каждой главой приводятся краткие сведения из теории, типовые примеры, ответы ко всем задачам и указания для решения наиболее трудных задач. Для студентов ВУЗов, обучающихся по специальности "Математика". Значительная часть сборника может (   Читать дальше...   )Жанр: МатематикаИздательство: Вышэйшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE16792E12F263120874F34FE748F92E89F7B556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726420   (55108) от 28.05.2024
+
+Книжная серия | Континенты, на которых мы живем [6 книг] (1976 - 1982) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55108.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящий комплект вошло шесть книг, описывающих разные части света, их растительный и животный мир. Все книги богато иллюстрированы.Жанр: ПриродоведениеИздательство: ПрогрессФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377A826438759FF2FD4927734D36731B68AA03FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726592   (55033) от 29.05.2024
+
+С.Н. Кожевников и др. | Механизмы (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее третье издание книги, как и второе (см. «Элементы механизмов», Оборонгиз, 1956 г.), посвящено главным образом механизмам. Книга содержит описание 2030 механизмов и их элементов, применяющихся в современных машинах различных отраслей промышленности, а также описание элементов и аппаратуры автоматических устройств. В основу расположения огромного материала (   Читать дальше...   )Жанр: Технические наукиИздательство: МашиностроениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726B82A08C1E07740DDF4F69CB83165CC7682DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726617   (55030) от 29.05.2024
+
+И.А. Бершадский | Микроконтроллеры и микропроцессорные устройства в электроэнергетике (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены принципы построения микропроцессорных систем, архитектура и назначение ее отдельных элементов, средства согласования микропроцессорных систем с объектами управления, методы программирования микроконтроллеров АУБ, базовые примеры применения микроконтроллеров. Показано использование микроконтроллеров в электроэнергетике.
+Для студентов электроэнергетических (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26A28746285EF9E86EC13321CD9A0C9410FB60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 890872   (55018) от 29.05.2024
+
+А.М. Заездный и др. | Теория нелинейных электрических цепей (1968) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55018.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дается систематическое изложение вопросов теории нелинейных и параметрических цепей, применяемых в системах связи. Рассматриваются нелинейные элементы, параметрические элементы и функциональные узлы. Приводится физическое толкование процессов преобразования сигналов в нелинейных и параметрических цепях и излагаются методы анализа и синтеза целей, в которых (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: СвязьФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B750929758D5F2F8200B75CE2E37EB6F4C27AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726665   (55013) от 29.05.2024
+
+А.Д. Григорьев | Микроволновая техника (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55013.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются линейные микроволновые устройства, включая методы их анализа. Первые главы книги описывают теорию микроволновых цепей. В них описывается переход от электродинамического подхода к цепному. Вводятся понятия эквивалентного напряжения и тока, коэффициентов отражения и стоячей волны, входного сопротивления и сопротивления нагрузки.
+Описываются (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЛаньФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B55A481B11B093832E10300BBA260D6B0E985F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1261529   (303488) от 11.11.2018
+
+Konrad Plaickner & His Orchestra - Atlantic Crossing (1981) LP [MP3|320 Kbps] <Stage & Screen, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlantic Crossing (3:04)
+02. New Horizon (3:39)
+03. Hobby Cat (2:45)
+04. Junior Talker (3:02)(   Читать дальше...   )Жанр: Stage & Screen, Pop Rock, DiscoПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9B5CCF70D801733607AB9BA957C36774A5F249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261548   (303479) от 11.11.2018
 
 VA - DJ Hitparade Jubiläeumsedition: 40 Größe Hits Aus 10 Jahren (2018) [MP3|320 Kbps] <Pop, Schlager>
@@ -223,6 +252,32 @@ Harold Faltermeyer - Harold F (1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AA1B6388CD59806C2691DDD3898AA19F3947BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184800   (299303) от 18.11.2017
+
+Tom Elliot - 2 Space Albums (Unknown) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя - Ole Georg Hansen. Датский продюсер, композитор, аранжировщик и скрипач, родился 11 мая 1932 года в Слагельсе, Дания. Автор музыки мирового кино. Считается признанным создателем индустрии музыкального производства. Ссылки на полную биографию - под спойлером доп. информации. Дочерняя студия от  "Capitol Records" - "Media Music", выпускала (   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B746C29C154B8B240E552DA6E6DB79EC1B4085F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,64 +742,6 @@ Bernie Paul - Lucky (1987) LP [MP3|320 Kbps] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADA2F3397760A5C127B6D96AFE17D049F007AF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185635   (291415) от 22.11.2017
-
-VA - The Hit Factory: Ultimate Collection (2017) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291415.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Kylie Minogue  - Better The Devil You Know  3:53
-02.  Rick Astley  - Never Gonna Give You Up  3:33
-03.  Bananarama  - Venus  3:37(   Читать дальше...   )Жанр: PopПродолжительность: 03:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA62730644570C831CFC7AD1E9AF0C0B3DA47C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262913   (291412) от 17.11.2018
-
-Giorgia - Pop Heart (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le tasche piene di sassi
-02. Una storia importante (feat. Eros Ramazzotti)
-03. Lei verra
-04. Gli ostacoli del cuore (feat. Elisa)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C448BA5A16A67C8613D65DED20B7E776BB2EE355
 ```
 
 https://mybot314.ru/tekegram_catalog/

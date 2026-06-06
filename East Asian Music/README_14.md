@@ -1,3 +1,153 @@
+###  Публикация: 1178327   (352850) от 29.10.2017
+
+VA - NieR: Automata Original Soundtrack (2017) [FLAC 2.0 24/48|Lossless|tracks] <Soundtrack>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 岡部啓一           - 意味_無_ジュニーク・ニコール		[00:02:38]
+02. 岡部啓一           - 遺サレタ場所_斜光			        			[00:06:21]
+03. 岡部啓一	      - 穏ヤカナ眠リ									[00:06:49] (   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 04:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428DBE6CBAA0FA8C9762588EC0D49B0A0FE9F57B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 408287   (352615) от 10.11.2011
+
+Chiyomaru SHIKURA - THE WORKS ~Chiyomaru Shikura Music Collection~: VA (2008-2009) [FLAC|Lossless]<J pop-rock/Game/Anison>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_352615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 追想のディスペア いとうかなこ
+02. 磔のミサ ファンタズム(榊原ゆい)
+03. flower of bravery fripSide
+04. その先にある、谁かの笑顔の为に (   Читать дальше...   )Жанр: J pop-rock/Game/AnisonПродолжительность: 01:09:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577965   (350174) от 21.09.2022
+
+Sigh - Shiki (2022) [FLAC|Lossless|image + .cue] <Avant-garde, Black Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350174.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Kuroi Inori
+2.	Kuroi Kage
+3.	Shoujahitsumetsu
+4.	Shikabane(   Читать дальше...   )Жанр: Avant-garde, Black MetalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C8AC0E2AD0D825186144CB2CE43594FA554648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 407677   (348216) от 12.11.2011
+
+ZONE - 4 albums (2002-2006) Discography [FLAC|Lossless]<J rock,girl.band>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_348216.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. fortune
+ 2. mind
+ 3. Kaze no hajimaru basho
+ 4. Ai hana
+ 5. Once Again
+ 6. JET
+ 7. GO!
+ 8. Like
+ 9. Kuso to genjitsu no yoake
+ 10. ROCKING(   Читать дальше...   )2002-2006Жанр: J Rock,girl.bandПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578210   (347917) от 22.09.2022
+
+Seikima-II - Bloodiest (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Letter From A Dead End
+02. Run Run Run!
+03. Noroi No Syananana
+04. kouryoutarushinsekai(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1A321848CDD2699B31A486DDFFB75E2488C4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179667   (346467) от 01.11.2017
 
 Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -220,6 +370,41 @@ SYU - You Play Hard (2016) [MP3|320 Kbps] <Instrumental Neoclassical Power Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71589036C0020051A5801DB7BB785D19BB41D337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257917   (338946) от 15.11.2010
+
+Jang Yun-jeong - 6 album’s (2004-2008) [FLAC|Lossless]<Korean, trot, k-pop,k-dance, ballad, DJ's,female vocalists>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_338946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk 1:
+01 . 첫사랑
+02 . 어머나
+03 . 꽃
+04 . 짠짜라
+05 . 이따,이따요
+06 . 콩깍지
+07 . 어부바
+08 . 편지 (Feat. Sg워너비 채동하)
+09 . 사랑이 떠나네요(   Читать дальше...)Жанр: Korean, trot, k-pop, k-dance,ballad, DJ’s,female vocalistsПродолжительность: 01:09:18+00:50:30
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,6 +670,39 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314532   (328616) от 23.11.2011
+
+Ryuu-UNIT - 4 singles (2010-2011) [FLAC|Lossless]<J pop,hip-hop,female/male voice>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_328616.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ONE SIDE LOVE
+ 2. JUST YOU
+ 3. もっと (motto)
+ 4. DOKI×2
+ 5. ONE SIDE LOVE (Instrumental)
+ 6. JUST YOU (Instrumental)
+ 7. もっと (Instrumental)
+ 8. DOKI×2 (Instrumental)2010-2011Жанр: J pop,hip-hop,female/male voiceПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842170   (328327) от 18.11.2014
 
 Einherjar Records - 2 альбома (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
@@ -540,211 +758,6 @@ Finality Blast - Sorrow Halation (2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F5CD84A7E0C31BB0FC09D84B364F97854A541D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842174   (328233) от 18.11.2014
-
-False&Trues - 4 альбома (2009) Touhou Vocal, Instrumental /Doujin/ [FLAC|Lossless] <J-Pop>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.08.15 (FTCD-0001) technological (C76)
-2009.08.15 technological SPECIAL DISC in C76 (C76)
-2009.12.30 (FTCD-0002) techmatrix (C77)
-2009.12.30 techmatrix SPECIAL DISK (C77)Тип издания: DoujinЖанр: J-Pop, ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:02:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E946FA27E342E7ED1FD84F8D23EC4CDF0E30DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842178   (328215) от 18.11.2014
-
-Mods Crisis x Register6 - New Age Swager  (2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <Melodic Death Metal, Hardcore>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328215.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:15] 01. 提灯; 尚江 - Give Me Scream F****n` Guy
-[04:02] 02. 提灯; 尚江 - Lazy life
-[04:00] 03. 提灯; 尚江 - motionless
-[04:17] 04. 提灯; 尚江 - Show me your Identity
-[03:18] 05. 提灯; 尚江 - ブレイズ・アップ・ソング
-[03:55] 06. オカヒラ; ロー - 君と紡ぐ物語 (   Читать дальше...   )Тип издания: DoujinЖанр: Melodic Death Metal, HardcoreФормат: Touhou VocalПродолжительность: 00:00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F52CC8F515F736457B0EE7FFA08A70CE019B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957394   (327330) от 17.11.2015
-
-Shanren - Left Foot Dance of the Yi (2014) [OGG|465-587 кб/с]<World Music, Chinese Ethnic, Reggae, Rock Fusion, Pop>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционная народная музыка юго-западного Китая обретает новую жизнь - современное звучание!01. Wandering
-02. Thirty Years
-03. Laomudeng Village
-04. Bi Li Tong(   Читать дальше...   )Жанр: World Music, Chinese Ethnic, Reggae, Rock Fusion, PopПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28878EFF05EBEF792A6D1663CAD91A66C2736C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842172   (326691) от 20.11.2014
-
-FactoryNoise AG - 4 альбома (2005-2006) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2005.08.15 (FNAG-0002) BorderLine (C68)
-2006.05.21 (FNAG-0005) WindAge (Reitaisai 3)
-2006.11.16 (FNAG-0011) Time Limit ~Eternity~
-2006.11.16 (FNAG-0012) Time Limit ~Momentary~Тип издания: DoujinЖанр: Electronic, J-RockФормат: Touhou InstrumentalПродолжительность: 00:04:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762668C9ABCCE51AD0FF19E3DCFC5898A77D56D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181264   (321204) от 08.11.2017
-
-MONACA — DRAG-ON DRAGOON 3 Original Soundtrack (2014) [FLAC|tracks] <Soundtrack, Vocal>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-DRAG-ON DRAGOON 3 Original Soundtrack Disc 1
-DRAG-ON DRAGOON 3 Original Soundtrack Disc 2Жанр: Original Soundtrack, VocalПродолжительность: 00:02:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014CEC3F6813F1805CF771AB6BADBD9C35CE9324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181265   (321044) от 08.11.2017
-
-VA — NieR Gestalt & Replicant Original Soundtrack (2010) [FLAC|tracks] <Soundtrack, Vocal>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-NieR Gestalt & Replicant Original Soundtrack Disc 1
-NieR Gestalt & Replicant Original Soundtrack Disc 2Жанр: Soundtrack, VocalПродолжительность: 00:02:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81769F0514935B4549C0A8D9CC535A0C15059CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075323   (320101) от 22.11.2016
-
-Hatsune Miku Symphony 2016 Orchestra Live CD [FLAC|Lossless|image+.cue] <J-Pop, Orchestral>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320101.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD #1
-01. Future Overture (1:43)
-02. The First Sound (5:23)
-03. I'll Miku-Miku You♪ (For Reals) ~ Electric Angel ~ VOC@LOID in Love (5:32)(   Читать дальше...   )Тип издания: CommercialПроизводство: Warner Music JapanЖанр: J-Pop, OrchestralПродолжительность: 01:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5398CDD0A8245103CE3690E3AAF4A20A32A923
 ```
 
 https://mybot314.ru/tekegram_catalog/

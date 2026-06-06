@@ -1,3 +1,91 @@
+###  Публикация: 88341   (47513) от 08.08.2024
+
+Whitesnake - Live In The Still Of The Night (2006) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whitesnake — британо-американская рок-группа, играющая хард-рок с блюзовыми элементами, созданная в 1977 году Дэвидом Ковердэйлом, вокалистом распавшихся в 1976 году Deep Purple.
+Состав на настоящее время: David Coverdale, Doug Aldrige, Reb Beach, Timothy Drury, Uriah Duffy, Chris Fraizer1. Burn
+2. Bad Boys
+3. Love Ain"t No Stranger
+4. Ready An" Willing(   Читать дальше...   )Жанр: РокПродолжительность: 01:43:01 + 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D719AEC08B0124EBEE276E1AEADF6B9B53AC2F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 378017   (47500) от 08.08.2024
+
+VA / A Tribute To Stevie Ray Vaughan (1996) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стивен Рэй Вон — американский гитарист и певец. Один из самых известных и влиятельных гитаристов в мире. В 2003 году журналЖанр: Blues-RockУчастники: Bonnie Raitt
+Jimmie Vaughan
+B.B.King
+Buddy Guy(   Читать дальше...   )Продолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A40F716AC33DCA7CB90376EB6C4125E351D38A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327158   (47416) от 09.08.2024
+
+Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47416.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1980 году две мощные хард-рок-группы, Black Sabbath и Blue Oyster Cult, объединились для совместного концертного тура, в котором каждая из них предложила свой собственный, неповторимый подход к хэви-металу. Одна из дат этого тура была заснята на пленку, и фильм "Black & Blue: Black Sabbath и Blue Oyster Cult Live демонстрируют эти две группы-ветераны на (   Читать дальше...   )BLACK SABBATH
+01. War Pigs
+02. Neon Knights
+03. N.I.B.(   Читать дальше...   )Жанр: Heavy Metal, Hard RockФормат: DVD videoКачество: DVD9Продолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 728073   (47412) от 09.08.2024
 
 Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
@@ -655,90 +743,6 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C78EB8BCC94D4E265AEA48FC09BCEDF5AA8ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 14176   (46669) от 16.08.2024
-
-METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот концерт, отыграный в Форте Ворс, Техас, в мае 1997 года, пришёлся на "золотой период" группы. Тогда музыкантами впервые была опробована новая концепция живого выступления - концерт на арене. В плейлисте были отыграны классические теперь композиции как со свежих на тот момент альбомов Load/Reload, Black Album, так и с ранних трэш-скрижалей - Ride The (   Читать дальше...   )01 - So What
-02 - Creeping Death
-03 - Sad But True
-04 - Ain't My Bitch(   Читать дальше...   )Жанр: Thrash MetalУчастники: Lars Ulrich - ударники, James Hetfield - гитара, вокал, Kirk Hammett - гитара, Jason Newsted - бас-гитара, бэк-вокалФормат: DVD videoКачество: DVD9Продолжительность: 01:57:53 + 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C8252A9AAF282EDCACFC64AED6E44111121AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544727   (46653) от 16.08.2024
-
-Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus DVD) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46653.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь 30-летия эпохального альбома JUDAS PRIEST "Screaming For Vengeance", в сентябре состоялся релиз "Screaming For Vengeance - Special 30th Anniversary Edition", который содержит не только ремастированную версию оригинального альбома с бонус-треками, но и концертный DVD с записью концерта 29 мая 1983 года в San Bernadino CA на 1983 US Festival, (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC4B5BCF539A178F5B5E7A1128C83B9FF065C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628391   (46652) от 16.08.2024
-
-Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это было время когда рок концерты были как визуальный стимулятор, поскольку были на слуху, время взрывающейся пиротехники, не покоряющихся тяжести гитаристов и певцов пропитывающих потом кровь и душу всего освещённого пятна сцены. В те дни одна группа правила как короли зрелищности и технически точной музыкальности, группа, которая полностью владеет сценой  - это (   Читать дальше...   )01. The More Things Change
-02. Push Push
-03. Sick For The Cure
-04. Make Your Own Way(   Читать дальше...   )Жанр: RockФормат: DVD videoКачество: DVD9Продолжительность: 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6515EC24E1EEDCBED3BAE2B9BA1B20397CF55588
 ```
 
 https://mybot314.ru/tekegram_catalog/

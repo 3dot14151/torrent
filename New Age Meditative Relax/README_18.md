@@ -1,3 +1,32 @@
+###  Публикация: 1159330   (486129) от 19.08.2017
+
+VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silvio Piersanti - Mountains
+02. World Music Scene - Black Desert Dub
+03. Gilberto Medda - Flying High in the Sky
+04. Iffar, Klezan - Hybrid(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B21ECB421FE0B518E9503F200A34A503950D8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055659   (486109) от 23.09.2016
 
 Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
@@ -736,35 +765,6 @@ Snatam Kaur - Light Of The Naam. Morning Chants (2014) [MP3|320 кб/с]<New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07B9E901DEE4F4C02E6FA0E31D014E0F1468F1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060304   (457250) от 06.10.2016
-
-Eguana - The Last Dragon (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Breathing Cold Mountains (6:24)
-02.  Spirit Of The Dragon (9:49)
-03.  The Majestic Finesse To Soul (6:23)
-04.  Shaman Dancing With Dragon (9:53)(   Читать дальше...   )Жанр: Ambient, Chillout, New ageПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8C466FBCD9AEDD0D40F883B7B97472942176AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

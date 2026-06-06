@@ -1,3 +1,29 @@
+###  Публикация: 1412416   (418359) от 29.09.2020
+
+Translatium 14.0.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Translatium - мощное приложение для перевода для macOS.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2020Разработчик: Quang LamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BBEE488941976C591849D4FA666A3B511CF1C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573009   (417254) от 29.08.2022
 
 PDF Plus - Merge & Split PDFs 1.3.2 [En]
@@ -669,35 +695,6 @@ Kite предлагает ряд базовых строительных бло�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A8A26B20541DAC2D7B15F8726379577C9422511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170515   (399411) от 01.10.2017
-
-PhotoStack for Instagram 3.7.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399411.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoStack (был Instastack) - настольный клиент Instagram.
-PhotoStack -  Это самый элегантный способ просмотра Instagram на Mac.
-PhotoStack - это новый инструмент, чтобы помочь вам открыть для себя Instagram и если вы хотите подключить свой аккаунт Instagram из строки меню на вашем Mac, PhotoStack это ваш инструмент.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: июль 2017Разработчик: IcyArrow,Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3AB7E4A1D77FE4C8B7A261A53EB06C518106F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

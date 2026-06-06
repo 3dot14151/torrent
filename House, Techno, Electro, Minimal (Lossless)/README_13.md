@@ -1,3 +1,203 @@
+###  Публикация: 1368701   (907425) от 21.03.2020
+
+Dani Corbalan - Best of . 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907425.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Redemption (Radio Edit) (3:26)
+2. In Love (Radio Edit) (2:59)
+3. Back to Love (Radio Edit) (2:49)
+4. Ankara (Radio Edit) (3:20)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:1
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62F0B7390898D289956E91508DAF36740148C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368036   (907214) от 21.03.2020
+
+Sofi Tukker - Treehouse (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Indie Pop, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuck They (03:04)
+02. Energia (03:07)
+03. Benadryl (03:16)
+04. Batshit (03:23)(   Читать дальше...   )Жанр: Dance-pop, Indie Pop, HouseПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD883951A096EDD1509ACCF8A10B6E74938F521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261397   (906929) от 27.08.2021
+
+HVL | Kaiji | Kiyadama - Discography 23 Releases (2013-2021) Rough House Rosie [FLAC|Lossless|tracks] <Electro, Techno, IDM, Acid, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myriads Of Beings (04:21)
+ 02. Feb Summer Song (05:31)
+ 03. Decasid (05:11)
+ 04. ჭოლევი (04:19)(   Читать дальше...   )Тип издания: Web, VinylЖанр: Electro, Techno, IDM, Acid, Ambient •Продолжительность: 15:27:26 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FA8D8C64CB3D80EAA601044B4E580E679DCB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289686   (906872) от 07.02.2011
+
+VA - Космонавт и Спутники - Наверх (2010) [FLAC|Lossless]<Progressive House, Progressive Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive House, Progressive BreaksПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991475   (906056) от 28.02.2016
+
+VA - Live In Montreal (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Downtempo, Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Continuous Dj Mix 1 (72:12)
+02. Continuous Dj Mix 2 (77:06)
+03. Continuous Dj Mix 3 (72:35)
+04. Continuous Dj Mix 4 (78:25)(   Читать дальше...   )Жанр: Downtempo, Deep House, Tech House, TechnoПродолжительность: 16:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0A9B5E70A6AF1B1C464176CCD2AF356DDDC699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991711   (905905) от 28.02.2016
+
+Scooter - Ace (2016) [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace
+02. Oi
+03. Mary Got No Lamb
+04. Riot(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A94C942E39AFBE3F25234D49F444FA232D9106E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991831   (904228) от 29.02.2016
+
+VA - Klubb House 2006 (2006) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.N.G. - Pussy Pussy (Dj E-Maxx remix) (4:16)
+02. Master Guys - Rocking (Original Club Mix) (6:46)
+03. Gambus & Alvard - Don't Fade (Club Cut) (3:54)
+04. Puncher - Dance Mf Club Extended (6:56)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72871E309313454A596EC5CA6E56A15924FA0028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369348   (903815) от 23.03.2020
 
 Krewella - zer0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance, Electronic>
@@ -542,208 +742,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:274E15DF66F2A8D0BC7EBA240918BAC9CBBD0E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280023   (888786) от 07.09.2021
-
-John Beltran (Placid Angles, Nostalgic) - Discography 43 Releases (1995-2021) Delsin, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Detroit Techno, Future Jazz, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Placid Angles (06:35)
- 02. Detroit Moments (01:57)
- 03. Going Home (06:00)Тип издания: CD, Web, VinylЖанр: Techno, Ambient, IDM, Detroit Techno, Future Jazz, Leftfield •Продолжительность: 27:17:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A2B5014659680DB73884D9F042B2F7EB006AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103025   (887894) от 11.02.2017
-
-VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+image] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secondcity & Solarris – Pensive (Dub Mix) (5:59)
-02. Citizenn – Be (Ralph Lawson Dub) (7:34)
-03. Secondcity – 87 Terrace Tech (6:17)
-04. Roberto Apodaca & Le Disxco – T**t Lickin (Samu L Remix) (7:36)(   Читать дальше...   )Производство: CR2 - ITC 2DI209Жанр: Deep HouseПродолжительность: 03:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2930D2EFA84D0320401E43D6A1BAE1C0784BF353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103030   (887336) от 11.02.2017
-
-VA - The Best Of 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medway - Trauma (Donatello remix) [06:41]
-02. Imran Khan - Buenos Aires (original mix) [08:42]
-03. DP-6 - Reload (Rick Pier O'Neil remix) [06:35]
-04. Alfonso Muchacho - Until The End (original mix) [09:34](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 07:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19783AF607372BE7869BC5AEBE806C25F67F8184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494743   (885922) от 09.09.2021
-
-VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Breakbeat, Hardcore, House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus III - I Talk To The  Wind (03:59)
- 02. Transformer 2 - Pacific Symphony Too (Techno Symphony Remix) (05:11)
- 03. Rum & Black - Wicked (04:24)
- 04. DJ Professor - Rock Me Steady (03:31)(   Читать дальше...   )Тип издания: CDЖанр: Breakbeat, Hardcore, House, Techno •Продолжительность: 02:58:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5529DFD2F70C6E0183727D42B5BD7C40E6D757F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372181   (885369) от 03.04.2020
-
-The 5th Galaxy Orchestra - Utopia Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chillout, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Place Between Us (6:31)
-02. Night Cityscapes (4:02)
-03. Exotic Flavours (4:30)
-04. Cuckoo Beach (4:30)(   Читать дальше...   )Жанр: Deep House, Chillout, LoungeПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C2A5C7FC8A009256358EB77736F2B284B62687A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495111   (884539) от 10.09.2021
-
-VA - Scorchin' Sessions Vol. 1 (Mixed by Super8 & Tab) (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BetweenUs - Lost Island (Mixed) (05:40)
-02. Sam Heyman - Corvus (Mixed) (04:54)
-03. Angel One - Each Of Us (Mixed) (02:42)
-04. Nick Hayes - Signal (Mixed) (04:07)(   Читать дальше...   )Жанр: EDM, Progressive House, TranceПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CA740DCA3AD89310D35B621A43AE17F95419AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383880   (884429) от 10.09.2021
-
-Lou Karsh | Reptant - Discography 14 Releases (2016-2021) LKR Records, X-Kalay, Salt Mines [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost In The Filter (05:21)
- 02. Time Blind (05:31)
- 03. Shermanic Ritual (06:09)
- 04. Reptilian Magnetism (04:37)Тип издания: WEBЖанр: Electro, Acid, IDM, Techno, Breaks •Продолжительность: 06:523:17 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3DABEBA9E76C892EDA9208AC8988CBC803D4F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,134 @@
+###  Публикация: 1302257   (582249) от 14.05.2019
+
+ORS (Orlando Riva Sound) - Who Built The Pyramids (1981) 12'' [MP3|320 Kbps] <Electronic, Downtempo, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Built The Pyramids (5:19)
+02. The Wall Of Sound (6:46)
+03. Neonlight Children (4:39)
+04. Aren't You God (6:24)Жанр: Electronic, Downtempo, Funk, DiscoПродолжительность: 00:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A9B58360440BFFC3AA20E7BBFC729462E6609C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810975   (581493) от 07.08.2014
+
+Saphir - Perfect Combination (2006) Limited Edition [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Good (I Feel Fine) 4:51
+02. The Witch-Queen Of New-Orleans 3:31
+03. Little Rock 4:06
+04. Frough Your Eyes 4:07
+05. Shot In The Night 4:21
+06. Perfect Combination 3:12
+07. Never Give Up 4:00
+08. Storms Of Love 3:56
+09. Stand Up 3:47
+10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561FE84C67FE578A78DA60B8CABE9799F5BB0E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811133   (581485) от 07.08.2014
+
+Grant Miller - The Maxi-Singles Collection (2007) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder Than Ice 5:35
+02. Red For Love 5:28
+03. Doctor For My Heart 5:16
+04. I'm Alive Tonight 3:59
+05. Wings Of Love 5:15
+06. California Train 4:54
+07. (Find My) Tracks In The Snow 5:06
+08. Break Away 5:52
+09. Stranger In My Life 4:29
+10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D4D746FF999D533B847BFE605A076E9B0F8300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810893   (581444) от 07.08.2014
+
+VA - Italo Maxi Hits (2010) 2CD [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch - Delirio Mind 5:24
+02. Paul J.Qualley - Please Please 4:31
+03. Rewind - Rosalie (Pop & Go !) 6:04
+04. Orlando Johnson - With Just A Kiss 6:08
+05. Twilight - My Mind 7:48
+06. Stage - Voodoo Dance 7:06
+07. A.I.M. - So Evil (Close To The Edge) 7:50Жанр: Italo-DiscoПродолжительность: 01:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCB8B2CD67EC1067A543209E97C0D15C17D3688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 811228   (580572) от 08.08.2014
 
 Latin Lover - Casanova Action (2007) [MP3|320 кб/с]<Italo-Disco>
@@ -673,122 +804,6 @@ Hipnosis - Hipnosis (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Spacesynt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7723757965EEAAA8DB22A0125DD8EDD26F4C9D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555364   (570348) от 03.06.2022
-
-Made In U.S.A. - Melodies (1977) Reissue, 2017, Octave Lab [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Gonna Let You Go (5:08)
-02. Try Once More (4:16)
-03. Sexy Lady (4:29)
-04. Try To Find A Way (3:20)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A270120F85ADD97513A97C8948A2EACDF8E76880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303895   (569423) от 23.05.2019
-
-Norman Harris - The Harris Machine (1980) LP [MP3|320 Kbps] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Don't Want To Be Lonely (5:54)
-02. Dodge City, Hit City (7:03)
-03. You Make Me Feel Brand New (6:11)
-04. Zack's Fanfare '80 (0:54)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B868E201B0449FF408424A53BD60D1E9E7159F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044157   (568920) от 18.08.2016
-
-VA - Disco Tape Vol 4 (2016) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Firefly - You Make Me Happy (5:09)
-02. Change - Oh What a Feeling (12 Paul Hardcastle Remix) (5:31)
-03. Styloo - Pretty Face (6:08)
-04. Peter Jacques Band - Everybody Have a Party (Peter Slaghuis Remix) (6:27)(   Читать дальше...   )Производство: RLT RecordsЖанр: DiscoПродолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6064EFEDC309FE22C8833A7CD52E4EE4C85AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303956   (568773) от 23.05.2019
-
-Tommy Seebach - Disco Tango (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Tango (Dansk Grand-Prix Version) (2:50)
-02. Boogie Woogie Rendez-Vous (3:21)
-03. Apache (4:45)
-04. Never Go To Jail (4:20)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, Synth-popПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC49AFE2433D781565F33535AC374140AAFAEED8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,96 @@
+###  Публикация: 1027575   (696202) от 19.06.2016
+
+Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synth-pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's in the Blood (4:50)
+02. Getcha Ya Ya (4:34)
+03. She Broke My Heart (In 36 Places) (3:40)
+04. She Said She Loves Me (4:17)(   Читать дальше...   )Жанр: Euro House, Synth-popПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CAD0173D829B4617E249884036B3E5B9D453F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514899   (657845) от 24.06.2012
+
+VA - Different Shades Of Savage (2011) 2CD [APE|Lossless]<Italo-Disco, Synth-pop, Italodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.A.N.G. - Incantations (Vocal) :: 09:42
+02. Joey Moon - Angelica (Original) :: 06:30
+03. Rose - Magic Carillon (Vocal) :: 06:09
+04. Tango - Computerized Love (Original) :: 05:16
+05. Lena - Run To Me (Extended Version) :: 04:53
+06. Frank Raja - Born To Be Alive (Original) :: 06:02
+07. Limit Eccitation - In The Dark (Original) :: 05:12
+08. Wilson Ferguson - I'm Singing Again (Extended Version) :: 05:47
+09. Paula Evans - Ciao (Extended Version) :: 05:10
+10. Savage - So Close (Hijack Remix) :: 05:20(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, ItalodanceФормат: 2xCD, Compilation, RemasteredПродолжительность: 02:10:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226188   (656748) от 19.05.2018
+
+VA - Eurodance Master (Rare & Unreleased tracks from Axel Breitung) (2008) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Hype - Train Of Love (3:53)
+02. Megamorph - Fade To Grey (3:22)
+03. UC Colors - U Got The Rhythm (3:59)
+04. Indiansphere - Spirit Of The Hawk (3:07)(   Читать дальше...   )Жанр: Eurodance, Euro-House, TechnopopПродолжительность: 02:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B39BC89DD2C7EDE3754663EE119DA0B4BB0238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149705   (656743) от 19.05.2018
 
 Robin Cook - Land Of Sunshine (1997) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro House>
@@ -656,99 +749,6 @@ Coeur de Pirate - Carry On (2015) Single [FLAC|tracks|WEB-DL]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:830B10DACAE8C5CCFE72FAD168F054351290C9BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375833   (513164) от 14.08.2011
-
-Modern Talking - Romantic Dreams (1988) [FLAC|Lossless]<EuroPop, Synth-pop, Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: EuroPop, Synth-pop, DiscoПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537074   (512227) от 20.08.2012
-
-The Monotones - Disco Net - Wodka Da (1980) 2000 Remastered [APE|Lossless]<Pop, Synth-pop, Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дополненное ремастированное издание 2000 года единственного альбома пародийной группы из Голландии The Monotones выпущенного в 1980 году под названием "The Monotones". А начиналось всё с "Mono" - пародии на такие песни как "Video killed The Radio Star" The Buggles и "Popmuzik" M. Но большую популярность приобрел трек "Disco Njet - Wodka Da", что и повлияло на смену названия релиза в дальнейшем.01. Disco Net - Wodka Da :: 02:45
-02. Zero To Zero :: 05:44
-03. Yesterday I Saw An UFO :: 04:58
-04. Edison :: 03:11
-05. Mono :: 06:01
-06. Big Bang :: 08:29
-07. Monotone Music :: 02:39Жанр: Pop, Synth-pop, DiscoФормат: CD, Album, RemasteredПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541120   (501238) от 31.08.2012
-
-VA - Best Of Comeback United (2004) 2CD [FLAC|Lossless]<Europop, Pop Rock, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limahl – Can You Feel The Love Tonight [04:02]
-02. Benjamin Boyce – Mandy [03:36]
-03. Coolio – Rappers Delight [03:29]
-04. Chris Norman – The First Cut Is The Deepest [03:49]
-05. Emilia – All That She Wants [03:25]
-06. Haddaway – Sexbomb [03:33]
-07. C.C.Catch – Can’t Get You Out Of My Head [03:51]
-08. Markus – Konig Von Deutschland [02:46]
-09. Weather Girls – I’m So Excited [03:41]
-10. Jazzy – Hurra, Hurra, Die Schule Brennt [03:12](   Читать дальше...   )Жанр: Europop, Pop Rock, Euro HouseПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

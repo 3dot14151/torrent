@@ -1,3 +1,119 @@
+###  Публикация: 1569082   (455703) от 11.08.2022
+
+Bad Boys Blue - Game Of Love (1990) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of Hearts	4:11
+02. Jungle In My Heart	3:38
+03. I Don't Know Her Name	3:23
+04. Jenny, Come Home	3:49(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F88835A6A248F51B354E2433F2BB3CC5136CF6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569060   (455701) от 11.08.2022
+
+Bad Boys Blue - Heart Beat (1986) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Hear Your Heartbeat (Sunday Girl)	3:50
+02. Mon Amie	4:35
+03. One Night In Heaven	4:45
+04. Baby I Love You	4:05(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C826A6F5462691FF7AB122274E626CB762A69CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568880   (455570) от 11.08.2022
+
+Bad Boys Blue - My Blue World (1988) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A World Without You >Michelle< (Radio Edit)	3:32
+02. Don't Leave Me Now	6:10
+03. Bad Reputation	3:36
+04. Don't Walk Away Suzanne	3:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8DAD66C0767E304193BDBA95DDDC6D00586853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568991   (455563) от 11.08.2022
+
+Bad Boys Blue - Hot Girls, Bad Boys (1985) [OGG|480 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman	5:21
+02. I Live	4:54
+03. Pretty Young Girl	5:46
+04. L.O.V.E. In My Car	5:24(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E5472D9988FE933B81A93D0FA9B106254B5FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060634   (455185) от 07.10.2016
 
 Poussez! - Poussez! (Poo-say) (1979) Reissue CD (2005) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
@@ -634,122 +750,6 @@ VA - The Best Of Italo Disco Hits Vol. III (1985) [OGG|485 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D4EFB2C52036315F24576D431992AB52C09ECC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569818   (447187) от 15.08.2022
-
-VA - The Best Of Italo-Disco Vol. 5 (1986) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Strangers – My Delight	6:12
-02. Jimmy & Susy – Come Back	6:03
-03. Max-Him – Japanese Girl	5:58
-04. Cruisin' Gang – America Medley With Machinery	7:27(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0E796CEBA427BA1CBECA06B2202D0EB5FB98ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569830   (447104) от 15.08.2022
-
-VA - The Best Of Italo-Disco Vol. 8 (1987) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solo – Harem	5:36
-02. Linda Jo Rizzo – Heartflash (Tonight)	5:58
-03. Silver Pozzoli – Pretty Baby	5:58
-04. Mike Mareen – Agent Of Liberty	8:50(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2706F85D77DC620EF7C93917769864C43DF775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409427   (445247) от 17.09.2020
-
-Michele Freeman - Michele Freeman (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice And Slow  (7:55)
-02. Find The Fire  (5:12)
-03. Where'd You Get What You Got  (5:43)
-04. Tumble Heat  (6:31)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE01C7DE0370C5EBA8FECF8AEBE67677E75DB1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570255   (445012) от 16.08.2022
-
-Mike Mareen - Greatest Hits & Remixes (2020) [OGG|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Spy (Night Mix)	8:42
-02. Dancing In The Dark (Galactica Remix)	7:08
-03. Lady Ecstasy (12" Version)	5:39
-04. Stand Up (Alternative Maxi Version)	8:18(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D365AA08CA6E05F101016CC8580AB6C0AC376A63
 ```
 
 https://mybot314.ru/tekegram_catalog/

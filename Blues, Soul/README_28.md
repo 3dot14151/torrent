@@ -1,3 +1,61 @@
+###  Публикация: 1573425   (412371) от 31.08.2022
+
+Tommy McLain - I Ran Down Every Dream (2022) [MP3|320 Kbps] <Roots, Country, Blues, Swamp Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - No Tomorrows Now [00:03:08]
+02 - I Ran Down Every Dream (feat. Elvis Costello) [00:03:22]
+03 - I Hope [00:03:47]
+04 - Livin' on the Losin' End [00:02:54](   Читать дальше...   )Жанр: Roots Rock, Country Rock, Blues Rock, Swamp RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F66D3448C924EA9488162C84D1C0B26492EFF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167967   (410605) от 23.09.2017
+
+The Beat Daddys - 5 Moons (2006) [MP3|320 Kbps] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pale White Circle
+02 - Common Ground
+03 - Been There, Liked That
+04 - Bad Streak(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95511E25FC57E40ECCB302C8612BC8E89E88F479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168185   (410558) от 23.09.2017
 
 Val Starr & The Blues Rocket - I Always Turn The Blues On (2017) [MP3|320 Kbps] <Blues Rock>
@@ -687,64 +745,6 @@ James Brown - Messing With The Blues , 2CD (1990) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BD3A7C5E15337B88B4F7717DE86C648C75EE7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253658   (381690) от 10.10.2018
-
-The Michelle Taylor Band - Dirty Love (2018) [MP3|320 Kbps] <Blues Rock, AOR>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanging on the Vine (03:54)
-02. One Foot in the Gutter (04:18)
-03. Highway 65 (04:59)
-04. Dirty Love (04:19)(   Читать дальше...   )Жанр: Blues Rock, AORПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCFC8688A5F35B331FB0E7EDE630B75DD2B1CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414854   (381046) от 10.10.2020
-
-Rory Gallagher - The Best Of (2020) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Penny (Remastered 2017) (4:04)
-02. Walk On Hot Coals (Remastered 2017) (7:02)
-03. Blister On The Moon (3:27)
-04. Loanshark Blues (Remastered 2017) (4:27)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB3EBBDCF08604990C574EFE8F13175BE99CABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

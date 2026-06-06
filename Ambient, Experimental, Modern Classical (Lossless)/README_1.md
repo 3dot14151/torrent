@@ -1,3 +1,32 @@
+###  Публикация: 1461720   (1021750) от 10.04.2021
+
+Jean-Michel Jarre - Amazonia (2021) Columbia [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Tribal, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonia Part 1 (07:43)
+ 02. Amazonia Part 2 (10:00)
+ 03. Amazonia Part 3 (08:10)
+ 04. Amazonia Part 4 (03:17)(   Читать дальше...   )Жанр: Ambient, Field Recording, Tribal, ExperimentalПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74CADFB0053AA0582B645E015AE4872EAB58606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108211   (1021683) от 10.04.2021
 
 How To Disappear Completely (HTDC, FOG & HTDC) - Discography 33 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Post Rock, Experimental>
@@ -708,35 +737,6 @@ VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC 2.0|48/24|tracks|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71CED093C286A9FBF4A91F1F5102795B4283671F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480924   (1008596) от 01.07.2021
-
-beatfarmer - The Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Light (06:03)
- 02. Teatime (ambient mix) (07:34)
- 03. The Moon Called Out to Me (09:14)
- 04. Dawn Breaking (06:19)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B3764D6F24E93FE9092452BA237398DFD61E67
 ```
 
 https://mybot314.ru/tekegram_catalog/

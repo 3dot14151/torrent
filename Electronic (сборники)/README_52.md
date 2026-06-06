@@ -1,3 +1,90 @@
+###  Публикация: 1121076   (800617) от 02.04.2017
+
+VA - Trance Traveling 87 (Mixed by VNP) (Special Uplifting Mix) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Suncatcher - The Beach (Extended Mix)  6:07
+02.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (Standerwick Remix)  3:40
+03.  Heatbeat - Bondi (Extended Mix)  4:36
+04.  Ben Gold - Pilot (Extended Mix)  4:52(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 03:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C8BD7E83E4B25B3BB19CC9A0577A2B02E92515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121292   (800547) от 02.04.2017
+
+VA - Deep House Collection Vol.115 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A - Mase - Spring Love, Mad Love (Radio Mix) 3:08
+002. Acidbro - Moon Day (Vip Tech Mix) 6:57
+003. Andrey Exx - Need to Feel Loved (Original Mix) 6:53
+004. Anton Suchorukov - Tagtraum (Original Mix) 4:45(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D69690693499768D102FB65283CDA8834941A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121479   (800497) от 02.04.2017
+
+VA - Future Trance - Best Of 20 Years (2017) [MP3|320 Kbps] <Future House, Techno, Trance, Hands Up, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scooter - Posse (I Need You On The Floor)  3:52
+02.  Jan Wayne meets Lena - Total Eclipse Of The Heart  3:30
+03.  Sylver - Forever In Love  2:44
+04.  Darude - Sandstorm  3:46(   Читать дальше...   )Жанр: Future House, Techno, Trance, Hands Up, Dance, ClubПродолжительность: 05:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12C68567485A6A15D78F59DD86C4AE28F7D9502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199648   (800447) от 17.01.2018
 
 VA - Keeper Of The Deep: Zone Drum And Bass (2018) [MP3|224-320 Kbps] <Drum & Bass>
@@ -658,93 +745,6 @@ VA - Deep House Collection Vol.193 (2018) [MP3|320 Kbps] <House, Deep House, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2445C73467CCA8F9DD6AA97ED46D319862C6F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273836   (798572) от 04.01.2019
-
-VA - Deep House Collection vol.194 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798572.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Sides Of Soul - Until You're Drunk (Original Mix)
-002. 84Bit - Vratice Se Rhodes  (Mirko & Meek Remix
-003. A. Rassevich - The Red Space  (Original Mix)
-004. Adam Rusi - EX (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 13:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87972462C7D25FE5C354B1E7A7F71CC37E0B790C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507486   (798481) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 5 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Malyari - Spaceman (5:52)
-02. StrayLight - Chasing The Light (4:28)
-03. IDEON - The World Might End Tomorrow (Gertrudda Edit) (8:10)
-04. TrialCore - Living In Cybercity (3:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8788A90C392D7ABCEAF3CB409D10BC345E4B1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507481   (798480) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 4 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pilotpriest - Archive Seven (5:45)
-02. STARLANDER - Station 5 (5:10)
-03. Alseph - SuperNova (3:24)
-04. GUNSHIP - When You Grow Up, Your Heart Dies (5:50)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C67649E4ADC86960B41C10D11DD1918DDDF38FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

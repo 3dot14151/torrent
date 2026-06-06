@@ -1,3 +1,61 @@
+###  Публикация: 1504909   (808443) от 25.10.2021
+
+VA - Harabe Daydreams III (2021) [AAC|~319 Kbps] <Tech House, Deep House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max TenRoM - Armenia (4:32)
+02. Adhafera - Lonely Clouds (6:26)
+03. Amol Reon - Tale of Two (6:34)
+04. Monnarsh - Picture (6:10)(   Читать дальше...   )Жанр: Tech House, Deep House, TechnoПродолжительность: 01:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DE2E52D22879C030FED5512962CA6E12E0FAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504964   (808429) от 25.10.2021
+
+Kfir Ochaion - VIII (2020) [AAC|~282 Kbps] <Instrumental Guitar Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotel California (Acoustic) (6:45)
+02. Nothing Else Matters (Acoustic) (5:37)
+03. Sultans of Swing (Acoustic) (4:44)
+04. Comfortably Numb (Acoustic) (6:33)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E12D619729EB40B0E0FF8350D3FB3D52AB0914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504872   (808349) от 25.10.2021
 
 Pink Floyd - Relics (1996 Remastered Version) (1996) [AAC|~340 Kbps] <Rock>
@@ -654,64 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7651647B5AC919F49D5B8790F772AFC3EF51799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505345   (806525) от 26.10.2021
-
-VA - Be My Lover (Lounge & Deep-House Pearls) (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rico Bonetti - Just Chillin' (3:08)
-02. P & V Guitarra - Mas Que Nada (3:05)
-03. Living Room - Lazy Days (4:05)
-04. House Avenue - Nobody (Piano Mix) (3:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, Deep HouseПродолжительность: 01:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5808D5108F71E766A60A3B1B11E285DFD7251F6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505126   (806513) от 26.10.2021
-
-Ozzy Osbourne - Down To Earth (20th Anniversary Expanded Edition) (2021) [AAC|~353 Kbps] <Hard Rock, Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gets Me Through (5:04)
-02. Facing Hell (4:26)
-03. Dreamer (4:45)
-04. No Easy Way Out (5:05)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C208E8822C093557A627203752B6D747FAAE2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

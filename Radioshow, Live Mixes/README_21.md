@@ -1,3 +1,235 @@
+###  Публикация: 1519873   (145742) от 26.12.2021
+
+Rencontre Nocturne - Recap 2021 (2021) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axwell, Ingrosso, Angello, Laidback Luke feat. Deborah Cox - Leave The World Behind w/Axwell - Nobody Else
+02. Alesso - TOGETHER w/Alesso feat. Roy English - Cool (Acapella)
+03. Sisters Cap & Almero - Get Enough w/iiO feat. Nadia Ali - Rapture (Acapella)
+04. Alesso - TIME (Alesso & Deniz Koyu Remix) w/Post Malone feat. Young Thug - Goodbyes (Acapella) (   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76EEA687E197A6880112B0BBDCE05B1C3BB0724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519665   (145551) от 26.12.2021
+
+Armin van Buuren - A State of Trance 1048 XXL (Top 50 of 2021) (2021-12-23) [MP3|320 kbps] <Electronic, Progressive, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145551.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:00:00 Episode 1048 (Intro) - A State Of Trance
+00:04:16 Orjan Nilsen - Volt
+00:08:15 Somna & Jennifer Rene - Stars Collide (XiJaro & Pitch Remix)
+00:12:27 Will Atkinson - The Last Rave On Earth(   Читать дальше...   )Жанр: Electronic, Progressive, TranceПродолжительность: 04:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9710324374C643D94C07743049C3E0EE86CFC216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195354   (144109) от 28.12.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 528 (Top 30) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signum & James Dymond – Keep On Moving Up (Original Mix)
+02. Robert Nickson – Heliopause (Original Mix)
+03. O.B.M Notion – Uplifted To Another Word (Daniel Kandi Bangin’ Mix)
+04. Ahmed Romel – Vanaheim (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568A25F2084E69E484D942E119F6EC7190AA1851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272773   (141503) от 29.12.2018
+
+VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Filmic
+02. Sasha & Maria - Be As One
+03. FC Kahuna - Hayling (Markus Schulz Remix)
+04. David West - Carrier(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B638F634703BBBD6BC584D28EE1EE91CAE3EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679102   (134963) от 27.11.2023
+
+VA - Armin van Buuren - A State Of Trance 1148 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LSR/CITY ft. Annabel - House In The Streetlight (Tune Of The Week)
+02. UUFO & Ava Silver - Young Hearts
+03. David Broaders - Undertow (Progressive Pick)
+04. Armin van Buuren ft. Trevor Guthrie - This Is What It Feels Like (Armin van Buuren 2023 Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D53110A0DC2C8BD0BA37D762F0163A2A1B6789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679014   (134955) от 27.11.2023
+
+Third Party & Kryder - Live @ FUTURE x RELEASE, Ministry Of Sound London (2023-11-03) [MP3|320 Kbps] <Progressive House, House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 01:03:04
+01. Kashovski - Code K
+02. ID - ID
+03. ID - ID(   Читать дальше...   )Жанр: Progressive House, House, Tech HouseПродолжительность: 02:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E8D5A7B0D42074D99DB73D11E6E18ED01BD1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679427   (134281) от 29.11.2023
+
+Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023-10-19) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Let You Down (Nifra Remix)
+02. Nifra & Leo Reyes - Humanoids
+03. Tiësto ft. BT - Love Comes Again (Nifra 2023 Remix)
+04. Hardwell - GODD(   Читать дальше...   )Жанр: TranceПродолжительность: 00:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D4B5E712ABDC26F0B43EC651BF6B8E8A99DB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681129   (133139) от 02.12.2023
+
+Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search Of Sunrise 19 Release Special (2023-11-30) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Summer of '99 (from In Search of Sunrise 19)
+02. Anske - Heavenly Cake
+03. OCATA - Welcome to the Awakening
+04. Ben Bohmer - After EarthЖанр: Progressive House, Trance, TechnoПродолжительность: 01:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C10F57E2338EFED550C6C61CC1101D461572F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681071   (133127) от 02.12.2023
 
 VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -512,233 +744,6 @@ VA - Armin Van Buuren - A State Of Trance 1153 (Yearmix 2023) (2023) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4216D88557B8D07776A7EC4866B5B3C77FD17C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689401   (124695) от 02.01.2024
-
-Tiesto - New Year's Eve Best of 2023 Mix (Countdown to 2024) (2023-12-31) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - Lay Low
-02. MK - Take My Chance
-03. John Summit ft. Hayla - Where You Are
-04. Tiësto & 21 Savage & Bia - BOTH(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BD1E23992DED2065F114285F8FDA599169F65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689577   (124512) от 03.01.2024
-
-Eric Prydz - Live @ Forever Stage Forever Midnight, Los Angeles Convention Center, United States (2023-12-31) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pryda - Creamfields 2017 Intro ID (Working Title) w/Eric Prydz - Every Day (Acappella) w/Pryda - The Hoax
-02. Layer J - ID
-03. Cirez D - HOLO Mexico 2023 ID (Working Title)
-04. Cirez D - Voided(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD4E417FA47E7B0AA2ED15A15470FF33A26F0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689842   (124343) от 04.01.2024
-
-Andrew Rayel - Find Your Harmony Radioshow (Yearmix 2023) (2024-01-03) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andrew Rayel - The Source Of Harmony (FYH 350 Anthem)
-02.  Leo Reyes & Mofasa - IOU
-03.  Mofasa - Dreamer
-04.  LÜRUM ft. That Girl - Fall Or Fly(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077C1A6C56120EE5038A8163986954C80A1099B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690022   (124170) от 05.01.2024
-
-VA - Armin van Buuren - A State Of Trance 1154 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. GOODBOYS - Forever (Stay Like This)Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A167BB9887651A7F03AF0C5AD4F269EDC0B7D308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690091   (124164) от 05.01.2024
-
-Markus Schulz - Global DJ Broadcast New Year's Rehab (2024-01-04) [MP3|320 Kbps] <Melodic House, Indie Dance, Nu Disco>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BadWolf & Soff - After Todo
-02. Purple Disco Machine - Bad Company (Instrumental Mix)
-03. Röyksopp featuring Susanne Sundfør - Stay Awhile
-04. Kendal - Come to Me(   Читать дальше...   )Жанр: Melodic House, Indie Dance, Nu DiscoПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550E7C0309C4EF9E9C526C3B03F9809FB55F5DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690950   (123649) от 09.01.2024
-
-Corey James - Axtone House Party (2024-01-08) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matrefakt - Nano
-02. Corey James & Dice Of Nights - Sisco
-03. Corey James & HIISAK ft. Roland Clark - The Underground (House of God) (Steve Angello Edit)
-04. 96 Vibe - Go Down(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BFB3DA1CD0A3A5A8C16586C8414FCD848A05CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691496   (123088) от 13.01.2024
-
-VA - Armin van Buuren - A State Of Trance 1155 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omnia - Feeling
-02. The Hidd3ns & Michael Ra - TakhatumЖанр: Trance, Progressive, ElectronicПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5F7F590963593FC8A1E49D9692A6DCC6BC2435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692001   (122929) от 14.01.2024
-
-Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Temper Trap - Sweet Disposition (ID Remix)
-02. ID - ID
-03. Agents Of Time - Inception
-04. Piero Pirupa - Change Your Mind (Korolova Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 02:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

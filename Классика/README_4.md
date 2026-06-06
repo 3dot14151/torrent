@@ -1,3 +1,64 @@
+###  Публикация: 169700   (965439) от 25.01.2010
+
+Вильгельм Рихард Вагнер - (1813-1883) [MP3|256 kbps]<Classic>
+
+>>Классика
+>>Камерная
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620893   (963851) от 19.02.2013
+
+Pergolesi Giovanni Battista–Stabat Mater: M. Marshall L.V. Terrani C. Abbado London Symphony Orchestra (1985)/1990, Dg Imports/ [WavPack(iso.wv)|Lossless]<Vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stabat Mater per soprano, contralto, archi e continuo
+1. Duetto. Grave “Stabat Mater dolorosa” 4:38
+2. Aria (soprano). Andante amoroso “Cuius animam gementem” 3:08
+3. Duetto. Larghetto “O quam tristis et afflicta” 2:34
+4. Aria (contralto). Allegro “Quae moerebat et dolebat” 2:49
+5. Duetto. Largo-Allegro “Quis est homo, qui non fleret” 3:01
+6. Aria (soprano). A tempo giusto “Vidit suum dulcem natum” 3:32
+7. Aria (contralto). Andantino “Eia,Mater,fons amoris” 2:54
+8. Duetto.Allegro “Fac, ut ardeat cor meum” 2:40
+9. Duetto. A tempo giusto “Sancta Mater, istud agas” 5:59(   Читать дальше...   )Жанр: sacred cantata / sequenceПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146988C0F98EC56045A1EA9486B0E7FF81CC43AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 169715   (962396) от 28.01.2010
 
 Трио Сергея Жилина - П.И.Чайковский In Jazz - Времена Года (2005) [MP3|320 kbps]<Classical crossover, Jazz>
@@ -692,64 +753,6 @@ Craig Armstrong - Sun On You (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8B27EB17C740C54604133438DB96B7E50008F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090096   (947217) от 06.01.2017
-
-Enrico Caruso / Энрико Карузо - Caruso Starportrait (1993) Nota Blu [FLAC|Lossless|image + .cue] <Вокал>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энрико Карузо стал одним из первых оперных исполнителей на мировой сцене, решившихся фиксировать свой репертуар на граммофонных пластинках. В значительной мере именно это обстоятельство предопределило мировую популярность тенора, и сделало его творчество доступным для широких масс. Уже при жизни Энрико Карузо называли легендой вокального искусства. Образцом для подражания (   Читать дальше...   )01.Rossini - La danza · Tarantella Napoletana (1912) (3:12)
-02.Geehl - For you alone (1910) (2:15)
-03.Puccini - Manon Lescaut · Donna non vidi mai (1913) (2:49)
-04.Verdi - La forza del destino · Solenne in quest' ora (1906) (4:15)(   Читать дальше...   )Жанр: ВокалПродолжительность: 01:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C402234A52F973E872CFF5F1DA801E64A7FD9F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090830   (945700) от 07.01.2017
-
-Erik Satie performed by Pascal Rogé - 3 Gymnopédies & Other Piano Works (1984) [FLAC|Lossless|tracks+.cue] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gymnopedie No. 1 (03:11)
-02. Gymnopedie No. 2 (02:33)
-03. Gymnopedie No. 3 (02:36)
-04. Je Te Veux (05:14)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A9407E2B376920E5EC95328694855A1FC2FCFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

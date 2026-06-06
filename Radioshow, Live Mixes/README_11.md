@@ -1,3 +1,240 @@
+###  Публикация: 1094450   (597728) от 12.07.2017
+
+Ori Uplift - Uplifting Only 201 - 230 (2016 - 2017) [MP3 | 320 кб/с] < Melodic / Uplifting / Emotional Trance > (Обновлён: 12-07-2017)
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ori Uplift
+
+01. [00:00:33]: Andy Blueman - Time To RestЖанр: Melodic Trance / Epic Trance / Euphoric Trance / Progressive Trance / ProgLift / Vocal Trance / Uplifting Trance / Emotional Trance / ChillOutПродолжительность: 02:12:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C00051EA28E23E096443980A1C105FF0445A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549261   (593968) от 06.05.2022
+
+Charlotte de Witte - New Form V: Universal Consciousness (2022-04-27) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omis - The Other Time Intro
+02. Charlotte de Witte - Satori
+03. Charlotte de Witte - Universal Consciousness
+04. X CLUB. - Concentrate(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1CC777B5CB05FD508E0BD97304E05D1D42B365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549238   (593959) от 06.05.2022
+
+Nicky Romero - Tomorrowland Friendship Mix (2022-05-05) [MP3|320 Kbps] <Progressive House, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicky Romero - Pressure
+02. Leandro Da Silva & Dennis Beutler - Crazy Mistake
+03. Nicky Romero & GATTÜSO ft. Jared Lee - Afterglow
+04. Timmo Hendriks - Make You Mine(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1C34D872D47D9AB8141302F7E118C08743503F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548382   (593810) от 06.05.2022
+
+VA - Ultra Music Festival Miami (2022) [MP3|320 Kbps, (V0)] <House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dom Dolla - Miracle Maker
+02. ID - ID
+03. Martin Ikin vs. Dom Dolla - Good Feelings vs. San Frandisco (Dom Dolla Edit)
+04. Dom Dolla - ID(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 66:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80FB0344DEE58F8AA9130111CA8D068A31F19DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549901   (592931) от 08.05.2022
+
+Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition (2022-04-15) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mattia Saviolo - Twilight Of The Idols
+02. Psyk - First Trail
+03. Wlderz - Algo
+04. Alex Lentini & Stomp Boxx - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9BFD9E240F9087DADF84F3F36D625355B5DADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551165   (590740) от 14.05.2022
+
+Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2022-05-12) [MP3|320 Kbps] <Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimitri Vegas & Like Mike & Azteck & Hayley May - Heaven
+02. Dimitri Vegas & Like Mike vs. Sander van Doorn - Project T
+03. Dimitri Vegas & Like Mike - Chattahoochee (Tomorrowland 2013 Anthem)
+04. Dimitri Vegas & Like Mike & Wolfpack - Ocarina (TomorrowWorld Anthem) (Bassjackers Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2C0BCEBE5DA61E26BFB4A850BD627B474F0B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358256   (585898) от 02.07.2011
+
+DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х) (2.07.2011) [MP3|320 kbps]<Club,Dance,Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Opus - Life Is Life (DJ Fisun Remix)
+ 2 DJ Smash vs Lyube feat. Mc Shayon - Atas
+ 3 Virus - Ty menya ne ischi (Free Dj's Rework)
+ 4 Ruki Vverh - Ya Ne Otdam Tebya Nikomu (Insomnia Radio Mix)
+ 5 Platinum Monkey & D.Tarasyuk vs Evgeniy Osin - Plachet Devushka v avtomate
+ 6 Arash - Boro Boro (Dj Kirill Clash & Dj Dmitriy Nema Mash-Up)
+ 7 Irina Saltykova - Serye Glaza 2011 (Aleksey Kraft Remix Radio Edit)
+ 8 Dirty Impact vs. Royal XTC - Tom's Diner (PH Electro Remix)
+ 9 Leprikonsy - Haligali (DJ Skafelnikof & DJ BooF Disco House Remix)
+ 10 Yura Shatunov - Metel' v bol'shom gorode (MusicKey 2011 Edit Version)(   Читать дальше...)Жанр: Club,Dance,PopПродолжительность: 01:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E788646090BBB51417F368D338E2AFCA3F51C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297280   (582203) от 14.05.2019
+
+VA - Live @ Synergy (Alte Kaserne Zurich, Switzerland) 2019-04-06 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Madwave - Live @ SYNERGY, Alte Kaserne Zurich, Switzerland 2019-04-06 (00:59:50):
+01. Dawnseekers - Gothic Dream (Rene Ablaze Madwave Mix Edit)
+02. F.G. Noise - Drive Out
+03. Manuel Le Saux & Unbeat - Evo(   Читать дальше...   )Жанр: TranceПродолжительность: 07:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3B6DDDB63CE90F59F6FD9B3F1264B4A21EEDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554044   (579031) от 29.05.2022
 
 Two Friends - Big Bootie Mix Volume 021 (2022-05-23) [MP3|320 Kbps] <Dance, Electro Pop, Pop>
@@ -511,238 +748,6 @@ Joel Corry - Tomorrowland Friendship Mix (2022-06-16) [MP3|320 Kbps] <House, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:885204840C990F89D458E83B08399FBFBBB47CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558073   (535691) от 18.06.2022
-
-Korolova - Live @ Red Rock California, United States (2022-06-17) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Doanro & Lonner ft. F.R.I.M - Kupala
-03. Stephan Jolk - About My Dreams
-04. Binaryh - Dhruva(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578AAAD040521E2DF5FA546D1ABC065BE2CF38CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155417   (533348) от 03.08.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 507 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.London & Niko - Burning Down (Noel Sanger Remix)
-02.L.S.G. - Netherworld (Rise And Fall Remix)
-03.Solid Stone & Michael Gin - Xonic
-04.Solid Stone - Watchmen(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF090B83F835ED95BECA3D3384ACD540FB5858E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155689   (531678) от 04.08.2017
-
-VA - Ori Uplift - Uplifting Only 234 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PRE-RELEASE PICK: InnerSync - Fairies from the Magic Forest (EXCLUSIVE PREMIERE)
-02. Sunsitive feat. Angel Falls - Summer Love (Derek Palmer Remix)
-03. Aurosonic & Sue McLaren - Captured By Gravity (Omar Sherif Extended Mix)
-04. Bryan Kearney & Plumb - All Over Again (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8903C5C9B2F4E8FF403137C97E6E6A92536573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312602   (530960) от 05.07.2019
-
-Ed Lynam - Live @ Infected, Odense, Denmark 2019-06-22 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - I Feel Love (Nicholson Remix)
-02. Sash! - Mysterious Times (Nicholson Remix)
-03. Michael Splint Feat. Sasja - You Set Me Free (DJ Choose & F's Remix)
-04. Walt - Let The Music Play (David Rust Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E63E4CBA4623138432713A2C90CB2F784D90072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312596   (530957) от 05.07.2019
-
-Daniel Lesden - Live @ Night Terrace, Aglomerat Moscow, Russia 2019-06-28 [MP3|320 Kbps] <Trance, Progressive House. Psy Trance>>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Cell – Mute The Silence (Pacco & Rudy B Remix)
-02. Ewan Rill, K Loveski – Elau (Subandrio Remix)
-03. Ivanshee – Serpantine (Luciano Scheffer Remix)
-04. San – Ultima Thule (Matan Caspi Remix)(   Читать дальше...   )Жанр: Trance, Progressive House. Psy TranceПродолжительность: 02:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5E02588A8DE4E3F6A5D7D316E60457D818AFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558658   (530184) от 21.06.2022
-
-39 Kingdom - Live @ Curonian Spit, Russia (2022-05-29) [MP3|320 Kbps] <Progressive House, Deep House, Indie Dance, Nu Disco>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goom Gum - Aposch
-02. Anturage & DJ Skif & Ira Ange - La Cassette
-03. Anturage & Alar - Singapore
-04. Airsand & TuraniQa - Take You Home(   Читать дальше...   )Жанр: Progressive House, Deep House, Indie Dance, Nu DiscoПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EEFD7E8A9B052F304525CC88BDA21BD530702B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558482   (530081) от 21.06.2022
-
-David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2022-06-12) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix) (Intro Edit)
-02. Shouse - Love Tonight (David Guetta Remix)
-03. Eurythmics - Sweet Dreams (David Guetta Remix)
-04. David Guetta ft. Ne-Yo & Akon - Play Hard (David Guetta & MORTEN Future Rave Remix) w/ Tiësto - The Business (Acappella)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD227A3CFEAF8AF069A07CDA5057820AA2611D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558434   (528856) от 22.06.2022
-
-Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 Kbps] <Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justus - Tunnel w/J Balvin & Skrillex - In Da Getto w/Foreigner - Cold As Ice
-02. Ron Van Den Beuken - Timeless (Justus Until Sunrise Version) w/Yeah Yeah Yeahs - Heads Will Roll (A-Trak Remix)
-03. Justus - Speed w/Tiësto & Ava Max - The Motto
-04. ShortRound - Fly w/R.E.M. - Losing My Religion(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B6D0BDA111AAA1034A5135860A94B72DAD9EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

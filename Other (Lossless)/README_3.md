@@ -1,3 +1,61 @@
+###  Публикация: 1148497   (603412) от 07.07.2017
+
+Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. The Love I Lost
+02. Satisfaction Guaranteed (Or Take Your Love Back)
+03. Be For Real(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 03:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDD75659B38FC441E7ED8F25AA5584D42A85D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297703   (603089) от 24.04.2019
+
+Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Атомы любви
+2. Перезагрузи
+3. Родины нет во мне
+4. Рядом с тобой(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233364   (593296) от 29.06.2018
 
 Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lossless|WEB-DL|tracks] <Balcan Folk Rock, Gypsy Jazz, Folk Punk, Ska>
@@ -725,64 +783,6 @@ Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrume
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6A55487E654FF2F0D7E9BE2C6709F85664E1ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074258   (335562) от 20.11.2016
-
-Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Pop, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing's Gonna Hurt You Baby
-02. I'm a Firefighter
-03. Dreaming of You
-04. Starry EyesЖанр: Dream Pop, Indie Pop, AmbientПродолжительность: 00:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3EFFC702A4E87437EBEDB8153821334D7C90DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957196   (327551) от 17.11.2015
-
-Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes Ya No So (1999)/Telarc, [FLAC|image+cue]<tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Tanguedia		03:38
-02.	Four for tango		06:29
-03.	Lo que vendra		04:34
-04.	No 1 - Street tango		04:42(   Читать дальше...   )Жанр: tangoПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE8BBDB20325FB468539F0D16B90D88AFF1CD20
 ```
 
 https://mybot314.ru/tekegram_catalog/

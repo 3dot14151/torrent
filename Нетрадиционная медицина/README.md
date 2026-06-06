@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1870221   (1068641) от 
+###  Публикация: 1870221   (1068641) от 14.05.2026
 
 Дао Шен | 27 древних практик восстановления организма. Метод мастера Дао Шена (2026) [PDF]
 
@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1068641.jpg" />
 </div>
 
 

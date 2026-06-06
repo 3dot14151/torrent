@@ -1,3 +1,374 @@
+###  Публикация: 340537   (377111) от 31.10.2011
+
+Akcent / Коллекция видео (2002-2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Akcent — румынская поп-группа.Продолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B20BC4D7220DDDE162E39963930E2DA3CE33E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949575   (377040) от 23.10.2015
+
+VA - Осенний марафон № 199 / Видеоклипы (Свежие Новинки с Мира Хитов) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (23.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ana Criado - Dancing Sea (Moonnight remix) (00:03:29)
+02. Anastacia - Take This Chance (Official Video) (00:04:10)
+03. Andreas - Время (ПРЕМЬЕРА!) (00:03:11)
+04. Aram MP3 ft. The Sunside Band - You're My Sunshine (Official Video) (00:03:34)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, Relax, Chill OutПродолжительность: 01:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C55427B2FB958C316B33A97868E2DF2ED90F7F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 404938   (376804) от 31.10.2011
+
+Род Стюарт  Видео Хиты / Rod Stewart Video Hits (2010) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальные Клипы  Рода Стюарта
+Родерик Дэвид «Род» Стюарт CBE (англ. Roderick David "Rod" Stewart, род. 10 января 1945 года) — английский певец и автор песен, получивший известность сначала в The Jeff Beck Group, затем в The Faces.
+Наибольшего успеха Род Стюарт добился на сольном поприще, в основном в Великобритании, где 7 его альбомов поднимались на первое (   Читать дальше...   )Жанр: Rockl/PopПродолжительность: 01:32:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574079   (376421) от 12.11.2012
+
+Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7839D1ED8D9EBF650AD86275FBAB21E2DF36956E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574078   (376072) от 12.11.2012
+
+M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA2B97E422267E8FCA7BD42133B7205324C2FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175760   (375706) от 19.10.2017
+
+Madonna: Rebel Heart Tour (2016) BDRemux [H.264/1080i] [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фееричное шоу вечно молодой, энергичной и эпатажной королевы поп-музыки - Madonna. "Rebel Heart Tour" - десятый концертный тур американской певицы в поддержку её тринадцатого студийного альбома Rebel Heart, вышедшего 6 марта 2015 года. Данный тур собрал более $169,800,000. Премьера шоу состоялась 9 декабря 2016 года на кабельном канале SHOWTIME.Производство: США, Live Nation Global Touring, Live Nation, York StudiosЖанр: Документальный, МузыкаРежиссер: Натан Риссман, Дэнни ТуллАктеры: Мадонна, Кевин Антунес, Купоно Алоу ...Субтитры: ОтсутствуютПродолжительность: 01:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395AD3EF8EF41338BD2AD49C1B09AA3CFCCBCB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069034   (375660) от 03.11.2016
+
+Santana - Santana IV: Live at the House of Blues, Las Vegas (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Сантаны в Доме блюза в Лас-Вегасе 21 марта 2016г.01. Soul sacrifice
+02. Jingo
+03. Evil ways
+04. Everybody's everything(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Blues Rock,Latin Rock,Jazz Fusion,Guitar VirtuosoРежиссер: Brad FussАктеры: Carlos Santana & BandПеревод: ОтсутствуетПродолжительность: 02:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E5F2288B1F44218DC664EFBE28AD7E2BCDD3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068902   (375566) от 03.11.2016
+
+Santana - Santana IV Live at the House of Blues (2016) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный концерт великого Карлоса Сантаны..01. Soul sacrifice
+02. Jingo
+03. Evil ways
+04. Everybody's everything(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E8BC9648328B9DE492A0075DD071AAC85D93C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574221   (375342) от 12.11.2012
+
+Глэм Рок / Glam Rock -T.Rex. S.Quatro.Nazareth.Sweet and more.. (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375342.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом диске представлены одни из лучших групп направления глэм рока начало 70 х,
+все группы в самом начале своей сценической карьеры все молоды полны амбиций и задора.01. T.Rex.- Jeepster
+02. Shwaddywaddy - You Got What it Takes
+03. Nazareth - Love Hurts
+04. Dave Edmunds - Here Comes THE Weekend
+05. Rod Stewart - Tonight's The Night
+06. T.Rex - 20 th Century Boy
+07. Suzi Quatro - 48 Crach
+08. David Essex - Rock On
+09. Sweet - Teenage Rampage
+10. Bay City Rollers - Bye Bye Bye(   Читать дальше...   )Жанр: Музыка, Glam rockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62C85CC2A09E06D07E678E64B28D8E12F8C432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949300   (375107) от 24.10.2015
+
+Tubular Bells II Live (1999) DVDRip [hand made 60fps] H.264
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майкл Олдфилд (Michael Gordon Oldfield) — британский мультиинструменталист и композитор, работающий в самых разнообразных жанрах: прогрессив и арт-рок, электронная музыка, фолк, кельтская музыка. Главным произведением Майка Олдфилда критики считают концептуальный альбом Tubular Bells (кстати, главная тема из фильма Изгоняющий дьявола/The Exorcist), вышедший в 1973 (   Читать дальше...   )01. Introduction
+02. Sentimental
+03. Dark Star
+04. Clear Light(   Читать дальше...   )Жанр: Концерт, Progressive Rock, New Age, Pop/Rock, Electronic, Progressive Pop, Folk Pop, PopПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE88595076F50011B679E8E2B7621489B9353D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720152   (374410) от 10.11.2013
+
+Сборник клипов - VA - Various Music part. 47 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Agnes - Don't Go Breaking My Heart 720p (3:49)
+2. Ahzee - Born Again 1080p (3:40)
+3. Aircraft & Miss Palmer - Dont Ever Let Go 720p (3:16)
+4. Andreea Balan feat. Sonny Flame - IUBI 1080p (3:20)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796DCD353E5D7DB8FE6B7D0885E7D687E3F49740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949360   (374350) от 24.10.2015
+
+Metallica - Концерт в Москве (2015) WEBRip [1080p/60fps]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metallica в спортивном комплексе “Олимпийский”. Сыграли для москвичей много нового. Так, прежде ещё ни разу в Белокаменной не исполнялись песни “Ride The Lightning”, “King Nothing”, The Unforgiven”, “Frayed ends of naity”, “Lords Of Summer” и “Whiskey in the Jar”.Американцы отыграли 18 песен, из которых три - “на бис” (среди них, конечно, и “Nothing Else Matters”).Концерт (   Читать дальше...   )01.The Ecstasy of Gold
+02. Fuel
+03. For Whom the Bell Tolls
+04. Battery(   Читать дальше...   )Жанр: Heavy Metal, Trash MetalПродолжительность: 02.20.02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ED2478C4AD9F69515D3A5DF87C4BCF0D825F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327326   (374111) от 25.09.2019
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 3 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся сила энергия и мощь понастоящему крутой музыки! Это 3я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 3 — Intro
+01. Cinderella — The More Things Change
+02. Van Halen — Don’t Tell Me
+03. 3 Doors Down — Duck & Run(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89118020E59E4514FAA7891C3A0087EE9FE71267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175540   (374069) от 20.10.2017
 
 Сборник клипов - Reggae от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
@@ -359,376 +730,6 @@ AC/DC - концерт в Берлине на Olympic Stadium, под назва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7260309577F8966E4E5044922B2595E482BE29DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950399   (369383) от 26.10.2015
-
-Виктор Цой и гр. Кино (минусовое караоке) (2010) DVD5
-
->>Театр и Музыкальное видео
->>Караоке
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алюминиевые огурцы
-02. Апрель
-03. Видели ночь
-04. В наших глазах(   Читать дальше...   )Жанр: Популярная музыкаПеревод: Не требуетсяПродолжительность: 02:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7787F8A7AA0E97AE48F654B5F98A28B43DB8312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176076   (369192) от 22.10.2017
-
-Сборник клипов - Русский шансон от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой подарок всем любителям русского шансона. В сборник вошли самые хитовые кабацкие песни, романсы, ну и конечно же много блатной темы. Это 1 часть сборника. Да прибудет с нами качественная музыка! Все лучшее для вас в натуре! =)  ALEXnROCK000 Интро
-001 Жека - Растревоженная птица
-002 Вячеслав Добрынин - Капитан запаса
-003 Бутырка - Малец(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6CD4E3DC0B7625616AD4F8057DC8B1CDB99BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416093   (369117) от 15.10.2020
-
-Pink Floyd - Delicate Sound Of Thunder (1989) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отреставрированная и перемонтированная версия знаменитого фильма-концерта 1989 года с ремастированным и пересведенным звуком. Съемки происходили с 19 по 23 августа в Нью-Йорке на арене Nassau Coliseum во время тура A Momentary Lapse of Reason. Режиссером был Уэйн Ишам. Для переиздания 2019 года была оцифрована 35мм пленка съемки концерта и ремикширован звук. Выпущенный (   Читать дальше...   )Производство: США, CBS/SONY JapanЖанр: Концерт, прогрессивный рок, арт-рокРежиссер: Уэйн ИшэмАктеры: Дэвид Гилмор, Ник Мейсон, Ричард Райт, Джон Карин (клавишные, вокал), Тим Ренвик (гитары, вокал), Гай Пратт (бас, вокал), Гэри Уоллис (перкуссия), Скотт Пейдж (саксофоны, гитара), Маргрет Тейлор (бэк-вокал), Рэйчел Фьюри (бэк-вокал), Дурга МакБрум (бэк-вокал).Язык: АнглийскийПродолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4932A3572FEDEAA325BB6CFE3E68E5FB89D4B67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070221   (368450) от 06.11.2016
-
-Assorti Creative 50 (2016) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приглашаю вас в мир моей музыки! Надеюсь, что каждый здесь найдет что-то для себя. Пусть музыка наполнит вас гармонией и в вашей жизни всегда все будет хорошо! Клипы исполнителей Enigmatic направления. Для любителей проэкта Enigma.01. Achillea ( Jens Gad ) - Amadas Estrellas [05:30]
-02. Deep Forest - Deep Forest [03:30]
-03. Enigma - Fata Morgana [03:05]
-04. Conjure One - Sleep [05:03](   Читать дальше...   )Производство: Assorti CreativeЖанр: Enigmatic, New AgeПродолжительность: 04:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD40D76020C2942A0C29AAB0E727EC3DAF71115E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254732   (367924) от 16.10.2018
-
-Ханс Циммер - Live in Prague / Hans Zimmer - Live in Prague (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный кинокомпозитор Ханс Циммер и его первоклассные музыканты исполнили перед многотысячной публикой знаменитую музыку из голливудских блокбастеров. Это уникальный шанс увидеть художника во всем великолепии его музыкального дара и насладиться прекрасными мелодиями в кругу семьи и друзей.
-Концертные съёмки проходили в Праге,<Чехия>.
-Выход Ханса Циммер на (   Читать дальше...   )1. Medley: Driving / Discombobulate / Zoosters Breakout
-2. Medley: Crimson Tide / 160 BPM
-3. Gladiator Medley: The Wheat / The Battle / Elysium / Now We Are Free
-4. Chevaliers De Sangreal(   Читать дальше...   )Производство: Великобритания / Eagle Rock Film Productions, Remote Control ProductionsЖанр: МузыкальныйРежиссер: Tim Van SomerenПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 02:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6488C20EB72E764620FA78BB54D70CB2D8F187BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575573   (367907) от 15.11.2012
-
-DVJ Bazuka - Make Some Sex (Uncensored) (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectroПродолжительность: 00:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E598918AB0D717FBF07847D23DF4B830FE8D3A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405851   (367808) от 04.11.2011
-
-Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипРежиссер: Леди ГаГа, Лори Энн Гибсон, Haus of GaGaПродолжительность: 00:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F55F773E2A68E01CA6EC1FB92D89EB18B235D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406067   (367786) от 04.11.2011
-
-VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367786.jpg" />
-</div>
-
-
-###  Подробнее
-
-“The best video clips ” -  Музыкальные видеоклипы. Большинство видео материала записано с музыкальных каналов высокой чёткости.Жанр: МузыкаРежиссер: N/AАктеры: DEV, Jennifer Lopez, Selena Gomez & The SceneПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 5x ~00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B797F046A5D5D8FCF9DBAF8ACFF7BA3C8F95172A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401705   (366936) от 16.10.2020
-
-Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custom]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. A Current Obsession
-03. 1.19
-04. My Wings(   Читать дальше...   )Производство: Century MediaЖанр: Gothic Metal, DocumentaryЯзык озвучки: EnglishПродолжительность: 02:16:15 + 00:27:40 + 00:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE54F697CEA58CB3FA60460A6BFBDAED4447E8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575992   (366309) от 16.11.2012
-
-Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0162E116B62BE3E0CB4CFE25737F42C7737EA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575574   (365576) от 16.11.2012
-
-JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RapПродолжительность: 00:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E807D639FB6BCC86C805AE8083F6CC555963D947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950476   (365328) от 28.10.2015
-
-Майя Кристалинская - Золотая коллекция Ретро (2006) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365328.jpg" />
-</div>
-
-
-###  Подробнее
-
-В релизе представлены 25 песен в исполнении Майи Кристалинской с различных концертов и телевизионных передач, охватывающих практически весь творческий путь Великой эстрадной певицы, с середины 60-х по 1985 год.
-Записи предоставлены Гостелерадиофондом.
-Черно-белые кадры концертов раскрашены методом цветного компьютерного тонирования.01. Таёжный вальс (автор музыки Э. Колмановский, автор слов Л. Ошанин)
-02. Всё равно (автор музыки Э. Колмановский, автор слов Л. Ошанин)
-03. Полынь (автор музыки А. Пахмутова, автор слов Р. Рождественский)
-04. Неужели мне одной (автор музыки Г. Портнов, автор слов Ю. Принцев)(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2405033789B3B972E1A1D31BB10992E808C41828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575958   (365146) от 16.11.2012
-
-Coldplay - Live 2012 (2012) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_365146.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Coldplay Live 2012 is the band’s first concert film/live album for nine years. It documents their acclaimed Mylo Xyloto world tour, which has been seen by more than three million people since it began in June 2011. The film was directed by Paul Dugdale, previously responsible for Adele’s Live at the Royal Albert Hall and The Prodigy’s Worlds On Fire concert films. Coldplay Live 2012 includes footage from Coldplay’s shows at Paris’s Stade de France, Montreal’s Bell Centre and the band’s triumphant Pyramid Stage headline performance at Glastonbury 2011.
-«Coldplay Live 2012» — это первый фильм группы за 9 лет, представляющий их новый альбом. Это запись мирового концертного тура «Mylo Xyloto», который с 2011 года собрал более трех миллионов зрителей.01. Mylo Xyloto
-02. Hurts Like Heaven
-03. In My Place
-04. Major Minus
-05. Yellow
-06. Violet Hill
-07. God Put A Smile Upon Your Face
-08. Princess Of China (with Rihanna)
-09. Up In Flames
-10. Viva La Vida(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 01:36:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

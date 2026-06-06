@@ -1,3 +1,90 @@
+###  Публикация: 1013615   (777663) от 04.05.2016
+
+VA - TOP 100 Club Tracks (April) (2016) [MP3|160-320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace - Of Bass (Original mix)
+02. al l bo - Intergalactic (MAVIE Remix)
+03. Alessia Cara - Wild Things (NuKid Remix)
+04. Alex Kafer & Lera - Ничего не говори (Рок Острова Cover extended)(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 07:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903848EB4A543CC137F057E7CF0DDE865D6D7DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013186   (777647) от 04.05.2016
+
+VA - Workout Motivation Mix (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker -  Faded  3:33
+02. Alesso -  Sweet Escape  3:53
+03. Alexis Jordan -  Acid Rain  3:37
+04. Anastacia -  I'm Outta Love  4:18(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 03:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08AAA264EA1CC67339D6CFE558D8DA4E7E9349F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013604   (777624) от 04.05.2016
+
+VA - TOP 100 Deep House (April) (2016) [MP3|24-320 кб/с] <House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriatique - Soul Valley (Original Mix)
+02. Alok & Fractal System feat. Bea Jourdan - Don't Ya (Lodeek Remix)
+03. Alok & Fractal System feat. Bea Jourdan - Dont Ya (MichaelBM & Minow Remix)
+04. Andre Queiroz - The Temple (Original Mix)(   Читать дальше...   )Жанр: House, Indie Dance, Jackin House, Minimal House, Nu Disco, Tech HouseПродолжительность: 11:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD6C7596FC4642283AF25E4B48AC6CF494E56BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211520   (777568) от 07.03.2018
 
 VA - Techno Sound [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Techno, Tech House>
@@ -658,93 +745,6 @@ VA - Holiday Atmosphere: Beach Trance Progressive (2016) [MP3|320 кб/с] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C7CD056A073D812E0FC6335858DFFA42197C379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014501   (776203) от 08.05.2016
-
-VA - Absolutely Chillout: Chill Vibes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Dedicado
-02. Enrico Donner - Lido Shuffle
-03. Zero Feedback - Rien ne va plus - Don Gorda Project Remix
-04. FL Acid - Not What I Was Expecting(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326E070816BB038AB9AB3F734EEF24847B46E7F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014551   (776202) от 08.05.2016
-
-VA - Ares Competition Chill After Racing (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gjc - On the Floor - Chill Version
-02. Funjc - White Mars - Radio Version
-03. Deadly Ride - Forces
-04. Domenic - Ten Years(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C1F7043E799477E3C91766D249E168A42E70A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014541   (776201) от 08.05.2016
-
-VA - Melodic Trance Energy - Wave Insider (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ikerya Project - Nighthawk (Dany Dazano Remix) 6:35
-02. Andrew Henry & Glorius - Magic Island (Original Mix) 7:02
-03. Matt Bukovski & Katty Heath - Hold Back The Storm (Original Mix) 5:50
-04. Daniel Kandi And Zack Mia - Sector 7 (Extended Mix) 6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 08:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCEB840680A9984528DDFC422C446B08ACA52A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

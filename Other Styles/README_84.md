@@ -1,3 +1,369 @@
+###  Публикация: 523557   (617109) от 16.07.2012
+
+VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Ethnic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magec - Magic Mushroom (1:56)
+02. Marcel Thebach - One-World (5:00)
+03. Marcel Thebach - One-Ganjaland (5:50)
+04. G.E.N.E. - Wakonda (5:32)
+05. Ultrabass - Under Ancient Skies (7:31)
+06. Venja - Whentribal Wizard Dance (4:18)
+07. G.E.N.E. - Hte Flight Of The Clouds (5:10)
+08. Magec - Monguor Saman (3:44)
+09. Magec - Feelings (3:36)
+10. Magec - Fishbone Ceremony (4:28)(   Читать дальше...   )Жанр: Native American, Ethnic, New AgeПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DF66C232A866A618BF75B3E0AAF2C96F55A03D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295803   (617005) от 14.04.2019
+
+Kevin Kern - More Than Words: The Best of Kevin Kern (2014) Real Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above the Clouds (5:25)
+ 02. Sundial Dreams (4:46)
+ 03. Out of the Darkness Into the Light (4:16)
+ 04. In My Life (3:29)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01809288F8C93D2A88F45E6A2D0C682A0D175D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522968   (616990) от 16.07.2012
+
+VA - Best Of Indian's songs - The sound of indians spirit,nature and dreams (2006) [MP3|192 кб/с]<Native American Ethno, New Age, Ambient, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buffalo White - 5.20
+02. Rain Dance - 4.47
+03. Mohicans - 4.34
+04. Ly-o-lay ale loya - 5.52
+05. Five Spirits - 6.19
+06. Ananau - 5.16
+07. Sunguyman - 6.15
+08. Tatanka - 5.11
+09. Love Mountain - 5.49
+10. Dreamcatcher - 5.24Жанр: Native American Ethno, New Age, Ambient, FolkПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7043836E30F147019EB8534E9FBA2DC57233FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523623   (616644) от 16.07.2012
+
+Amadeus - Discography 6CD(2002-2009) [MP3|128-192 кб/с]<Instrumental, Classical Crossover>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.El Nino
+ 02.China Boy
+ 03.Tomi's Dream
+ 04.Casablanca
+ 05.Primavera
+ 06.King of the Fairies
+ 07.Amor Perdido
+ 08.Alger
+ 09.Evolution
+ 10.BaladaЖанр: Instrumental, Classical CrossoverПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8183C9CADAC47DCFC9140B3B4B46086E8E544929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146018   (616336) от 28.06.2017
+
+VA - Chill Out Music 2017: 16 Ambient Downtempo And Mellow Tracks For Chilling And Relaxation (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Josef Babula - Pavane (Ethereal Moments Remix)  3:07
+02.  Custom 7 - Worlds Apart (Original Mix)  3:50
+03.  Bella Element - Blue Sky (Original Mix)  3:09
+04.  Nils Hahn - Opening (Ethereal Moments Mix)  3:26(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC753BDBC06FD60ADB3EF79843C2D5372BA1EDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911692   (616058) от 23.06.2015
+
+Opii - Secrets (2015) [FLAC|Lossless|WEB-DL]<New Age, Enigmatic, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars (05:39)
+02. Mystery Of The Seas (05:10)
+03. Remember The Stars (06:09)
+04. Calling Ghosts (Edit) (03:44)(   Читать дальше...   )Жанр: New Age, Enigmatic, ChilloutПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D5CD88D6C1EF7D554BC93347469F9AF5D5878A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912045   (614401) от 24.06.2015
+
+VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Northen Extreme - More Than Words
+02. Vanity in Mind - Go Get Alice - The Walz Remix
+03. Electronivrty - A Bit of Jarre
+04. The Chakras - Inside Look(   Читать дальше...   )Жанр: Lounge, ChillOut, New AgeПродолжительность: 03:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60410EF1253501C6E779AB25B6F059E087D75654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912048   (614083) от 24.06.2015
+
+Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflute, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Silverstar 5:24
+02. Chica 3:14
+03. Amigos 2:40
+04. Brothers 5:52(   Читать дальше...   )Жанр: New Age, Native American, Panflute, FolkПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230622   (614052) от 13.06.2018
+
+Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dreamtime Initiation
+02 – Crystal Journey
+03 – Ocean Calling
+04 – Equinox Ambience(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFDEBEBDA4C5F127F6B80B73536BACBE33EF6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037458   (613965) от 24.07.2016
+
+Jamie Llewellyn - Muzyka do spania: Marzy delfinow (To Dream of Dolphins) (2014) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dziewczyny delfin
+02. Syrenka (& Juliana)
+03. Muzyka do spania Marzy delfinow
+04. Szukam delfinami(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C4C63158300E826A551D8144FDEFA09680A1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037371   (613855) от 24.07.2016
+
+Andreas Vollenweider - ...Behind The Gardens - Behind The Wall - Under The Tree... (1981) released on CD 1984 [FLAC|Lossless|tracks + .cue] <Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Behind the Gardens/Behind the Wall/Under the Tree  7:20
+02.  Pyramid-In the Wood-In the Bright Light  7:53
+03.  Micro-Macro  2:49
+04.  Skin and Skin  3:22(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3630D6E463701AD000B55EAD80AE40FAF2D94DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037277   (613768) от 24.07.2016
+
+VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks + .cue] <World>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moonlighters / Right On [0:02:09.49]
+02. Willie K / Holoholo Ka'a [0:02:14.32]
+03. Ehukai / Moloka'i Slide [0:03:54.11]
+04. Teresa Bright / The Cockeyed Mayor of Kaunakakai [0:02:06.66](   Читать дальше...   )Жанр: WorldПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3B0839711DDE30FBEEEDF81C5E8AB955FD8134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 804149   (613686) от 13.07.2014
 
 Blood And Sun – White Storms Fall (2014) [FLAC|Lossless|tracks + .cue]<Neofolk, Dark Ambient, Folk>
@@ -412,384 +778,6 @@ Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3195FBE49930C2A89AF845AB9AA7017A2CFB09D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147001   (611093) от 01.07.2017
-
-VA - The Real... Country Collection (The Ultimate Collection) (2016) 3CD [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. The Carter Family: Can The Circle Be Unbroken
-02. Jimmie Rodgers: In The Jailhouse Now
-03. Flatt & Scruggs: Foggy Mountain Breakdown(   Читать дальше...   )Жанр: CountryПродолжительность: 02:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2228D8D2D1EE4DC4F0E72A9C1BA69A606B978AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524318   (611046) от 19.07.2012
-
-Hans Zimmer - The Dark Knight Rises / Тёмный Рыцарь: Возрождение Легенды(Original Motion Picture Soundtrack (2012) [AAC|258-285 кб/с (VBR)]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611046.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) A Storm Is Coming
-2) On Thin Ice
-3) Gotham's Reckoning
-4) Mind If I Cut In?
-5) Underground Army
-6) Born in Darkness
-7) The Fire Rises
-8) Nothing Out There
-9) Despair
-10) Fear Will Find You(   Читать дальше...   )Жанр: OSTПродолжительность: 01:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D981C168F534178FFF5CE3907C36864072E86B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523929   (610729) от 19.07.2012
-
-Nicolae Botgros si Orchestra Lautarii / Николай Ботгрос и Оркестр Лаутары - 4 Альбома (2001-2004) [MP3|320 кб/с]<Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610729.jpg" />
-</div>
-
-
-###  Подробнее
-
-«1. Lautareasca lui Tregubencu (3:28)
- 2. In drum spre casa (4:45)
- 3. De trei ori in jurul mesei (2:31)
- 4. Sirba la picior (3:19)
- 5. Omagiu lui Ion Dragoi (3:07)
- 6. Omagiu lui Constantin Mirea (2:45)
- 7. Ileana neichi-i, Ileana (2:22)
- 8. Sirba lui mos Vasile Zamfir (2:53)
- 9. Hora in doua parti si cazaciocul (2:27)
- 10. Melodie de dor (3:02)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29FF5CCD20712A62C35562CD850B001E55B6392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230915   (610512) от 15.06.2018
-
-Medwyn Goodall - Great Spirit 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – To Run with Wolves
-02 – Where Owls Fly
-03 – Horse Whispers
-04 – Earth Mother(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE70A7E920116497E99BECD9E4AAA37F69D88B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912712   (610490) от 26.06.2015
-
-Lorne Balfe - Terminator Genisys (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fate and Hope
-02. Better Days
-03. Work Camp
-04. Bus Ride(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352A50B777CB64B5CF21765E73AB44EEB08B10FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296536   (610254) от 18.04.2019
-
-VA - Now That's What I Call Country Vol 12 (2019) (2019) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kacey Musgraves - Space Cowboy
-02. Luke Bryan - What Makes You Country
-03. Luke Combs - She Got The Best Me
-04. Kane Brown - Lose It(   Читать дальше...   )Жанр: CountryПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E82DA767B8FBC513C040C653624BED60AF37505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037870   (610194) от 26.07.2016
-
-Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossless|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Connect [00:08:49]
-02. Floating to Forever [00:11:04]
-03. Letting Go [00:06:40]
-04. The Calm [00:13:20](   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036D0AE4D761985CB99DE541D8CFA8E33583D401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296657   (610130) от 18.04.2019
-
-Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curiosa
-02. Le miroir
-03. Noircissement direct
-04. Les egouts(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADACAF335D1A847BEFEEE1FD581D6EA5D4DEBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296191   (610126) от 18.04.2019
-
-Faun - XV - Best Of (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pagan, Folk, Medieval>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Diese kalte Nacht (3:05)
-02.Federkleid (4:43)
-03.Feuer (4:39)
-04.FAUN feat. Micha Rhein - Buntes Volk (4:19)(   Читать дальше...   )Жанр: Pagan, Folk, MedievalПродолжительность: 02:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93A480B5324D7CC711002FE2CF7E764CBEA211B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525096   (609888) от 20.07.2012
-
-Grupo Contraste - Native Voice (2004) [MP3|320 кб/с]<Native American, Ethno, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609888.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flying Condor (5:19)
-2. Buffalo Trail (5:32)
-3. Axtu Leman Sumix Sacred Mountain (5:17)
-4. Nothing Else Matters (5:18)
-5. Montezuma (4:45)
-6. The Return of Ringo (4:39)
-7. Precious Waters (5:54)
-8. Dawa (4:23)
-9. Spirit of the Flying Eagle (5:48)
-10. White Buffalo (5:34)(   Читать дальше...   )Жанр: Native American, Ethno, Ambient, New AgeПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95BB4968BA8780F05758578AF4E3D3E5C50D634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525132   (609711) от 20.07.2012
-
-Mesa Music Consort & Native Flute Ensemble - Wind Riders (2001) [MP3|320 кб/с]<Native American, New Age, Flute ,Ethnic,Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609711.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mesa Music Consort - Conferring Power 05:31
-2. Native Flute Ensemble - Deer Spirits Welcome the Dawn 02:08
-3. Mesa Music Consort - Wolf Woman Calls Hawk Spirit 04:17
-4. Native Flute Ensemble - Site of Great Mystery 03:08
-5. Mesa Music Consort - Council of the Flocks 05:35
-6. Native Flute Ensemble - Mustang Island 05:01
-7. Native Flute Ensemble - Spirit Seekers Ceremony 05:05
-8. Native Flute Ensemble - Dream Echoes 02:36
-9. Mesa Music Consort - Medicine Flute Dance 05:34
-10. Mesa Music Consort - Spirit of the Geese 03:54(   Читать дальше...   )Жанр: Native American, New Age, Flute ,Ethnic,FolkПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B547D63A94F08C394491D1925A04E66C942F1C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525304   (609703) от 20.07.2012
-
-Митя Кузнецов - Воображаемое путешествие в Китай (2006) [MP3|320 кб/с]<New Age, Ethnic Fusion>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Старик/Ностальгия
-02 Рисовые поля моей жизни
-03 Дети
-04 Гора под храмом
-05 Дыхание небес
-06 Источник сознания
-07 В ритме жизни
-08 Голос в ночи
-09 Утренняя дымка
-10 Встреча и судьба(   Читать дальше...   )Жанр: New Age, Ethnic FusionПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB6FA2B18CCD9D3FFA653A6AA9F3E7708D866F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

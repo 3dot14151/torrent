@@ -1,3 +1,61 @@
+###  Публикация: 1530005   (730900) от 09.02.2022
+
+VA - Chillout & Lounge Classics, Volume One (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leisure Pleasure - Grape Leaves (5:54)
+02. Diario - The Love That Remains (6:01)
+03. Aqua Mundi - Chuchaqui (5:47)
+04. Crossing Colors - Bright Sun Rays (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891C8101FD33DFD588D47FAF3EB6C14CD162F8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529999   (730899) от 09.02.2022
+
+Blank & Jones, Julian & Roman Wasserfuhr - Relax - Jazzed 1 (2012) [AAC|~324 Kbps] <Jazz, Chill Out, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Life (Jazzed) (2:57)
+02. Perfect Silence (Jazzed) (5:39)
+03. Relax (Your Mind) (Jazzed) (6:24)
+04. Hideaway (Jazzed) (5:48)(   Читать дальше...   )Жанр: Jazz, Chill Out, LoungeПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19437559F4B9DBCBAA7F8803686DA20716B87C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529763   (730898) от 09.02.2022
 
 VA - Cooked, Vol. 3 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo, Smooth Jazz>
@@ -661,58 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04EB4425E4E3360BB5DD28581A55D8D16F82AC4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284230   (729576) от 20.02.2019
-
-Красивый мальчик / Beautiful Boy (2018) BDRip [1080p] ATV (MVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Шефф переживает трагедию: его милый и очаровательный сын Ник стал наркоманом. Откуда взялась пагубная привычка? Ник растёт в любящей семье, он отлично учится, ни в чём не нуждается. Развод родителей прошёл спокойно. С матерью, живущей в Лос-Анджелесе, Ник общается до сих пор. Пытаясь найти ответы, Дэвид вспоминает, каким ребёнок был раньше — вдумчивым и красивым (   Читать дальше...   )Производство: США / Amazon Studios, Big Indie Pictures, Plan B EntertainmentЖанр: Драма, БиографияРежиссер: Феликс ван ГрунингенАктеры: Стив Карелл, Тимоти Шаламе, Мора Тирни, Кристиан Конвери, Окли Булл, Кейтлин Дивер, Эми Райан, Стефани Скотт, Джулиан Уоркс, Ке ЛоуренсПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500F4C452C9B909E7B8050690413CC33D57484CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283731   (729453) от 20.02.2019
-
-Коллекция аудиокниг: Зарубежная фантастика, фэнтези, мистика, ужасы 3 (1966-2018) [M4A|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция зарубежной фантастики, фэнтези, мистики и ужасовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23058DF7D29805AEE91304726A337EB786E1C5BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

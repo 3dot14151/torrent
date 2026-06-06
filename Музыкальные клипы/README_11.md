@@ -1,3 +1,58 @@
+###  Публикация: 1372669   (883628) от 04.04.2020
+
+Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Heavy Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Testament - Children Of The Next Level (2160) PCMПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8265FC9DCCB4E9CA444D1A61FDABD9EC1CFF02CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372777   (883626) от 04.04.2020
+
+Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM, Dark Electro>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883626.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2008 Hocico - Drowning - Banned (480)
+002 2009 Hocico - Born To Be (Hated) (Metetelo Por El Culo) (480)
+003 2011 Hocico - Bite Me! (1080)
+004 2015 Hocico - Bienvenido A La Maldad (1080)(   Читать дальше...   )Производство: Out Of LineЖанр: Aggrotech, EBM, Dark Electro, Electro-IndustrialПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9B8DF6AE67E058A3E5362ADD4324810DB1B6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 118791   (883304) от 24.03.2010
 
 Drum'n'Bass Clips. Коллекция музыкальных драм'н'бэйс клипов. (Обновлён 24.03.2010) DVDRip, SATRip (158 клипов)
@@ -644,59 +699,6 @@ Torrential Rain - Home AloneЖанр: Electronic MetalcoreПродолжител
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FA4F979839B1A4144235FF3BB0107EECAE334FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302073   (866889) от 01.03.2011
-
-Кипелов - Жить вопреки (Бонус-DVD) (2011) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка / Heavy MetalПродолжительность: интервью: 00:37:53
-фотогалерея: 00:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D8F662B568624635B918850F994158FEC493DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645345   (865656) от 18.04.2013
-
-Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro, HouseПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B90B65B3D284017ED3A9B93B23A39308BFAE03
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1657610   (192436) от 04.09.2023
+
+The Midnight - Red, White and Bruised: The Midnight Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Dream Wave, Electronic, Songwriter, Synth Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heroes (Live) [00:06:11]
+02. Change Your Heart or Die (Live) [00:03:13]
+03. Brooklyn. Friday. Love. (Live) [00:04:08]
+04. Gloria (Live) [00:04:39](   Читать дальше...   )Жанр: Dream Wave, Electronic, Songwriter, Synth PopПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAEA008B26A168B94666712FBD60F3B09ADC1657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588645   (191357) от 05.11.2022
+
+Soft Cell - *Happiness Not Included (2022) [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Happy Happy 4:46
+02. Polaroid 4:41
+03. Bruises On My Illusions 4:45
+04. Purple Zone (With Pet Shop Boys) 3:11(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2D00AD5E3E8A0C98136C0CD3F5CF4BAEFC09C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589710   (189654) от 11.11.2022
+
+a-ha - True North (2022) [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In (5:06)
+02. Hunter In The Hills (4:11)
+03. As If (4:56)
+04. Between The Halo And The Horn (4:11)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CA0BF491A1110DB81A31598EFBDE30EA94BACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279156   (189511) от 11.11.2022
 
 Depeche Mode - Archive 12 Inch Boxes (2018-2022) Sony Music, RM. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, House>
@@ -658,93 +745,6 @@ Lost Engineer - Antigravity (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09C90F9C34BD115002EB2352A99CAD24CB67D624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672162   (169933) от 27.10.2023
-
-OMD (Orchestral Manoeuvres In The Dark) - Bauhaus Staircase (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bauhaus Staircase
-02. Anthropocene
-03. Look At You Now
-04. G.E.M.(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8D2463EDC0ABF06DA9A55EF7AB4047277A972E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345027   (168213) от 13.12.2019
-
-Malik Djoudi - UN (2017) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <French Electronic, Synthpop, Ambient Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peur de rien (4:34)
- 02. Sous garantie (2:54)
- 03. The American (4:22)
- 04. Allant vers, à l'envers (3:43)(   Читать дальше...   )Жанр: French Electronic, Synthpop, Ambient PopПродолжительность: 00:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AF456AAFA3B0BA1C092EDBF8905D0BE2D753C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597789   (165082) от 16.12.2022
-
-Thermal Noise - Legends (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stronger than the Night [00:04:32]
-02. Legends [00:04:41]
-03. Object From Outer Space [00:03:37]
-04. Misfits [00:04:19](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49EFE03EA89FB6EB814BB10AAAC29F196ECE48F
 ```
 
 https://mybot314.ru/tekegram_catalog/

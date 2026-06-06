@@ -1,3 +1,29 @@
+###  Публикация: 1333043   (306751) от 23.10.2019
+
+Vegas Pro - Slideshow Photo on the Beach [VEG]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическое cлайдшоу на тему летнего отдыха на пляже... Дерзайте!Формат: VEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF399090DFF7131406A7F486E16F3EF4D8F19C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261432   (302533) от 11.11.2018
 
 Проекты - VideoHive - Botanical Slideshow - Wedding, Love Story, Family Album - 22525749 [AEP]
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B101E1921A69264577B39E9D5986AD09608EA935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970291   (140455) от 30.12.2015
-
-Проекты - Pond5 - Wedding Film Memories [AEP]
-
->>След.
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания свадебного слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CB78DB2BFE830AD47753D03A6708D620DB4786
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,291 @@
+###  Публикация: 1342326   (225733) от 01.12.2019
+
+VA - Rock'n'Roll Christmas (2011) [FLAC|Lossless|image + .cue] <Pop, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Bring My Baby Back To Me - Elvis Presley (1:57)
+02. Do They Know It's Christmas - Leonardo (3:10)
+03. Have Yourself A Merry Little Christmas - Rockabilly Allstars (2:56)
+04. Sleigh Ride - The Christmas Connection (3:49)(   Читать дальше...   )Жанр: Pop, OldiesПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C057CBE4818746EAD09BB2FA8A7007931FAF8478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965177   (225574) от 14.12.2015
+
+Mylene Farmer - Cendres De Lune (1987) [FLAC|Lossless|tracks + .cue] <Chanson, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Libertine (3:48)
+02. Au bout de la nuit (4:22)
+03. Vieux bouc (5:37)
+04. Tristana (4:35)(   Читать дальше...   )Жанр: Chanson, Synth-popПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C091FB7318D3AF867070704B9CAE968B96867463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994039   (225538) от 18.11.2020
+
+Backstreet Boys - Backstreet's Back (1997) Unofficial Release [FLAC|Lossless|image + .cue] <Europop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody (Backstreet's Back) 03:44
+02. As Long As You Love Me 03:40
+03. All I Have To Give 04:37
+04. That's The Way I Like It 03:40(   Читать дальше...   )Жанр: Europop, Vocal, BalladПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30EE39CB981457BBBD0BA017484481B9F231469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342149   (225274) от 01.12.2019
+
+VA - The World's Best Ever Beer Song's 10th Anniversary (2008) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровно 11 лет тому назад - 1 декабря 2008 года Австралийский дивизион лейбла EMI выпустил этот сборник для людей любящих в компании пропустить кружечку-вторую, а иногда и третью-четвертую. Головы людей, составлявших этот сборник, были явно этим самым пивом не затуманены, потому как он получился на удивление свежим и интересным. Знатоки вряд ли для себя найдут новые (   Читать дальше...   )CD1:
+01. Lynyrd Skynyrd - Sweet Home Alabama  (4:37)
+02. Choirboys - Run To Paradise  (4:05)
+03. Divinyls - Boys In Town  (2:50)(   Читать дальше...   )Релиз состоялся: 01 декабря 2008 годаЖанр: Pop, Rock, DanceПродолжительность: 03:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB7903A784377701AB6069453541FED9A983E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584577   (224326) от 19.10.2022
+
+VA - New Pop Classics (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - 2step (feat. Lil Baby) (02:43)
+02. Madeline The Person - Why I Broke Up with You (02:43)
+03. David Guetta - I'm Good (Blue) (02:55)
+04. Charlie Puth - Smells Like Me (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1272C8CA4DF15637658D1509D31891A391691F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965667   (224114) от 15.12.2015
+
+Supermax - Electricity (1983) Unofficial Release, Russia, 2014 [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Loversnight  5:40
+2.Future Time  6:14
+3.Love Is Deeper	  3:47
+4.Funk It Up  4:59(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D2F5E8F3040B3CFEF3466EA8C382AEFD65AD3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342564   (224011) от 02.12.2019
+
+The Vision Mastermixers - Christmas Party Megamix (2000) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merry Xmas Everybody / I Wish It Could Be Christmas Everyday / Winter Wonderland / All I Want for Christmas Is My Two Front Teeth / Rockin’ Around the Christmas Tree / Jingle Bell Rock / Santa Claus Is Comin’ to Town (15:35)
+02. Silver Bells / Gloucestershire Wassail / Mistletoe and Wine / Silent Night / We Wish You a Merry Christmas / Happy Xmas (War Is Over) (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFDEF9C655FCC16897BB53C6BA497DA0603ED6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587398   (223526) от 10.12.2012
+
+Wilson Phillips - Wilson Phillips (1990) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On
+02. Release Me
+03. Impulsive
+04. Next To You (Someday I'll Be)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852251   (222982) от 21.12.2014
+
+Selena Gomez - For You (2014) /Scene/ [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heart Wants What It Wants
+02. Come & Get It
+03. Love You Like A Love Song
+04. Tell Me Something I Don’t Know(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FEA03E76998AE9C8FC078F5872AD8235102A465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425119   (222768) от 20.11.2020
+
+The Beloved - Where It Is (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Rock, New Wave, Synthpop, 80s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hundred Words (5:17)
+ 02. Slow Drowning (4:27)
+ 03. In Trouble And Shame (7:05)
+ 04. This Means War (3:50)(   Читать дальше...   )Жанр: Electronic, Indie Rock, New Wave, Synthpop, 80sПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA04D5EDC7AE7891A32D1C61BE9D7FD76FBF60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342576   (222705) от 03.12.2019
 
 VA - MNM Party 2019 Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Pop>
@@ -455,296 +743,6 @@ Die Partymixer - Hit Sommer Mix (1998) [FLAC|Lossless|tracks] <Pop, Cover, Medle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0078F49CD7632D773FC5A0510101B651355D16DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343258   (218703) от 06.12.2019
-
-Vision Mastermixers - Reggae Mega Mix (1999) [FLAC|Lossless|image + .cue] <Reggae, Pop, Cover/Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reggae Mix 1 (22:20)
-- No Woman No Cry
-- Stir It Up
-- Starry(   Читать дальше...   )Жанр: Reggae, Pop, Cover/MedleyПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACCEBC7A089A600CE71BA0168FC48E14897CB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343176   (218696) от 06.12.2019
-
-VA - Blow Up Disco Vol 3: Back To Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loui$ – Magic Dance (Italo Club mix) (8:32)
-02. Loui$ – Pink Footpath (Back To instrumental mix) (6:08)
-03. Zanza's – This Is A Day (Mr.u.b. Italo instrumental mix) (4:58)
-04. Zanza's – This Is A Day (Mr.u.b. Italo mix) (5:26)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AFA117BD795FFB00162D4923680174824545A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343170   (218689) от 06.12.2019
-
-VA - Blow Up Disco Vol 2: Twisted Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miko Mission – The World Is You (Mission mix) (9:14)
-02. Miko Mission – The World Is You (vocal mix) (7:55)
-03. Sue Sadlow – My Man (Italodisko mix) (6:12)
-04. Sue Sadlow – My Man (radio mix) (5:56)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8409AC7574F83AA03BA1E14DE8C27E4C625A1783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343192   (218685) от 06.12.2019
-
-VA - Blow Up Disco Vol 6 : Nu-Disco & Italodisco Grooves From Blow Up Disco (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbara Billet – Babies Blue (mix version) (6:50)
-02. Barbara Billet – Babies Blue (Babie version) (4:25)
-03. Barbara Billet – Babies Blue (Help version) (2:33)
-04. Iloveu – I Just Wanna Tell You Baby (Friends In Love mix) (6:20)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F55DA780220E8659D491AC8A0150D6FEC142689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084690   (218634) от 19.12.2016
-
-VA - MNM Big Hits 2016 Vol. 1 (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218634.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lukas Graham - 7 Years 3:57
-2. Alan Walker - Faded 3:31
-3. Jonas Blue Ft Dakota - Fast Car 3:30
-4. Justin Bieber - Love Yourself 3:52(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC70571FBA7C85AD2A23034D8E616C8F441DEECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343180   (218610) от 06.12.2019
-
-VA - Blow Up Disco Vol 4: A Taste Of Blow Up Disco & Italo Instrumentals (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaly – Empty Faces (Gianco mix) (5:29)
-02. Kaly – Empty Faces (4:30)
-03. Loui$ – Computer Soul (6:54)
-04. Loui$ – Swimming (4:30)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A18E99AD519ADEBFA61AD47F5DA196EAE510206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343168   (218591) от 06.12.2019
-
-VA - Blow Up Disco Vol 1: Club Series Italodisco Grooves (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miko Mission – How Old Are You (vocal mix) (7:23)
-02. Miko Mission – How Old Are You (instrumental) (5:57)
-03. The Breekout Krew – Matt's Mood (Rap-o-Version) (6:02)
-04. The Breekout Krew – Matt's Mood (Rock Beats) (5:15)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F469DCE1C8384904AE14330572730E1A7F53D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343185   (218585) от 06.12.2019
-
-VA - Blow Up Disco Vol 5: Italo Heaven (A Sexy Selection Of Italodisco!) (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikron's – Vision (instrumental Italo version) (7:06)
-02. Mikron's – Vision (Club mix) (7:29)
-03. E.B.'87 – Song Of Love (Italo mix) (4:54)
-04. E.B.'87 – Easy Love (4:20)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207A1B3A2B4502E60EBDE29CDA7EF824FF009F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343214   (218544) от 06.12.2019
-
-Jennifer Paige - Crush: The Best of Jennifer Paige (2013) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Pop-Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crush (3:20)
- 02. Always You (4:05)
- 03. Sober (4:06)
- 04. Stranded (3:37)(   Читать дальше...   )Жанр: Electronic, Pop, Pop-Rock, BalladПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E59FADF20C513592E1420EFEA84B156051C0AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084671   (218443) от 19.12.2016
-
-VA - Just The Hits 2016 (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chainsmokers - Roses (Feat. Rozes)
-02. Flo Rida - My House
-03. Twenty One Pilots - Stressed Out
-04. Coldplay - Adventure Of A Lifetime(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1519F81BFD56F85F540887516B4406575305C713
 ```
 
 https://mybot314.ru/tekegram_catalog/

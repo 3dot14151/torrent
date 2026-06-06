@@ -1,3 +1,32 @@
+###  Публикация: 1075847   (315773) от 24.11.2016
+
+Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тень трагического, какого-то неизбежного рока витает над гением Микеланджели, осеняя все, к чему прикасаются его пальцы. Стоит сравнить его Шопена с тем же Шопеном в исполнении других - самых крупных пианистов.
+01 Mazurka, op. 67 no. 2- Cantabile (2:02)
+02 Mazurka, op. 56 no. 2- Vivace (1:48)
+03 Mazurka, op. 67 no. 4- Moderato animato (3:10)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6EDD64AADA286137F6F00D22988435778738F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075938   (315678) от 24.11.2016
 
 Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und Orchester Nr.1 & 3 (1980 - 1987) 1997 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
@@ -104,6 +133,35 @@ Partita № 2,BWv 1004 - Chaccone (13:41)Жанр: Classical, PianoПродол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C5EC1A6842B770D50B28FF6EF8F0790CE87C357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961861   (296882) от 03.12.2015
+
+Chopin - Preludes (Maurizio Pollini) (1990) [FLAC|Lossless]<Classical, Romantic Period, Preludes>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Preludes (24) for piano, Op. 28, CT. 166-189
+01. No.1 In C Major - Agitato   (00:40)
+02. No.2 In A Minor - Lento    (02:19)
+03. No.3 In G Major - Vivace   (00:59)(   Читать дальше...   )Жанр: Classical, Romantic Period, PreludesПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB90A7510CC69132C4B193932EE6CEC73FFD4ABE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,64 +742,6 @@ Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101EC89FAA883BF50146C76595D8F53052882AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271184   (146896) от 25.12.2018
-
-Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adeste Fideles
-02. Ave Maria
-03. Away In A Manger
-04. The First Noel(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC91F61D47127A3060545C0625D1D210DF820BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969903   (143117) от 29.12.2015
-
-J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossless|image+.cue] <Classical, Chamber Music, Recitals, Baroque Period, Toccata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toccata for keyboard in F sharp minor, BWV 910 (BC L146) (11:25)
-02. Toccata for keyboard in C minor, BWV 911 (BC L142) (13:13)
-03. Toccata for keyboard in D major, BWV 912 (BC L143) (11:50)
-04. Toccata for keyboard in D minor, BWV 913 (BC L144) (14:26)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Baroque Period, ToccataПродолжительность: 01:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
 ```
 
 https://mybot314.ru/tekegram_catalog/

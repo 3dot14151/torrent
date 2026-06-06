@@ -1,3 +1,64 @@
+###  Публикация: 546179   (478696) от 13.09.2012
+
+Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8500FADF8AB7E7CF25A86D22D37AA4E73ABCB2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384818   (478526) от 08.09.2011
+
+DJ VJ Magrao Videomix Volume 10 (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летний мегамикс бразильского ви-джея Magrao01 - DJ VJ Magrão - Introdução 2011 Parte 2
+02 - Adele - Rolling In The Deep
+03 - Rihanna - California King Bed
+04 - Flo Rida & Akon - Who Dat Girl
+05 - DJ Antoine, Timati Feat.Kalenna - Welcome To St. Tropez
+06 - Jean Roch, Flo Rida & Kat DeLuna - I\'m Alright
+07 - Far East Movement - Rocketeer
+08 - Tiko\'s Groove & Gosha - I Don\'t Know What To Do
+09 - Katy Perry - Last Friday Night (TGIF)
+10 - Jessie J & B.O.B - Price Tag(   Читать дальше...   )Жанр: Pop, Club, DanceРежиссер: DJ VJ MagraoАктеры: разные исполнителиПродолжительность: 1:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA292DEB42BC15FFEA15C25D82A1EB1CE346A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546445   (478379) от 13.09.2012
 
 Nikita - Avocado (2012) [H.264/1080p] WEBRip
@@ -648,61 +709,6 @@ Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D3C545DA3FD8DB2005585ECFF7D458E5B63ABE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549831   (460330) от 21.09.2012
-
-INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED29E6022452B5E9E2A709F02ECA6EBB069C43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404757   (460097) от 10.09.2020
-
-Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/2160p] <Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 CALLEJON - Gottficker
-02 CALLEJON - Metropolis
-
-Клипы к новому альбому Metropolis, выход которого намечен на 28.08.2020.Жанр: MetalcoreПродолжительность: 00:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4065A578C6BCB0AC61E7CD30E30FBB7650D06D55
 ```
 
 https://mybot314.ru/tekegram_catalog/

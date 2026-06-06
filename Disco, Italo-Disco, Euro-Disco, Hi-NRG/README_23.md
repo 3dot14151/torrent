@@ -1,3 +1,119 @@
+###  Публикация: 1555364   (570348) от 03.06.2022
+
+Made In U.S.A. - Melodies (1977) Reissue, 2017, Octave Lab [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Gonna Let You Go (5:08)
+02. Try Once More (4:16)
+03. Sexy Lady (4:29)
+04. Try To Find A Way (3:20)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A270120F85ADD97513A97C8948A2EACDF8E76880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303895   (569423) от 23.05.2019
+
+Norman Harris - The Harris Machine (1980) LP [MP3|320 Kbps] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Don't Want To Be Lonely (5:54)
+02. Dodge City, Hit City (7:03)
+03. You Make Me Feel Brand New (6:11)
+04. Zack's Fanfare '80 (0:54)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B868E201B0449FF408424A53BD60D1E9E7159F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044157   (568920) от 18.08.2016
+
+VA - Disco Tape Vol 4 (2016) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firefly - You Make Me Happy (5:09)
+02. Change - Oh What a Feeling (12 Paul Hardcastle Remix) (5:31)
+03. Styloo - Pretty Face (6:08)
+04. Peter Jacques Band - Everybody Have a Party (Peter Slaghuis Remix) (6:27)(   Читать дальше...   )Производство: RLT RecordsЖанр: DiscoПродолжительность: 01:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6064EFEDC309FE22C8833A7CD52E4EE4C85AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303956   (568773) от 23.05.2019
+
+Tommy Seebach - Disco Tango (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Tango (Dansk Grand-Prix Version) (2:50)
+02. Boogie Woogie Rendez-Vous (3:21)
+03. Apache (4:45)
+04. Never Go To Jail (4:20)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, Synth-popПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC49AFE2433D781565F33535AC374140AAFAEED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555435   (568732) от 04.06.2022
 
 Geoff Love's Big Disco Sound - 4 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -626,128 +742,6 @@ Black Sun - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C618904DF8E9FF6AD8F4ECD0CC0E520271206B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308560   (553725) от 15.06.2019
-
-The Passage Players - Voyage Into Space (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage Into Space (4:50)
-02. Interplanetary Expedition (3:02)
-03. Look Out For Falling Meteors (2:30)
-04. The Galaxy Around Us (2:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D683E276458A2F1A02DC5983BE3AA34C37776CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308704   (553535) от 16.06.2019
-
-Uncle Louie - Uncle Louie's Here (1979) LP [MP3|320 Kbps] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full-Tilt Boogie (3:51)
-02. I Like Funky Music (4:07)
-03. Badd Motor Folk (4:05)
-04. We Came To Play (5:14)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8661F0CCA6C709DBFF8BF4B755EEAEE2B3D7A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814649   (553258) от 22.08.2014
-
-VA - Bohlenopolis (2002) 2CD Bootleg [MP3|320 кб/с]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553258.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Disco Hit Mix
-
-01.Blue System - Magic Symphony (4:48)
-02.C.C. Catch - Nothing But A Heartache (3:24)
-03.Modern Talking - With A Little Love (4:20)
-04.Secret Star - Jump In My Car (2:56)
-05.Sheree - Ronnie Talk To Russia (4:32)
-06.Les Mckeown - Love Is Just A Breath Away (3:42)
-07.Countdown G.T.O. - Magic Race (4:06)
-08.Joe Lockwood - Hey You (2:23)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 02:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30543C133A232F1080955332F1F2B123537C566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046327   (552962) от 26.08.2016
-
-VA - Underground Nu-Disco Sessions Vol.6 (2016) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drone In Ibiza - Back In That Days - Original Mix
-02. Mr. Stylus - Right Now - Original Mix
-03. Elber Florentino - Santa Monica Sunset - Original Mix
-04. Bruno Costa - Escudo - Original Mix(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7146578305A0A31F7E13104999495616A36C2AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

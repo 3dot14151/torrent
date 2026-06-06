@@ -578,6 +578,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918523   (587026) от 15.07.2015
+
+Roy Eldridge - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Forty Six West Fifty Two (2:31)
+02.  Stardust (3:56)
+03.  Sittin' In (2:14)
+04.  Let Me Off Uptown (3:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CFCD8A95751B61988FCF9F577369445666EB0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918513   (586982) от 15.07.2015
+
+Memphis Slim - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rockin' The House (2:08)
+02.  Mother Earth (3:33)
+03.  Stroll On Little Girl (2:42)
+04.  Gotta Find My Baby (2:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D287A8A93F15AD6D4F0DADB8744FFE74EA4C7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918516   (586974) от 15.07.2015
 
 Robert Johnson - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
@@ -687,64 +745,6 @@ Elmore James - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F02C11FFC6624B6E4109E57740ED3A29CE417E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918829   (586001) от 16.07.2015
-
-B.B. King - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Introduction (3:29)
-02.  The Thrill Is Gone (5:04)
-03.  Sweet Little Angel (5:11)
-04.  Nobody Loves Me But My Mother (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C6471B257BAFAB33E4CF3060AAE50DF219F75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918920   (584935) от 17.07.2015
-
-Isaac Farr Trio - Blue Highway (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Highway (02:34)
-02. Circles (03:40)
-03. The Music (03:53)
-04. Sweet Lucy (03:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D195940088A1064FE8EC437035AB2452E29BBF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

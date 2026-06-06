@@ -554,35 +554,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 15325   (761666) от 06.07.2020
-
-Трибьют Энио Морриконе "We all Love Ennio Morricone" 2007
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_761666.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Knew I Loved You - Celine Dion
-2. The Good, The Bad and The Ugly - Quincy Jones featuring Herbie Hancock
-3. Once Upon a Time in the West - Bruce Springsteen
-4. Conradiana - Andrea Bocelli(   Читать дальше...   )Жанр: OfherПродолжительность: 02:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54112AF39B28E3A5676B6261462B8EA5AD015D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017465   (761216) от 17.05.2016
 
 VA - Acoustic Roots: Latin America (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -750,6 +721,35 @@ VA - Blessing New Age Music (2018) [MP3|256-320 Kbps] <New Age, Relax, Meditativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D37384D4DF835CEF3A5A8562FD123127B9169A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018295   (755683) от 20.05.2016
+
+VA - Piano and Chill: Piano for Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludovico Einaudi - Ora
+02. Luke Woodapple - The Awakening - Piano Solo
+03. Roland Orzabal - Mad World
+04. Max Richter - H in New England(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DB7E4BA3E8925793C3C93FE3316C7051A74536
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1286412   (712851) от 02.03.2019
+
+Madonna - Platinum Hits '2000 (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Pie
+02. Frozen
+03. Beautiful Stranger
+04. The Power of Goodbye(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A5DC9638C62D1BFA3605A8E2E1B3CB5D5642BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025240   (712199) от 11.06.2016
+
+Femme Schmidt - Raw (2016) [FLAC|Lossless|tracks] <Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To The Edge    03:34
+02. The Music    03:54
+03. Golden    03:24
+04. Temple of Tears    03:36(   Читать дальше...   )Жанр: Pop, Female VocalПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA907CA9E3B5DEE51F66887C03A8AFF54988F85D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025156   (712133) от 11.06.2016
+
+VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Me Amadeus
+02. Papa Don't Preach
+03. Glory of Love
+04. There'll Be Sad Song(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52FF7511BDC41CF6BC945C38107DCD5EE2DA2B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025059   (712112) от 11.06.2016
+
+Laid Back - Unfinished Symphonies (1999) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key To Life (3:27)
+02. Walking (4:12)
+03. Pop The Question (3:56)
+04. Cool Down Max (4:03)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1469F9820E138E31D4C366B6A6CB45F23C045C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025062   (711961) от 11.06.2016
+
+Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Me High    07:20
+02. There's A Fire    05:37
+03. Only One Night    07:34
+04. Heartflash    05:58(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F51BA05FA39EAD68408DDC0CED4B23B1A0B64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286623   (711183) от 03.03.2019
+
+Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Lossless|image + .cue] <Pop, World, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ruby Don't Take Your Love To Town
+2.	For The Good Times
+3.	A Stranger In My Place
+4.	Rueben James(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427446A97558438509E862F7F615CA0C50956269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286516   (711146) от 03.03.2019
 
 The Seekers - The Very Best Of The Seekers (1997) [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
@@ -570,178 +744,6 @@ Julio Iglesias - Mexico & Amigos (2017) [FLAC|Lossless|tracks + .cue] <Pop, Lati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE210015FF37147B5E9634BF7C651A54716F51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132277   (702659) от 08.05.2017
-
-Katy Perry - Chained to the Rhythm (2017) Single [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chained to the Rhythm (feat Skip Marley) (3:58)
-02. Chained to the Rhythm (Instrumental)  (3:58)Жанр: PopПродолжительность: 00:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0960CC8DCD70146C3FC4FE2E7D591058AEB6D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026790   (702163) от 16.06.2016
-
-Thomas Anders - Lunatic (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunatic (3:19)
-02. Lunatic (Extended Version) (5:31)
-03. Lunatic (Instrumental) (3:21)
-04. You're My Heart, You're My Soul (New Hit Version) (3:28)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FDE0AD8B9BC8649DEF75D165F3D73892E93127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401692   (701724) от 14.08.2020
-
-VA - Romantic Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellie Goulding - How Long Will I Love You (02:28)
-02. Justin Bieber - Purpose (03:30)
-03. Lewis Capaldi - Someone You Loved (03:04)
-04. Shawn Mendes - Mercy (Acoustic Guitar) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D267E3C7C6610B11C17E3DF959C8EDEF0AF8B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402491   (701722) от 14.08.2020
-
-GASHI - 1984 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retrowave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1984 (1:14)
- 02. Don't Kill Me (2:59)
- 03. Lies (4:09)
- 04. Mama (ft. Sting) (3:17)(   Читать дальше...   )Жанр: Pop, RetrowaveПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4152E0C04EEB19134D5C87D22FA3245535BF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287686   (701639) от 08.03.2019
-
-Cyndi Lauper - Time After Time (The Cyndi Lauper Collection) (2009) [FLAC|Lossless|tracks + .cue] <Pop Rock, Post-Punk, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girls Just Want To Have Fun (3:57)
- 02. Time After Time (4:01)
- 03. True Colors (3:47)
- 04. I Drove All Night (4:13)(   Читать дальше...   )Жанр: Pop Rock, Post-Punk, FolkПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357ED8B4C5A90B5AAAA921C1D45E779B6EAA0E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895299   (701015) от 05.05.2015
-
-Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voce
-02. Tu t’en vas
-03. Tout
-04. Je t’aime(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5558150FCD5F39D76529CFE0FE42D5BB35A1D857
 ```
 
 https://mybot314.ru/tekegram_catalog/

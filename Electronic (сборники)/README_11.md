@@ -1,3 +1,90 @@
+###  Публикация: 1475497   (1012265) от 07.06.2021
+
+VA - Harmonic Flyght: Synthspace Music (2021) [MP3|320 Kbps] <Synthetic, Electronic, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lowell Brams - Palinodes
+002. Waveshaper - 100 Mhz
+003. Ezek - Sixth Sense
+004. Birds - Red Hot Poker(   Читать дальше...   )Жанр: Synthetic, Electronic, SynthspaceПродолжительность: 09:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8330C50A94C7BD889BD15A32FCEDA71FEB5E8E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475482   (1012264) от 07.06.2021
+
+VA - Beatport Trance: Electro Sound Pack #293 (2021) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012264.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zareh Kann - Shankara
+002. Christopher Corrigan - Kauai
+003. Pakka - Sky (Radio-Edit)
+004. Chris Sx - Go!(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA356A2A027F5A071532849ABA98C310CCE0CFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475481   (1012260) от 07.06.2021
+
+VA - Beatport Drum And Bass: Electro Sound Pack #292 (2021) [MP3|320 Kbps] <D&B, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012260.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wiguez - Azahar
+002. Riddim Punks - Heavy Sound System
+003. Torn, Roho - Proelli
+004. Planeet - Tagasi Tulevikku(   Читать дальше...   )Жанр: D&B, BasslineПродолжительность: 08:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7FA317ADB734E36AA7960EBB9B8E67A36592BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475483   (1012230) от 07.06.2021
 
 VA - Beats Of City: Top 100 Progressive House (2021) [MP3|320 Kbps] <Progressive House, Electro>
@@ -658,93 +745,6 @@ VA - The Space Mechanics (2021) [MP3|320 Kbps] <Future House, Electro, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7074BB52D6FB2F9FF4037BB044FE31528C95EC46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480933   (1008603) от 01.07.2021
-
-VA - Beach Vibe: Deep House Summertime Sessions (2021) [MP3|320 Kbps] <Deep House, Dance, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008603.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nae-tek, Deeperwalk - Back Home
-002. Beat Rivals feat. Lifford - Stay In The Groove
-003. Dse - Horisontti
-004. Thugfucker - Bodyshaker(   Читать дальше...   )Жанр: Deep House, Dance, EDMПродолжительность: 11:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B24AF1473B372DC847923AA50F3825A2E90BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481078   (1008483) от 02.07.2021
-
-VA - Beatport Electro House: Sound Pack #309 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Exon Bacon - Sunny Days
-002. The Golden Boys - Afrobeat
-003. Eins Tiefer - Photon
-004. Fred Everything - True(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1019DAE98BA3D43409E9D3B6DEEBE13B2D8BCB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481083   (1008467) от 02.07.2021
-
-VA - Beatport Deep House: Sound Pack #310 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nopi - Coral Soul
-002. The Official Bug - Soul Food
-003. Phonika - Abandoned By Mercy
-004. Hernan Cerbello - Roasted(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4728FAB8C423B0D3440934049AD44C77CB81AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

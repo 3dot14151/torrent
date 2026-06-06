@@ -1,3 +1,61 @@
+###  Публикация: 1522368   (758668) от 07.01.2022
+
+VA - Christmas Chill Out: Best for the Year 2022 (2022) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelo-K - Whatever You Need (Original Vocal Mix) (7:01)
+02. S.A.T - Awakening (Original Mix) (4:00)
+03. DJ Artak, Natune - I Am Saved (Original Mix) (4:35)
+04. Angelo-K - Along the Coast (Extended Mix) (8:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FF4DA4552FC3D67A63C02CB4767A76E64AC504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522405   (758663) от 07.01.2022
+
+VA - Yoga Music Session 2: Music for Relaxation & Meditation (2019) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigerforest - Bellefontaine (Original Mix) (5:34)
+02. Dharma Frequency - Floating Dreams (Original Mix) (4:00)
+03. Elmara - Northern Lights (Original Mix) (3:38)
+04. Eskadet - Te Revoir (Original Mix) (6:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F102D1BF77FFCB9C6129FE01E400B5F42FB1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522406   (758657) от 07.01.2022
 
 VA - Yoga Music Session 3: Music for Relaxation & Meditation (2022) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
@@ -633,61 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE665A7EE50519C7D450790DEDF1AFA2C2D1C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887999   (757036) от 13.04.2015
-
-Искатель воды / The Water Diviner (2014) BDRip [1080p] ATV [Line]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в 1919 году. Это история об австралийце, который отправляется на полуостров Галлиполи, где во время Первой мировой войны проходила ожесточенная битва, чтобы разыскать тела своих погибших сыновей. И неожиданно для себя он обретает надежду там, где и не мыслил ее найти.Производство: Австралия, Турция, США / © 2014 Diviner Holdings Pty Ltd, RatPac Entertainment LLCЖанр: драма, военныйРежиссер: Рассел КроуАктеры: Расселл Кроу, Джай Кортни, Ольга Куриленко, Изабель Лукас, Дэймон Херриман, Жаклин МакКензи, Джем Йылмаз, Йылмаз Эрдоган, Меган Гэйл, Райан Корр и др.Перевод: ДублированныйОзвучка / Автор перевода: (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7183D1E1FB9E1FF890C8E18952CE61D9C44E83B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522482   (757032) от 08.01.2022
-
-VA - Winter Grooves: Urban Chillout Music (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dacosta - Sunset Boulevard (4:16)
-02. Pier-O - Night Sky (5:43)
-03. sarosa - Interstellar (Original Mix) (4:30)
-04. Digby Jones - Kaleidoscope (Original Mix) (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F10E43AC4A02721ED2614F7CC00F6DEE0D3807
 ```
 
 https://mybot314.ru/tekegram_catalog/

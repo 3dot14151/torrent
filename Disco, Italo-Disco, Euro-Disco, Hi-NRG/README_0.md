@@ -1,3 +1,61 @@
+###  Публикация: 1615612   (1037574) от 26.02.2023
+
+VA - Play It!: Funky & Disco Vibes Vol. 55 (2023) CD, Compilation [MP3|320 Kbps] <Indie Dance, Funky, Nu Disco, Soulful>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K & K - Locked (Extended Mix)
+02. Stev Dive - Around (Extended Mix)
+03. Mikey Jubbly - You Are
+04. J.B. Boogie - Getting Back (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Funky, Nu Disco, SoulfulПродолжительность: 01:42:29 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B93E96C878A5075033A247175A1285410FFCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441752   (1037465) от 22.01.2021
+
+Inner Life - I'm Caught Up (In A One Night Love Affair) (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Caught Up (In A One Night Love Affair) (7:38)
+02. I Hope It's The Right Time (8:26)
+03. I Want To Give You Me (7:49)
+04. You Got Me Dancing (6:31)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263B388721125B154153BFD3DBF8430E70FD6118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615898   (1037277) от 27.02.2023
 
 Disco Made In Israel - Disco Made In Israel (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
@@ -687,63 +745,6 @@ Zacar Orchestra - Disco-Take (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A42AED927F99E0DBFF16505244932DBFDA7BE31A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459620   (1023131) от 02.04.2021
-
-Love Symphony Orchestra - Penthouse Presents The Love Symphony Orchestra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Make Love In Public Places (12:52)
-02. Let Me Be Your Fantasy (10:23)
-03. At The Football Stadium (4:16)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECE38DF04E48357FED22440666974B1AB957443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459475   (1023104) от 02.04.2021
-
-Charme - Let It In (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It In (5:48)
-02. Never (Gonna Let You Go) (4:00)
-03. Do It For Love (3:43)
-04. Penny For Your Thoughts (3:49)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB5814ADBECE46E985327BCB24F8C485C7FCBCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

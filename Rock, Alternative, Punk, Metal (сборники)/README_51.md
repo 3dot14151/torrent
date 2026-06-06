@@ -1,3 +1,148 @@
+###  Публикация: 1813183   (6939) от 19.08.2025
+
+VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [OPUS|160 kbps] <pop, rock, rap>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6939.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aretha Franklin - Respect.opus — 00:02:27
+002. Public Enemy - Fight The Power.opus — 00:04:42
+003. Sam Cooke - A Change Is Gonna Come.opus — 00:03:11
+004. Bob Dylan - Like A Rolling Stone.opus — 00:06:09(   Читать дальше...   )Жанр: pop, rock, rapПродолжительность: 34:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3552843121BF622EE46CF84DB13432D0DF87C3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813458   (6925) от 19.08.2025
+
+Сергей Мазаев & Моральный Кодекс - Compilation (1991-2025) [MP3|320 Kbps] <Pop rock, Jazz rock, Blues rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. До Свидания, Мама ! (Сотрясение Мозга | 1991)
+02. Где Ты (Где Ты | 2008)
+03. В Ожидании Чуда (Славянские Танцы | 2007)
+04. Реки и Горы (Хорошие Новости | 2001)(   Читать дальше...   )Жанр: Pop rock, Jazz rock, Blues rockПродолжительность: 06:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6413FCCED78F05AB0DB90B848D000C79526CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813666   (6785) от 20.08.2025
+
+David Lee Roth - Voice Of Rock - Compilation (1985-2023) [MP3|320 Kbps] <Hard rock, Glam metal, Blues rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 40 Below (A Little Ain't Enough | 1991)
+02. Black Sand (DLR Band | 1998)
+03. Just Like Paradise (Skyscraper | 1988)
+04. You're Breathin' It (& Urban NYC) (Your Filthy Little Mouth | 1994)(   Читать дальше...   )Жанр: Hard rock, Glam metal, Blues rockПродолжительность: 03:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE4264FE12103A06A693C2035853CF81C67DCFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438017   (5103) от 31.08.2025
+
+VA - Workout Motivation (2019-2025) Alternative Edition, Mixed by Sergey Sychev [MP3|320 Kbps] <Rock, Alternative, Other> - Обновляемая раздача
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deuce - Do You Think About Me
+2. We As Human - Double Life - EP Version
+3. Manafest - Kamikaze
+4. Rain City Drive - Ride or Die(   Читать дальше...   )Жанр: Rock, Alternative, Other, CoverПродолжительность: 19:01:17 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3329148FA7971377155BD80F88748653C472C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815956   (4665) от 02.09.2025
+
+Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard rock, Heavy metal, AOR, Blues rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est La Vie (& EZoo) (Feeding The Beast | 2017)
+02. Jet To Jet (& Alcatrazz) (No Parole From Rock 'n' Roll | 1983)
+03. Goodnight & Goodbye (& Impellitteri) (Stand In Line | 1988)
+04. Let The Wild Run Free (& Forcefield) (IV. Let The Wild Run Free | 1990)(   Читать дальше...   )Жанр: Hard rock, Heavy metal, AOR, Blues rockПродолжительность: 09:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C216243E6E9C738ECA269F2B2D431B81D7F1A78D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781660   (4606) от 03.09.2025
 
 Helloween - Compilation (1985-2025) [MP3|320 Kbps] <Power metal, Speed metal>

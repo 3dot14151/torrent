@@ -1,3 +1,380 @@
+###  Публикация: 1866970   (1066530) от 22.04.2026
+
+VA - Markus Schulz - In Bloom 2026 (Vocal Dance Mix) (2026) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten & HALIENE - Wherever You Are (Hel:Sløwed Reprint) (In Bloom 2026) (Mixed) [5:24]
+02. Adina Butar - Just for You (In Bloom 2026) (Mixed) [3:34]
+03. Deep Dish - Say Hello (Korolova Remix) (In Bloom 2026) (Mixed) [2:17]
+04. Jerome Isma-Ae - The Void (In Bloom 2026) (Mixed) [3:04](   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 03:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7A598C72867C0E86FED767AF80E00FE9F9C0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866794   (1066529) от 22.04.2026
+
+VA - Uplifting Only Top 15: April 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Dinner - Epic (Intro Mix) [5:26]
+02. Maratone & Linney - Closer To You (Lasse Macbeth Extended Remix) [7:18]
+03. D-Engine - Infinite Rise (Extended Mix) [6:51]
+04. Kvaii - Tenderness In Dreams (Extended Mix) [8:35](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D11544A59737E113F1494BD76B266D1F1F520E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866799   (1066390) от 22.04.2026
+
+VA - Redux Selection, Vol. 4 / 2026 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Spaceman & DJ X-Plosiv - Friends Of Trance (Extended Mix) [5:38]
+02. Angels&Tilove - Feel The Sun (Extended Mix) [5:59]
+03. Adam Morris - Twilight (Extended Mix) [6:18]
+04. Sander Bastiaans - Eramnesia (Extended Mix) [6:05](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E629DE3A175D001BC483DACC0E096DB8ABA3415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865891   (1065953) от 
+
+VA - Future Favorites Top 25 - A State of Trance 25 Years (Extended Versions) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - This Is What It Feels Like feat Trevor Guthrie (W&W Extended Remix) 06:16
+02. Shogun - Zanarkand (Extended Mix) 06:31
+03. Aly & Fila - We Control The Sunlight feat Jwaydan (Extended Mix) 08:29
+04. John O'Callaghan - Big Sky feat Audrey Gallagher (Extended Mix) 09:32(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8916AE580B4FBD77E3785BA3164512037EE75405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865745   (1065508) от 17.04.2026
+
+VA - Black Hole Trance Music 04-26 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarstone & Susie Ledge - Haunt Me (Extended Mix) 07:46
+02. Airbase - Everything Else Could Wait (Extended Mix) 07:11
+03. Ram & MIDI Kittyy - Rapture (Extended Mix) 05:21
+04. Craig Connelly & Liel Kolet - Endless Sky (Extended Mix) 08:33(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30FD79B4447D4C71C40DD2AFF5DEE5A65D58219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864393   (1064699) от 
+
+John 00 Fleming - The Lost Tribe (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming - Guiding Spirits 11:56
+02. John 00 Fleming - Alone 10:23
+03. John 00 Fleming - Planning The Demise 10:13
+04. John 00 Fleming - Butter Child 08:29(   Читать дальше...   )Жанр: TranceПродолжительность: 02:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F452C03CE75F773639FA4A78B1684CC6FE078DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862490   (1064094) от 30.03.2026
+
+VA - Trance Fusion, Vol. 18 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeris Nyx - Fading Away (Original Mix) [4:00]
+02. Betibwe - Feel The It (Extended Mix) [6:30]
+03. MaRLo & Mila Josef - Dont Let Me Down (Mixed) [3:16]
+04. Lexenn - Forgotten Voices (Extended Mix) [4:41](   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85C05BA58903CF575309E284D13E1DF7D6036D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862526   (1064005) от 31.03.2026
+
+VA - Uplifting Only Top 15: March 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Luminal & REX.W - Ethereal (Intro Mix) [5:14]
+02. Inzite - Everest (Aeon Shift Extended Remix) [6:38]
+03. Tycoos & Ayda & Lyd14 - Made Of Love (Extended Mix) [5:07]
+04. Shadows&Nightmares - Self-Transcendence (Extended Mix) [10:33](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED5177A4AAA9E3C6F5D136BC42F61F2985AC218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861098   (1062645) от 24.03.2026
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 18 (2026) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Georgio Safo - Trinity Of The Void (Original Mix) [3:25]
+02. Mars Shadow - Astrenox (Extended Mix) [6:33]
+03. Axxound - Not Alone (Extended Mix) [6:40]
+04. Makoom - Hope & Memories (Extended Mix) [7:51](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D129F210E023B5F2A0E3901F9DAA2D823CEAE73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861520   (1062377) от 26.03.2026
+
+VA - We Love Progressive Trance 2026 (2026) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AGENTBOY - Poison In The Blood (Extended Mix) [7:09]
+02. Vahid Ghandizadeh - Resurrection (Original Mix) [7:31]
+03. Zakkov - Sacrifice (Original Mix) [4:36]
+04. Henry Caster - Endless (Original Mix) [5:48](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A0717F7817FBECBEF11482F8941D1132A3F4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860829   (1062086) от 22.03.2026
+
+Dennis Sheperd - The Next Generation - Extended Mixes (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Katty Heath & Marcel Vautier - Hearts Aligned (Extended Mix) 04:28
+02. Dennis Sheperd & Julia Eliza - Soul (Extended Mix) 05:40
+03. Dennis Sheperd & Katty Heath & Kazu - Watch Over Me (Extended Mix) 05:05
+04. Dennis Sheperd & Ayandra - Begin Again (Extended Mix) 04:49(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106466F992FFF7E5DEC4E236E15CBCE006F12416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860543   (1061892) от 21.03.2026
+
+VA - Trancendence, Vol. 09 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robinito - Northern Soul (Extended Mix) [7:40]
+02. Kaimo K - Titan (Radio Edit) [3:35]
+03. Ron with Leeds - Crave The Horizon (Original Mix) [3:58]
+04. Simply Drew - Vortex (Extended Mix) [6:51](   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4012C70E6764ECE5243784C4FFEDE62B25070E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860534   (1061889) от 21.03.2026
+
+Sharon Valerona - Voice Of Suanda (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic & Sharon Valerona - Horizon (Extended Mix) [6:44]
+02. DJ T.H. & Sharon Valerona - Only Now I See (Mike Zaloxx Extended Remix) [6:17]
+03. Michael Milov & Dmitry Chelnokov & Sharon Valerona - Live Without You (Michael Milov Extended 90's Mix) [3:18]
+04. Aurosonic & Sharon Valerona - Let Go (Extended Mix) [7:38](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A094C17BA1B68A7B1DA07C1DB82A7E9AA56FB0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860527   (1061888) от 21.03.2026
 
 Jennifer Rene - Voice Of Suanda (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -368,382 +745,6 @@ VA - Dark Miami 2026 (2026) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81BFDA9467D0DF1418A0C56BAE1528CB8AB7EEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857948   (1060336) от 09.03.2026
-
-VA - Trancendence, Vol. 08 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Franco Concina - Atmosphere (Original Mix) [2:42]
-02. Lone Raver - Synthetic Paradise (Original Mix) [5:21]
-03. Paul Steiner - Return (Radio Edit) [3:07]
-04. Inner Heart - Whisper (Original Mix) [8:02](   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0558EC7EC12AAB2D9228551FB8C6D8A8041F997B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857432   (1059677) от 06.03.2026
-
-VA - Progressive Trance Awakening, Vol. 11 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ant. Shumak - Paradise Gate (Original Mix) [4:40]
-02. Interstellar{TN} - Last Breath (Radio Edit) [3:55]
-03. Hiddeminside & Emarie - Your Love For Me (2025 Remake) [7:25]
-04. Axxound - Not Alone (Extended Mix) [6:40](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0CA4DBEC1C903A5721DEB2B54EC8D3C55996CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857205   (1059599) от 04.03.2026
-
-VA - Trance Winter 2026 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Actor - Particles (Extended Mix) [6:02]
-02. Mazeev - Ad Astra (Original Mix) [6:13]
-03. Shelby Burnout & Edith Crosby - Anticu Guerrieru (Amuri Militari) (Extended Mix) [7:52]
-04. Polzn Bladz - End Of An Error (Extended Mix) [7:54](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC2B1EA22906F388923754FC912F8EF379C80BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856472   (1059247) от 03.03.2026
-
-Armin van Buuren - A State of Trance 001-050 (2001-2002) [MP3|192 Kbps] <Trance, Progressive House, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059247.jpg" />
-</div>
-
-
-###  Подробнее
-
-A State of Trance 001:
-01. Warrior – Voodoo
-02. Munity – Secrets
-03. Joker Jam – Innocence(   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 23:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EEDCDA42B1A4A3756917B14C9FFDE8A198B21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856547   (1059105) от 28.02.2026
-
-VA - The Sound of 2026, Chapter 1: Toronto (Night Mix) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F4T4L3RR0R - The Right Man in the Wrong Place (Intro - Mixed) 01:16
-02. Lexy Chae - Neon Lotus (Original Mix - Mixed) 05:19
-03. F4T4L3RR0R - The Hoax (Original Mix - Mixed) 06:17
-04. Dmitry Kostyuchenko - Take Off (Original Mix - Mixed) 03:05(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F02941D31A527526BA2286CB12F06CC5F652D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856332   (1058955) от 27.02.2026
-
-OTTAGON / Giuseppe Ottaviani - AZZURRO Ep (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani pres. OTTAGON & KhoMha - Metanoia (Extended Mix) [05:00]
-02. Giuseppe Ottaviani pres. OTTAGON feat. TW3LVE - Feel It Coming (Extended Mix) [04:26]
-03. Giuseppe Ottaviani pres. OTTAGON feat. Lake Silver - What The Future Holds (Extended Mix) [04:51]
-04. Giuseppe Ottaviani pres. OTTAGON - The Underground (Extended Mix) [05:06](   Читать дальше...   )Жанр: TranceПродолжительность: 00:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABF262F2FB0FF920611F390861C109988CE251C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856306   (1058948) от 27.02.2026
-
-VA - D.Trance 113 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAM & Susana - RAMelia (Original Mix) [4:36]
-02. Myde - There Was No Phone (Extended Mix) [2:29]
-03. Rafael Osmo & Robert Gitelman - Children Of The Sun (Original Mix) [3:38]
-04. NoMosk & Ansia Orchestra - Adventure (Extended Mix) [6:56](   Читать дальше...   )Жанр: TranceПродолжительность: 03:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1AD924EC33C27370FEECEE999D398ED1D9D378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856284   (1058944) от 27.02.2026
-
-VA - Uplifting Only Top 15: February 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LekSin & Yuri Melnikov - Black Rose (Intro Mix) [4:47]
-02. Stefano Negrini & Alaera - Your Loving Angel (Extended Mix) [6:41]
-03. Victor Tayne & Tycoos - Broken Love (Extended Mix) [6:31]
-04. DJ Tony Magic & Yuri Melnikov - Message From The Past (Extended Mix) [5:27](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A36CFEDEB379384E833E549AEA9BB864F3C2355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856483   (1058791) от 28.02.2026
-
-VA - The Sound of 2026, Chapter 1: Toronto (Day Mix) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F4T4L3RR0R - Is There Hope? (Intro - Mixed) 02:37
-02. Fille V - Awake (Original Mix - Mixed) 05:14
-03. Yseph Elaren - Sunshine (Original Mix - Mixed) 03:40
-04. Markus Frost - Bliss (Original Mix - Mixed) 04:41(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63035A78C9A5F92C3426E38ACA778BF8AC6F651D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856093   (1058762) от 26.02.2026
-
-VA - Redux Selection, Vol. 3 / 2026 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gradian & Lentorek - Demonic Invasion (Buzzard Extended Remix) [6:16]
-02. Full C0urse - One More Time (Extended Mix) [7:34]
-03. JARR Head & PITTARIUS CODE - Legends (Extended Mix) [6:28]
-04. Sander Bastiaans - Unyielding (Extended Mix) [7:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0DCB7597D0E5670C724D88F7043EE041D863C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855947   (1058613) от 25.02.2026
-
-VA - FSOE 950 Compilation (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Stone - Macy (Extended Mix) [6:34]
-02. Aly & Fila meets Roger Shah & Susana - Unbreakable (Extended Mix) [7:47]
-03. Sean Tyas & Darren Porter - The Potion (Extended Mix) [8:25]
-04. Aly & Fila - Beyond The Lights (Extended Mix) [7:47](   Читать дальше...   )Жанр: TranceПродолжительность: 03:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2537A0FE8E581D0226746D86422EE7C51E413BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855892   (1058608) от 25.02.2026
-
-VA - A State of Trance: 25 Years - Official Anthem Collection (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Richard Durand & Dicosis - Always You (A State of Trance 2026 ELEVATION Anthem) (Extended Mix) [5:38]
-02. Armin van Buuren & Ben Hemsley feat. Lucy Pullin - Is It Beautiful? (A State of Trance 2025 TRANSFORMATION Anthem) (Extended Mix) [7:12]
-03. Armin van Buuren, Ferry Corsten, RANK 1 & Ruben de Ronde - Destination (A State (   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DB270CE96DDF111F94AB88F4E14DC8322F0709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854925   (1057892) от 20.02.2026
-
-VA - Festival Anthems 2026 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M.O.R.P.H. & Roman Messer - Millennium Falcon (Extended Mix) [7:27]
-02. Adip Kiyoi - You Love Me (Extended Mix) [6:04]
-03. Roman Messer & Alexander Popov & Feel - Moonlight Sonata (Extended Mix) [6:51]
-04. Inrayzex - Secret Of The Space (Extended Mix) [4:40](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C32516A6E3C1377A45B3C9CFCD77740FC96E46B
 ```
 
 https://mybot314.ru/tekegram_catalog/

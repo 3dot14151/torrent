@@ -1,3 +1,56 @@
+###  Публикация: 1015079   (775598) от 09.05.2016
+
+Проекты - Pond5 - Fast Fashion Opener - 52188551 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Fashion Opener - это очень стильный, энергичный и полезный шаблон. Надеюсь,
+вы найдете ему применение!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E1B0E14FD9803307949D80BDC7C6E6AC39115A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014959   (775450) от 09.05.2016
+
+Проекты - VideoHive - Digitalism - Corporate Presentation Bundle - 15843011 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digitalism - Corporate Presentation Bundle - отлично подходит для презентации вашей компании, бренда, продукта и т.д.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B310857500E76D69CF90D280456071E71108C9F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015447   (774840) от 10.05.2016
 
 Проекты - VideoHive - Metro Rush [AEP]
@@ -625,58 +678,6 @@ Insurance Services Presentation - презентация услуг страхо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7736EB60010A0C0FA526BA36724CB68F597F4F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017126   (762564) от 16.05.2016
-
-Проекты - VideoHive - Sexy Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sexy Promo - Шаблон может быть использован для промо, открываюния фильма, свадьбы, интро фильма, или просто для просмотра снимков и видео, если вы фотограф или видео-оператор.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095EB09ACACEA9E2F0AEA66DC4CA72315BA323D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017129   (762555) от 16.05.2016
-
-Проекты - VideoHive - Broadcast Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broadcast Promo - набор промотирующей графики для разного применения: для телепередач, для трейлера фильма, спортивных программ, телевидения и интернетаФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BB7AD1329B3BA04695293D65ECBBCF0B65BB12
 ```
 
 https://mybot314.ru/tekegram_catalog/

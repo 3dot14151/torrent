@@ -1,3 +1,61 @@
+###  Публикация: 1284992   (724477) от 24.02.2019
+
+Blue System - The UltraTraxx Remixe 1-2 (2009) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. History (UltraTraxx 12 Inch Version) (6:26)
+02. Laila (UltraTraxx 12 Inch Version) (6:39)
+03. That's Love (UltraTraxx 12 Inch Version) (7:31)
+04. Only With You (UltraTraxx 12 Inch Version) (7:43)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A80A8F01563CCA2F717E2D2EDE1D3ABBF72BF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023559   (724414) от 05.06.2016
+
+The Golden Filter - Voluspa (2010) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Indietronica, Synth Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Around The Fire
+02. Hide Me
+03. Look Me In The Eye
+04. Moonlight Fantasy(   Читать дальше...   )Жанр: Nu-Disco, Indietronica, Synth PopПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6CB7FF4D889BC57A4148DA5A392B66CB374EB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129189   (724362) от 27.04.2017
 
 Fun Fun - 2 Albums (1984, 1987) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
@@ -685,64 +743,6 @@ Pink Project - 2 Albums (1982-1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B452DE6E36EEA3C90D4CA87562214D1753C134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131152   (710516) от 04.05.2017
-
-Mark Ashley - I Will Not Forget You (2017) [MP3|320 Kbps] <EuroDisco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenny Come Home (Radio Version) 4:00
-02. Please Believe Me (Radio Version) 3:05
-03. Breath of an Angel (Radio Version) 3:20
-04. I Will Not Forget You (Radio Version) 3:10(   Читать дальше...   )Жанр: EuroDisco, PopПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA56BA4295EA08C86BDF4618016DC6B46FBF591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025461   (710034) от 12.06.2016
-
-Giorgio and Chris - Loves In You, Loves In Me (1978) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's In You, Love's In Me (3:35)
-02. Keep It Together (3:26)
-03. I Can't Wait (9:35)
-04. Love Now, Hurt Later (6:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4492FE88A2780A2C13B4165F3E250316E45F8EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

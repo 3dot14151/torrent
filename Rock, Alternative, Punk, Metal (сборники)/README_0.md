@@ -1,3 +1,145 @@
+###  Публикация: 1862469   (1064004) от 31.03.2026
+
+Gotthard - Compilation (1992-2026) [MP3|320 Kbps] <Hard rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Than Love ❂ #13 2020
+02. Bang ! ❂ Bang ! 2014
+03. Liverpool ❂ Stereo Crush 2025
+04. S.O.S. ❂ Firebirth 2012(   Читать дальше...   )Жанр: Hard rock, BalladsПродолжительность: 08:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42600FD4BCB9B14B9EC10BBF4C3B6DB78691A1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862709   (1063968) от 31.03.2026
+
+VA - Hard Rock Workout (2026) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limp Bizkit - Rollin' (Air Raid Vehicle)Жанр: Hard RockПродолжительность: 04:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1690CDE32BAD6B73C83C9127E064B3F71D36E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862826   (1063821) от 01.04.2026
+
+Axel Rudi Pell - Compilation (1989-2026) [MP3|320 Kbps] <Hard rock, Melodic heavy metal, Power metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Moon Pyramid ❂ Black Moon Pyramid 1996
+02. All The Rest Of My Life ❂ Shadow Zone 2002
+03. Beautiful Day (& U2) ❂ Diamonds Unlocked 2007
+04. Before I Die ❂ Circle Of The Oath 2012(   Читать дальше...   )Жанр: Hard rock, Melodic heavy metal, Power metalПродолжительность: 10:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D798CE5E2D223D41666B51ABD1C1CE2F3EEA868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862873   (1063746) от 02.04.2026
+
+Daniele Gazzarin - Favorites Collection (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hallelujah
+02 - Don’t Leave This Voice Alone
+03 - Still More Road Ahead
+04 - Stay Here(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE30270E8FD3161F8B4E2B85CED95986EBB25B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863292   (1063440) от 04.04.2026
+
+VA - REDISCOVER The ’60s Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063440.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Big Brother The Holding Company - Piece Of My Heart (4:15)
+002. The Rolling Stones - (I Can't Get No) Satisfaction (Mono) (3:42)
+003. Jimi Hendrix - All Along the Watchtower (4:01)
+004. Bob Dylan - Like a Rolling Stone (6:11)(   Читать дальше...   )Жанр: RockПродолжительность: 05:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA135A0C93B9F8E2A5A2BEC6DFF2CCB1431A8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863377   (1063439) от 04.04.2026
 
 VA - REDISCOVER The '70s: Rock (2026) [MP3|320 Kbps] <Rock>
@@ -597,151 +739,6 @@ VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:089EC6BD2CE8097B5DAAFCD29B09374067741A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849945   (1054347) от 28.01.2026
-
-VA - Russian Rock 2025 (2025) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054347.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:58]. 001-Инкогнито - Январь
-[2:46]. 002-Диана Арбенина - Вот и я
-[4:10]. 003-7Б - Я люблю её
-[3:53]. 004-Сурганова и Оркестр - Здравствуй(   Читать дальше...   )Жанр: rockПродолжительность: 07:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5ABBCE5D6FBA8A8C138F10FBC0B57C9423FED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848913   (1053202) от 19.01.2026
-
-VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053202.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:32] . 001-Би-2 - Я двигаюсь дальше
-[4:21] . 002-7б - Тост
-[3:00] . 003-Ночные снайперы - Дом стеной
-[3:13] . 004-Серьга - Батарейки сели(   Читать дальше...   )Жанр: rockПродолжительность: 9:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BF763C56CEA043F952F4ED880BA486857483E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848219   (1052783) от 16.01.2026
-
-VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Møxes - Carry Me Through the Night
-02 - Wicked Wenches - Love Won’t Be Rushed
-03 - Møxes - Shadows of Goodbye (1 Versions)
-04 - Wicked Wenches - Burn to Feel(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C374FAFA8FB917394C54944160C9146BDA6089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847645   (1052261) от 13.01.2026
-
-VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Møxes - Because You Stayed
-02 - Wicked Wenches - Wild Over You
-03 - Møxes - No Pillow But Your Name
-04 - Wicked Wenches - Still Alone Tonight(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6E9834E148C796F881A095DD71CF1184F7ACB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845711   (1050927) от 06.01.2026
-
-VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ария - Гордиев узел (5:15)
-02. Radio Tapok - Фрау чёрная смерть (3:37)
-03. Casual, Глобалис - Не жалей ни о чём (3:57)
-04. ГУДТАЙМС & Найк Борзов - Инопланетный гость (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 05:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
 ```
 
 https://mybot314.ru/tekegram_catalog/

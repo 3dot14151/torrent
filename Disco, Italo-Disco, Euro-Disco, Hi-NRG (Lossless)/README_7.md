@@ -1,3 +1,61 @@
+###  Публикация: 1505857   (802840) от 28.10.2021
+
+Hazell Dean - The Dean & Ware Collection (2CD) (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Pop, Dance-Pop, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judgement Day
+02. Nightlife
+03. Out of Control
+04. Whatever I Do (Wherever I Go)(   Читать дальше...   )Жанр: Euro-Disco, Pop, Dance-Pop, Hi-NRGПродолжительность: 02:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAB51D9C023D36EA45D7135A690B79155895076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506093   (801515) от 29.10.2021
+
+Beast In Black - Dark Connection (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, Power Metal>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blade Runner
+02. Bella Donna
+03. Highway To Mars
+04. Hardcore(   Читать дальше...   )Жанр: Disco, Power MetalПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597F3583B7D7AC2B7B160D40EFE8DA82AEF2ABBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121128   (801175) от 01.04.2017
 
 Eruption - Eruption (1977) Remastered, 2016, Big Break Records [FLAC|Lossless|image + .cue] <Disco>
@@ -684,64 +742,6 @@ Barry White - A Collection Of Great Songs (uy) Unofficial Release [APE|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F06ECB26A4B257DD4E8373BE10E43B1907428C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013029   (777914) от 03.05.2016
-
-Gilla - Dance SuperHits (1999) [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cat
-02. The Heat Is On
-03. Johnny
-04. Go Down Mainstreet(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22DCBA9520907D0630384A9BBDCE460903D4165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211220   (777725) от 06.03.2018
-
-VA - Disco 80's: Special Edition (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddy Huntington - Physical Attraction (4:22)
-02. Eighth Wonder - I'm Not Scared (10'' Remix) (5:42)
-03. Fancy - Moscow Is Calling (5:13)
-04. Italian Boys - Forever Lovers (3:54)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BCFDEB34E22C31939B8F9640E7AED3F0E7E197
 ```
 
 https://mybot314.ru/tekegram_catalog/

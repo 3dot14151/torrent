@@ -1,3 +1,61 @@
+###  Публикация: 1100729   (899370) от 04.02.2017
+
+VA - Let's Go Into Space (2012-2015) 4LP [MP3|320 Kbps] <Electronic, Cosmic Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный комплект официального издания сборников космического диско 70-80х годов от германской студии Private Records, выпущенных недавно на виниле.Список альбомов:
+2012 - Let's Go Into Space I
+2013 - Let's Go Into Space II
+2014 - Let's Go Into Space III(   Читать дальше...   )Жанр: Electronic, Cosmic DiscoПродолжительность: 02:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BB6DE268894B36BAF96A0B2FA30EC21EDAB6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370418   (897031) от 27.03.2020
+
+Branjo Sound - I Wanna Dance Bump (1978) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cock A Doodle Do (5:30)
+02. Thank You Baby (5:02)
+03. That's Good (4:21)
+04. I Wanna Dance Bump (4:08)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73C91F04E006F8DCCA52A7A3CF6993860362B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101239   (896150) от 06.02.2017
 
 VA - Italian Style: Everlasting Italo Dance Compilation Vol.6 (2017) [MP3|320 Kbps] <Italo Disco, Euro-Disco, Hi-NRG>
@@ -681,61 +739,6 @@ Guy De Lo And His Orchestra - The Pink Panther Discostar (1978) LP [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421365476D77162DF64A22B65D04430E223DC388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497542   (864945) от 22.09.2021
-
-Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay On The Line (4:20)
-02. Tonight Is The Night (5:02)
-03. Asi Como Asi (3:32)
-04. Little Maggie (3:56)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE3ECFD1B0C92A8A334898108CEC2B0DB9A91B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497473   (864877) от 22.09.2021
-
-Miko Vanilla - Vanilla (2021) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless LoveЖанр: DiscoПродолжительность: 01:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7889D9BE4AA6D79F642398662626857A736A77C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1091027   (944974) от 08.01.2017
+
+VA - Top 100 DJs Alive Sound (2017) [MP3|320 Kbps] <Tech Trance, Electro, Dutch, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944974.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmic Gate & JES - Fall Into You (Extended Mix) 6:34
+002. Andy Moor & Somna Feat. Amy Kirkpatrick - One Thing About You (Eximinds Remix) 5:40
+003. Raz Nitzan & Kate Louise Smith - This Time (Original Mix) 6:59
+004. Alex Leavon & Gemma Pavlovic - Counting Stars (Original Mix) 5:30(   Читать дальше...   )Жанр: Tech Trance, Electro, Dutch, ProgressiveПродолжительность: 08:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD87C9A90EAECA0F7291ED91437CF5935738BE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363102   (944932) от 26.02.2020
+
+VA - 135 Classic Soul Ballads (2020) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944932.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Luther Vandross  -  Any Love (Single Mix)
+002.  Peabo Bryson  -  Closer Than Close
+003.  Earth, Wind & Fire  -  That's The Way Of The World
+004.  The Isley Brothers  -  Between The Sheets(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 10:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE01F47CA3F69F90803E425B890846C2AD044F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363095   (944931) от 26.02.2020
+
+VA - Winter Bash: Mega Dance Hands Up Party (2020) [MP3|320 Kbps] <Dance House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944931.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Moam - Run With It
+002. Marwell - Jaipur (Radio Edit)
+003. Sunrider - Instant Moments
+004. Big Box - Nichtraucherzone(   Читать дальше...   )Жанр: Dance House, Tech HouseПродолжительность: 07:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284CD0617947AD77AF44750CB09FCD1C9016437F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091005   (944573) от 08.01.2017
 
 VA - 100 Physical Dreams (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -669,93 +756,6 @@ VA - Klubnaya Volna Vol.2 (2015) [MP3|320 кб/с] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C343D8CABBFECA016CC343CF9DDCC6A91DAB65E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983930   (942052) от 07.02.2016
-
-VA - Trance Desire Volume 61 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lange feat. Stine Grove - Crossroads (Original Mix) (03:44)
-02. Sied van Riel feat. Adina Butar - 8 Decades (Matt Davey Remix) (06:47)
-03. Andre Visior feat. Cathy Burton - Daylight (Original Mix) (06:51)
-04. Matt Eray feat. Claire Willis - A Milion Miles (Original Mix) (06:45)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74636DAB62615B0CB63B4DEA3943762FA7C5B9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363514   (941879) от 28.02.2020
-
-VA - Top50: Tracks Deep House Ver.18 (2020) [MP3|320 Kbps] <House, Deep House, Melodic-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilona Maras - Old Letters XIX (Original Mix) 6:54
-02. Abstraal - Massalia (Danito & Athina Remix) 7:52
-03. Nachap - Loom (THE WHite SHadow) (FR) Remix) 7:23
-04. MAAND & Strangerї - Last Day Breathing (Da Fresh Remix) 6:43(   Читать дальше...   )Жанр: House, Deep House, Melodic-House, Progressive, ElectronicПродолжительность: 05:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C190B8662DC69047BE7E77E1E35BDDE86E3FC8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091838   (941746) от 10.01.2017
-
-VA - Resident Advisor Top 50 Charted Tracks December 2016 (2017) [MP3|204-320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butch, C.Vogt - Bliss (Original Mix) 07:21
-02. Full Intention - Keep Pushing (Original Mix) 06:28
-03. DJ Koze - Driven (Original Mix) 06:39
-04. Pig&Dan - Chemistry (Original Mix) 08:16(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DEC81D39E9B98184661B4188DFAA5D85A90529
 ```
 
 https://mybot314.ru/tekegram_catalog/

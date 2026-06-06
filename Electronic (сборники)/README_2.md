@@ -1,3 +1,90 @@
+###  Публикация: 1437583   (1042024) от 05.01.2021
+
+VA - Metamorphosis: Psy Trance Set (2021) [MP3|320 Kbps] <Psy, Goa, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый потрясающий сборник музыки в стиле психоделического транса, в него вошли исключительно самые оригинальные и отборные треки. Каждая композиция содержит индивидуальную историю, собственную душу, а также индивидуальную оригинальность, которая придаёт своеобразный мистический настрой музыки.001. Fantazma - Forget The Pain
+002. Gms - Goa
+003. Wood Dragons - Occams Razor
+004. Zyrus 7 - Prophecy(   Читать дальше...   )Жанр: Psy, Goa, TranceПродолжительность: 12:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1929CA3F38244ADD7A962D46764A0C28D2442422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437509   (1041992) от 05.01.2021
+
+VA - Spacesynth Music Collection (Presents Elgujakviso) (2021) [MP3|320 Kbps] <SpaceSynth, SynthDisco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Spacehawk - Cybernoid
+002 Galaxy Hunter - Return From Orion (Instrumental Version)
+003 Bellatrix - Cosmodrome
+004 Cyber Space - Grains Of Energy(   Читать дальше...   )Жанр: SpaceSynth, SynthDiscoПродолжительность: 18:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BDDA4FBC13397A233F198C421676E18D65CF6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437768   (1041706) от 06.01.2021
+
+VA - Vocal Chillout (2021) [MP3|320 Kbps] <Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041706.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. PALASTIC, Youkii - I Care (2:44)
+002. Y.V.E. 48 - Holding On (2:38)
+003. NLSN, Lisa Rowe - Tattoo on My Face (Chill Edit) (2:33)
+004. Camishe, Max Oazo - Can't Get You Out of My Head (3:31)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 06:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7E5DECC94490EB6331F48609D83F98C00F03F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611115   (1041362) от 11.02.2023
 
 Davit Barqaia - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age>
@@ -658,93 +745,6 @@ VA - Beatport Progressive Trance: Sound pack #224 (2021) [MP3|320 Kbps] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D02E78000EB93DF364E448EF4BB6FEFC97170F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442071   (1036946) от 24.01.2021
-
-VA - Beatport Techno: Electro Sound Pack #223 (2021) [MP3|320 Kbps] <Techno, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техно с "глубоким" звуком - элементами реверберации, эмбиента и минимала в 223-м сборнике от Beatport. В Вашем распоряжении 120 треков современного техно минимала высокого качества круглосуточно!001. Ensor - Natural Disorder
-002. Pwcca - Die Fliege
-003. Pablo Rios - The Big Bang Teory
-004. Squeeze Dj - Fearless(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 12:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30F62BE2B98CE75DA44F6B3A7219D1F70F0A734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442076   (1036894) от 24.01.2021
-
-VA - Chillout Electronic: Relax Set (2021) [MP3|320 Kbps] <Chillout, Ambient, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спокойная умиротворяющая музыка поможет погрузиться в потаённый мир вашей души. Здесь собраны произведения, которые находят отклик в нашей душе. Не имеет значения кто вы и сколько вам лет, спокойная и атмосферная релакс музыка без слов способна оказать на вас благотворный эффект. Слушать хорошую музыку для души — это верный способ для отдыха и снятия душевного напряжения (   Читать дальше...   )001. DJ Biopic - Forgots To Chill
-002. Shandula - Feelings
-003. Franco De Marano - Margherita
-004. Nylonics - Mountain Break(   Читать дальше...   )Жанр: Chillout, Ambient, Chill HouseПродолжительность: 09:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580C3413313303F5C5C0FD2A3C949B8D5F9D2EAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442554   (1036626) от 25.01.2021
-
-VA - Beatport Electro Dance: Sound Pack #225 (2021) [MP3|320 Kbps] <EDM, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микс-сборник танцевальной музыки 225-го релиза от Beatport, разбавит Ваши серые будни и принесет частицу праздника. Треки микс-сборника характеризуются нестандартным подходом к исполнению, глубокой палитрой звучания и отличным настроем.001. Kid Massive - Feel Love (Original Mix)
-002. Simon Fava - What It Is About
-003. Turbotronic - Party Day
-004. Ever Est - Red Zone(   Читать дальше...   )Жанр: EDM, Club, DanceПродолжительность: 07:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6ABAB61E959D44524F66F5EED1BFD3A10A93DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

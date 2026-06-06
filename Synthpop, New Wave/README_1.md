@@ -1,3 +1,61 @@
+###  Публикация: 1107892   (864642) от 24.02.2017
+
+Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Manual 04:05
+02. Reader 04:05
+03. We Were Young 03:57
+04. Sun Flares 04:33(   Читать дальше...   )Жанр: Electropop, Synthwave, DreamwaveПродолжительность: 00:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376108   (862042) от 16.04.2020
+
+Pet Shop Boys - I Don't Wanna (2020) EP [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862042.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I don't wanna (radio edit) [3:20]
+ 2. New boy [4:11]
+ 3. I don't wanna (Mano Le Tough remix) [7:25]
+ 4. I don't wanna (David Jackson remix one) [6:19](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21A5AC5F71D63F6A3E8C010FC5B6C84478CB373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497989   (861251) от 24.09.2021
 
 New Arcades - In the Deepest of Dreams (2021) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
@@ -688,64 +746,6 @@ Testpattern - Apres-Midi (1982) Reissue CD, 1990, Yen Records [MP3|320 Kbps] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A15C000088FF5020069F58110C405C5C5782A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011417   (796662) от 27.04.2016
-
-Зодиак (Zodiac) - Pacific Time (2014) [MP3|320 кб/с] <Electronic, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Zodiac (04:11)
-02. Pacific Time (04:31)
-03. Disco In The Province (04:47)
-04. Distant Galaxy (05:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8FE80862DB5826289A34A6F7C4EC3591299B619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385795   (796648) от 26.05.2020
-
-Visage - 3 Albums (1980-1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visage - британская группа, одна из лидеров модно-музыкального движения новых романтиков начала 1980-х гг. Основанная в Лондоне Стивом Стрейнджем и Расти Иганом из The Rich Kids, Visage была чисто студийным проектом с участием музыкантов из Ultravox (Мидж Юр, Билли Карри), Magazine (Дейв Формула), Siouxsie and the Banshees (Джон Макгиох).Список альбомов:
-1980 - Visage
-1982 - The Anvil
-1984 - Beat Boy(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 02:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97D227F0F7578FCFFEF134AF34C7A4F35E2AEEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 964421   (282416) от 11.12.2015
+
+VA - Baby Its Cold Outside Christmas Love (2015) [MP3|320 кб/с]<Instrumental, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marian Aas Hansen - Baby it's Cold Outside
+02. Stine Hole Ulla - Шyeblikk
+03. Kjell Inge Torgersen - Song om jul
+04. Shackles - A Christmas Kiss With You(   Читать дальше...   )Жанр: Instrumental, Downtempo, ChilloutПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB023369522BD5EB88A11A5F0DABB943573AA1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082187   (280589) от 11.12.2016
 
 VA - Christmas Chilling Gifts (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -713,32 +742,6 @@ VA - Инструментальная музыка (2012) vol. № 45 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD32EA11D532784AE514F833AA9DDF5E5F91901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496428   (253473) от 16.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 40 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F9CF864B406E343819393A859CFC15F1B4394B
 ```
 
 https://mybot314.ru/tekegram_catalog/

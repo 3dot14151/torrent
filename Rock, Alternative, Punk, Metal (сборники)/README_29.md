@@ -1,3 +1,145 @@
+###  Публикация: 928384   (521753) от 17.08.2015
+
+Family Of The Year - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative, Indie Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Barn
+02. The Princess And The Pea (feat. Willy Mason)
+03. St. Croix
+04. In The End(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D017F17F20075D4C07BCFE4C9568F7B8823F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314031   (521419) от 12.07.2019
+
+VA - Tree Of Life: Rock Digest June (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Devon Church - A Wave On Land
+002. Ace Frehley - I Wanna Go Back
+003. Ken Hensley - Set Me Free
+004. The Hazytones - The Hand That Feeds(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 13:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3AD5EDA0372D7F6D11FE5D168112FAF53559EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928717   (521371) от 17.08.2015
+
+Rock Ballads - Collection (7CD) (1991-1997) [MP3|320 кб/с]<Rock, Art Rock, Soft Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - The Show Must Go On (04:29)
+02. Bryan Adams - Everything I Do (I Do It For You) (06:34)
+03. Elton John - Sorry Seems To Be The Hardest Word (03:48)
+04. Gary Moore - Still Got The Blues (06:09)(   Читать дальше...   )Жанр: Rock, Art Rock, Soft Rock, Pop RockПродолжительность: 08:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B14BE47583E4D03C05CB2BC78B723025D78A444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 228331   (521299) от 19.08.2010
+
+VA - Лучшие хиты НАШЕ РАДИО-3 (2010) [MP3|128 kbps]<pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: popПродолжительность: 12:31:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315350   (513898) от 19.07.2019
+
+VA - Sin Compromiso: Indie Punk Rock (2019) [MP3|320 Kbps] <Indi, Punk Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513898.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Agar Agar - Lost Dog
+002. Lawrence Arabia - Everything's Minimal
+003. Winter - Everything
+004. Tim Cohen - I Don't Wear Gold(   Читать дальше...   )Жанр: Indi, Punk Rock, AlternativeПродолжительность: 11:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D3408D1DA002118115A1AE9D1B60C8A47F9B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314797   (513810) от 19.07.2019
 
 VA - Punk Rock Favourites (2019) [MP3|320 Kbps] <Punk Rock, Alternative>
@@ -609,154 +751,6 @@ VA - Beyond The Matrix: Hard Masterpieces (2017) [MP3|320 Kbps] <Rock, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D476ECEA71C5E3E4F43AE2BF0E453E03DDF48DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244485   (479821) от 02.09.2018
-
-VA - 101 Hits - Keep On Running (5CD) (2018) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479821.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-
-01. Avicii - Wake Me Up
-02. Kungs Vs. Cookin' On 3 Burners - This Girl(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:16:45
-
-01. White Lies - To Lose My Life
-02. Orson - No Tomorrow(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F4D06C18E782517B46C791A2618112C58AD360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319736   (479335) от 14.08.2019
-
-VA - Purgatory: Metal Compilation (2019) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479335.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Negacy - Black Messiah
-002. Sargeist - Unbound
-003. Black Lotus - The Swamp
-004. I Killed Anubis - Look At Yourself(   Читать дальше...   )Жанр: MetalПродолжительность: 12:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3A13DFF8A2621432212C9961EB78BE46B60A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782904   (476944) от 20.09.2015
-
-VA - Metal Goes Acoustic (2014-2015) [MP3 l 192-320 кб/с]<Acoustic Metal>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of Lords - Precious Metal (Acoustic) [00:04:40]
-02. Last Autumn's Dream - I've Fallen Into You (Acoustic) [00:03:25]
-03. Brazen Abbot - Love Is On Our Side (Acoustic) [00:05:11]
-04. Sonic Station - I Wish I Could Lie (Acoustic) [00:04:04](   Читать дальше...   )Жанр: Acoustic MetalПродолжительность: 21:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8803BB8E8F130C05A9F9835A7CE273001ECC660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566646   (476403) от 01.08.2022
-
-VA - Impressive Sound 2022.1: Volume III (2022) Compilation [MP3|320 Kbps] <Post-metal, post-rock, sludge metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aequorea - Talus
-02. Morrow - Rejoice This Quiet Earth
-03. Mt. Echo - Automaton
-04. Point Mort - Pretoria…(   Читать дальше...   )Жанр: Post-metal, post-rock, sludge metalПродолжительность: 01:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772D392AB77009FCCD4D26F140F05091B6124571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566638   (476397) от 01.08.2022
-
-VA - Impressive Sound 2022.1: Volume II (2022) Compilation [MP3|320 Kbps] <Technical death metal, progressive death metal, progressive black metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arkaik - The Orphion Descent
-02. Hellbore - All Men Are Created Evil
-03. Brood Of Hatred - Self-Destruction
-04. IATT - Ouroboros(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metalПродолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313B25290483F2B6B43BCA32A88A3FE01F221F55
 ```
 
 https://mybot314.ru/tekegram_catalog/

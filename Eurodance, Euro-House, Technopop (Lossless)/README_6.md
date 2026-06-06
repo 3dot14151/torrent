@@ -1,3 +1,148 @@
+###  Публикация: 1769221   (32850) от 27.12.2024
+
+VA - Happy New Year Party 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - Paradise (3:07)
+02. MaxRiven - Loveparade (2:25)
+03. Rene Rodrigezz,Nico Roschnai & Miguel Lemos - Call It Love (2:31)
+04. Teknova - Voices (2:07)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12BC85A77578ABEB1225A04144D4468C75E5301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769218   (32809) от 27.12.2024
+
+VA - Happy New Year 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coldplay - feelslikeimfallinginlove (3:58)
+02. Benson Boone - Beautiful Things (3:01)
+03. Charli xcx - Apple (2:32)
+04. David Guetta & Bebe Rexha - I’m Good (Blue) (2:56)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 02:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C70847421126E876F53759194C0AEAF0BF9752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770409   (32288) от 01.01.2025
+
+Gigi D'Agostino, Luca Noise - Total Eclipse (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, Dance, EuroDance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Total Eclipse (Totalmente GIGI DAG & LUC ON Mix) [2:51]
+02 - Joyful (Strong And Happy GIGI DAG & LUC ON Mix) [4:44]
+03 - Sound of Love (Strong And Happy GIGI DAG & LUC ON Mix) [4:36]
+04 - Total Eclipse (Different GIGI DAG & LUC ON Instrumental Mix) [4:13](   Читать дальше...   )Жанр: Italo Dance, Dance, EuroDanceПродолжительность: 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01150A83FDFFC2B5C81856F8947283D5AAB90EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770685   (32010) от 04.01.2025
+
+Gigi D'Agostino - Gin Lemon E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, Dance, EuroDance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gin Tonic [8:47]
+02 - Psicadelica [6:33]
+03 - All In One Night [8:41]
+04 - Wondering Soul [7:15](   Читать дальше...   )Жанр: Italo Dance, Dance, EuroDanceПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF933113ACF59F306665BC01E7F88C29FB6A936A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791626   (21326) от 15.04.2025
+
+Don Amore - Memories of Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco, Synth-Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Only Want You (Intro Version) [3:01]
+02 - Long Ago [7:10]
+03 - Don't Leave Me Tonight [6:06]
+04 - In Your Eyes [6:32](   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 01:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7516C94A306B82F4DA9F4C4475532016655522A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794419   (19859) от 29.04.2025
 
 Corona - The Rhythm Of The Night (1995) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro House>

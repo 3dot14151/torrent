@@ -1,3 +1,352 @@
+###  Публикация: 1211449   (777205) от 08.03.2018
+
+группа Запад - Холод в моей душе… (1999) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не остановить
+02. Холод в моей душе
+03. Может быть стать нам ближе?
+04. Пустой вокзал(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5D7EDB90733F59F5A369132252DC3FBC51D798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211636   (777153) от 08.03.2018
+
+Андрей Губин - Всегда с тобой (2002) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танцы
+02. Будь со мной
+03. Я всегда с тобой
+04. Крошка(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0033FD476F947C64EDCA8E557F0A8092A4E1A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211934   (776907) от 09.03.2018
+
+Girls Aloud - What Will The Neighbours Say? (2004) Polydor [MP3|320 Kbps] <Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776907.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girls Aloud» - очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars».
+
+Самая младшая из девчонок, Надин (   Читать дальше...   )01. The Show 3:38
+02. Love Machine 3:27
+03. I'll Stand By You 3:45
+04. Jump 3:41(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A11E1419EA5F160F56703C993629A2200F565D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211953   (776902) от 09.03.2018
+
+Girls Aloud - Chemistry (2005) Polydor, Christmas Edition [MP3|320 Kbps] <Pop, Electro, Synth-Pop, Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776902.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01. I Wish It Could Be Christmas Everyday 4:01
+02. I Wanna Kiss You So (Christmas In A Nutshell) 3:36
+03. Jingle Bell Rock 1:57
+04. Not Tonight Santa 2:42(   Читать дальше...   )Жанр: Pop, Electro, Synth-Pop, Ballad, DiscoПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DA99A6BE88F74768609CB6130BEF72FE34C604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211957   (776901) от 09.03.2018
+
+Girls Aloud - Tangled Up (2007) Fascination, Polydor [MP3|320 Kbps] <Pop, Drum n Bass, Synth-Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776901.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01. Call The Shots 3:45
+02. Close To Love 3:53
+03. Sexy! No No No... 3:18
+04. Girl Overboard 4:11(   Читать дальше...   )Жанр: Pop, Drum n Bass, Synth-Pop, Euro HouseПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7BE478C19B63FD55928DA76BA90A688F07CC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211892   (776865) от 09.03.2018
+
+VA - Time For A Kiss (2CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Kiss (2:25)
+02. Tony Bennett - Kiss You (2:57)
+03. Billie Holiday - Prelude To A Kiss (5:38 )
+04. Vic Damone - We Kiss In A Shadow (4:01)(   Читать дальше...   )Жанр: Pop, OldiesПродолжительность: 01:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FF659C03A2B188AB3063693781D240932D0ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014104   (776816) от 06.05.2016
+
+Giorgio Moroder - Schlagermoroder, Vol. 1-2 (1965-1976) 4CD (2013) [MP3|320 кб/с] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раннее, малоизвестное творчество начинающего мастера Giorgio Moroder на четырех CD. Собрано и выпущено совместно в UK & Europe.01. Bla Bla Diddly   (2:25)
+02. How Much Longer Must I Wait   (2:41)
+03. Stop   (2:33)
+04. Believe In Me   (2:30)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 04:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC9E3EB7C8F163DDCD8DFF6100EFC86BBADEF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014355   (776490) от 07.05.2016
+
+Steve Bender - We've Gotta Get Out Of This Place (1978) [MP3|320 кб/с] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий певец, композитор, автор песен и музыкальный продюсер (1942 - 2006 гг.). Альбом выпущен за год до создания группы Чингиз Хан (Dschinghis Khan), где Стив Бендер стал больше известен как наголо остриженный участник.01. We've Gotta Get Out Of This Place   (4:51)
+02. Good Lovin', Good Feelin'   (4:47)
+03. The Final Thing   (5:40)
+04. Love Keeps Growin' On   (5:52)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46501A60856AE45CA701820E795FD057705E3E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212026   (776472) от 10.03.2018
+
+Nadia Cassini - 3 Studio Albums (1978-1985) LP Discography [MP3|320 Kbps] <Electronic, Disco, Italo-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надя Кассини (итал. Nadia Cassini род. 2 января, 1949, Вудсток, США) - итало-американская актриса, певица и модель. Известна благодаря ролям в итальянских эротических комедиях 1970-1980 годов. Очень рано ушла из родительского дома. Работала певицей в ночном клубе, хористкой, была моделью. Близкие отношения связывали Надю Кассини с известным писателем Жоржем Сименоном. (   Читать дальше...   )Список альбомов:
+1978 - Encounters Of A Loving Kind
+1983 - Get Ready
+1985 - Dreams(   Читать дальше...   )Жанр: Electronic, Disco, Italo-Disco, Hi NRGПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A8315782A386797E585789CE37DFA13737061A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212152   (776468) от 10.03.2018
+
+Гоша Куценко - Ду это! (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Капли (feat. Ёлка)
+02. Солнце (feat. Анжелика Варум)
+03. Люди летят (feat. Полина Гагарина)
+04. ONE/TWO (feat. IOWA)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBAF7ECC60019E4C863747E46A7355FCFF4A9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014563   (776439) от 07.05.2016
+
+Trax - 2 Albums (1977, 1978) [MP3|320 кб/с] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_776439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совместная работа Keith Forsey (барабанщик, продюсер и композитор), Pete Bellotte (автор текстов  и продюсер, особенно для  Donna Summer ), известных своей работой при Giorgio Moroder на его студии Musicland в Мюнхене. Последний же, выступил в роли "серого кардинала", дав дорогу друзьям, скрыв свое участие в "исполнителях"  этих альбомов, но не скрыв (   Читать дальше...   )Список альбомов:
+01. 1977 - Watch Out!
+02. 1978 - Dancing In The StreetЖанр: Electronic, DiscoПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC163D19D6A80FFF32FB59A8D67A95EF8ED856EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014306   (776331) от 07.05.2016
+
+Любэ - Рассея (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. От Волги До Енисея
+02. Русские
+03. Батька Махно
+04. Ясный Сокол(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0079D15F42306778E2E3E4B501EAC96921E9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014757   (776147) от 08.05.2016
 
 VA - The World Of Italo Pop Platinum (Special Edition For San Remo-50th) (2002) 4CD [MP3|320 кб/с] <Italo-Pop>
@@ -400,354 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2308F92021100B93A5392016AA1C91A89DCBBFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015037   (775401) от 09.05.2016
-
-VA - EDM Megamix (2016) [MP3|320 кб/с] <Dance, Eurodance, Club House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - EDM Megamix 2016 DJ Mix (XL Version)
-02. DJ Mix - EDM Megamix 2016 DJ Mix (Xxxl Version)
-03. Clubaccess - Danza (Radio Version)
-04. Clubcontrol - House Arrest (Radio Version)(   Читать дальше...   )Жанр: Dance, Eurodance, Club HouseПродолжительность: 04:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CD974309B0B5ED1820E3FA16E8A07FD744B6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212815   (775187) от 13.03.2018
-
-Boris Zhivago - Collection (2013, 2014, 2018) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Life (7:22)
-02. Rainy Day (6:29)
-03. In A World Of Fantasy (8:59)
-04. In The Streets Of Moscow (6:43)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi NRGПродолжительность: 03:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2107246E2E6ED5867EC7BC9E550A2FCE090E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212614   (775183) от 13.03.2018
-
-VA - Indie Dance and Nu Disco Tales (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Indie Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Feindrehstar – Dirty Stomping 04:29
-2. Jewmanji – Clearing Crews 06:35
-3. Marian – For You 04:08
-4. Omar Gharbi – Lost In Aegean (Stan Kolev remix) 06:51(   Читать дальше...   )Жанр: Nu Disco, Indie DanceПродолжительность: 02:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DE1A41C25E160719AD89F7271670E36C1CD4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277588   (775156) от 22.01.2019
-
-Dave Thomas Junior - Echo (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - If Things Had Gone Our Way
-02 - Double Down
-03 - Let Me Down Easy
-04 - When Does It Get Easier(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7FEB72B2B698B86934D09589D4174B26656304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277540   (775102) от 22.01.2019
-
-Milica Pavlovic - Zauvek (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hej Zeno
-02. Da Me Volis
-03. Zauvek
-04. Tako Mi I Treba(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330DE547F7C1A758DB266F18199EC3ACB2A55DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277579   (775090) от 22.01.2019
-
-Подиум - Любовь зла (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На прокат
-02. Любовь зла
-03. Непогода
-04. Качели(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CBC3980F28BDAAA042649A4FDBDA5554025FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212697   (775037) от 13.03.2018
-
-VA - #Dance 2018: Club & Dance News Vol.4 (2018) [MP3|320 Kbps] <Dance, Pop, House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Derulo – Tip Toe (feat. French Montana) (03:07)
-02. Martin Garrix & David Guetta – So Far Away (Bad Decisions Remix) (04:06)
-03. Lea – Leiser (03:26)
-04. Nico Santos – Rooftop (03:14)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 02:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DBF8D4170D190D939BC1B275B9EB4799AAA0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212682   (775035) от 13.03.2018
-
-VA - 90s Dance Hits Vol.1 (2018) [MP3|320 Kbps] <Eurodance, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Haddaway  -  What Is Love (7' Mix)  4:30
-02.  Technotronic  -  Pump Up The Jam (Radio Edit)  3:37
-03.  Gigi D'Agostino  -  La Passion (New Radio Cut)  3:02
-04.  Eiffel 65  -  Blue (Da Ba Dee) (DJ Ponte Ice Pop Radio)  4:44(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 02:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7691CC16A6F504F67C13EB79F3C5B6DBA6DB0635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015462   (774834) от 10.05.2016
-
-Chyp-Notic - 2 Albums, 4 Singles & EPs (1990 - 2015) [MP3|320 кб/с] <Electronic, Synth-pop, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing compares 2 U   (4:53)
-02. Don't play my song   (4:17)
-03. Free   (4:33)
-04. Love reaction   (3:56)(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 02:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506D35B69BDA925F8A02D3D94C5CD8DFC34F3E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015400   (774832) от 10.05.2016
-
-Город 312 - Обернись (2007) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Раскаленное солнце (3:48)
-02. Город-точка (3:20)
-03. Девочка, которая хотела счастья (3:32)
-04. Космос (3:17)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D0CE2FA5263DA96A76FDD57CB5E14CDB599154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277937   (774321) от 23.01.2019
-
-Boulevard des Airs - Je Me Dis Que Toi Aussi (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je me dis que toi aussi
-02. Tout le temps
-03. Comment ca tue
-04. Si la vie avance(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82C9DF210B594CFCA3A7662DC34172C125F9C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277924   (774310) от 23.01.2019
-
-VA - Space Oddities (2016) Studio Ganaro (1972-1982) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Roger, Nino Nardini - Expectation (1:55)
-02. Cecil Leuter - Pop Electronique No. 1 (2:27)
-03. Roger Roger - Sound Industrial No. 2 (2:03)
-04. Eddie Warner - Shut Up (2:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616F253B6D87E50FD3696D0F5BBA33BC01723BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

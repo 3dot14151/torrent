@@ -1,3 +1,88 @@
+###  Публикация: 1359955   (242786) от 15.02.2020
+
+VA - Moods: A World Of Emotions (2014) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clannad - Theme From Harry's Game (2:30)
+02. Enigma - Return To Innocence (4:09)
+03. Mike Oldfield - Tubular Bells (4:16)
+04. Ennio Morricone & His Orchestra - Chi Mai (5:07)(   Читать дальше...   )Жанр: New Age, Modern Classical, InstrumentalПродолжительность: 02:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE657B56AE25E4C9E354515B8637D40E5E1E251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641485   (235970) от 25.06.2023
+
+Dr. Jeffrey Thompson - Creative Mind System 2.0 (2004) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creative Insight
+02. Inner GeniusЖанр: Ambient, Relax, HealingПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624F922AD06292364CF05F7A264C6B85DBD6F0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279928   (234170) от 20.05.2022
+
+Vangelis - Nocturne (The Piano Album) (2019) Decca [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Promenade (5:51)
+ 02. To The Unknown Man (5:15)
+ 03. Movement 9, Mythodea (3:49)
+ 04. Moonlight Reflections (3:11)(   Читать дальше...   )Жанр: Electronic, New Age, ClassicalПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EA1555EE110D1A8C0965206D087FA322C16AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278756   (234118) от 20.05.2022
 
 Vangelis - Nocturne (2019) [FLAC|Lossless|WEB-24Bit] <New Age, Classical Crossover>
@@ -656,93 +741,6 @@ Amethystium - Aurorae (2012) EP [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F4E016ADE73AEEBC1FDE0AA5903A0978241243C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638591   (211916) от 09.06.2023
-
-Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] <Mantra>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Govindam
-02. Ishvara Lila Yitellam
-03. Charana Kamala Me
-04. Shiva Shambo(   Читать дальше...   )Жанр: MantraПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07023341DC1D5FE05F4A06D54C79FEF0AD9EE57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641449   (210886) от 22.06.2023
-
-Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (7:20)
- 02. Calmness (6:24)
- 03. Transformation (8:13)
- 04. Drifting (13:49)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D091C13A1D1150C61BDED10D5B22895DAB5877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645059   (209317) от 09.07.2023
-
-VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <Instrumental, Relax, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подводный мир (1:06)
-02. Дождь в лесу (1:21)
-03. Возле маленького ручейка (6:51)
-04. Рассвет на озере (6:05)(   Читать дальше...   )Жанр: Instrumental, Relax, ClassicalПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 798238   (861906) от 25.02.2017
+
+ArsMagnA: Ariabl'eyeS | -LostFairy- | Seraph - 22 альбома (2011-2016) [FLAC|Lossless|tracks] <Symphonic Rock, Gothic>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2016.04.24 (ARS-027) Ariabl'eyeS — 残響のコフィン (M3-37)
+2016.10.30 (ARS-028) -LostFairy- — 光と闇のフラグメント (M3-38)
+2016.10.30 (ARS-029) Ariabl'eyeS — 終劇のロマネスク (M3-38)Тип издания: DoujinЖанр: Symphonic RockПродолжительность: 00:09:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D0F926573577727DE0BE6B58D939C10C402680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874873   (860913) от 04.03.2015
 
 Yoshio Kimura - Romantic Tunes Collection (2012) 2CD [FLAC|Lossless]<Guitar, Instrumental>
@@ -709,35 +738,6 @@ Serenity in Murder - The Eclipse (2017) [FLAC|Lossless|image + .cue] <Melodic De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AB77A55302731098A2AFC5F4C148032C6277252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008070   (817307) от 17.04.2016
-
-Gus Dharma - Bali Meets China (2016) [MP3|320 кб/с] <World Music, Relax, Ethnic Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time in China
-02. China Doll
-03. Long Road to China
-04. Rise and Fall(   Читать дальше...   )Жанр: World Music, Relax, Ethnic InstrumentalПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BD110F648C6894C7F03F8437F1CC2E4BC75AB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

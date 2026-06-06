@@ -1,32 +1,3 @@
-###  Публикация: 1855375   (1057911) от 22.02.2026
-
-igo - 3 Albums (2012-2026) AI-generated content [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Без тебя...
-2025 - Театр теней
-2026 - Alter EgoЖанр: Heavy MetalПродолжительность: 3 CD, 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9683B376C91C1B54908723EA160802F79A2FB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853601   (1057178) от 17.02.2026
 
 Валя Папиросов - Папиросов..Валя (2005) [MP3|256 Kbps] <Pop-Rock>
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1055822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1055822.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1055237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1055237.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1053485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1053485.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ polnalyubvi - Песнь Нимфеи (2026) [MP3|320 Kbps] <Alternative Rock, I
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1053483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1053483.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1050718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1050718.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1050704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1050704.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111BDB7A6F6A5A5C94901A732320F8E9A3C933EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843753   (1049505) от 21.12.2025
+
+Ананасов и Ко - Знак солидарности (2025) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1049505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. А зори здесь тихие...
+2. Амундсен
+3. Камикадзе (попадают в рай)
+4. Альенде(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67589D045573D647EADA6CCDDB7401C775025B16
 ```
 
 https://mybot314.ru/tekegram_catalog/

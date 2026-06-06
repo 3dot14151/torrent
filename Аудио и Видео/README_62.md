@@ -1,3 +1,61 @@
+###  Публикация: 1507111   (798784) от 03.11.2021
+
+VA - Strasbourg Orange: Urban Chillout Music (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airily - That's What I Want (Seaside Remix) (4:19)
+02. Ibiza Chilled - Sunset Salinas (Original Mix) (7:06)
+03. Living Room - Slow Motion Sunset (Original Mix) (5:22)
+04. Deeparture - Dream On (Original Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D258BC3B75E92A7BDEA8D5D1C2B19E55CBD43C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507097   (798783) от 03.11.2021
+
+VA - Florence Orange: Urban Chillout Music (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giacomo Bondi - Beleza Pura (Instrumental) (5:52)
+02. Marga Sol - Temple of Love (Original Mix) (6:43)
+03. Francesca Gramegna - What Is Love (3:38)
+04. Brass - Wind of Summer (3:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1F2606A49A7682D662009DC39A6D993C35DB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507154   (798763) от 03.11.2021
 
 VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 17 (2020) [AAC|~306 Kbps] <Downtempo, Lounge, Jazz>
@@ -684,64 +742,6 @@ VA - Luxury Buddha Lounge, Vol. 1 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E055005559B152589A4F9A32E47D7817768B5C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507907   (798161) от 06.11.2021
-
-VA - Café De La Cita, Vol. 4 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2020) [AAC|~288 Kbps] <Lounge, Chill Out, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightview - Cityscape (Lounge Sound Mix) (3:28)
-02. Soundset City - Break in the City (3:43)
-03. CiYou - I'm Driving (3:21)
-04. Nightzoom - Cool Mixture (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820B5BFE78DD68007B077947A1D35A1B885B3150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507904   (798155) от 06.11.2021
-
-VA - Café De La Cita, Vol. 2 (Jazzy Bar Lounge & Chill out Tunes to Relax) (2018) [AAC|~304 Kbps] <Lounge, Chill Out, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Dulcimers Vibes (Chillout Mix) (4:10)
-02. Jean Mare - Down to Underground (Nu Jazzy Smooth Mix) (3:51)
-03. Bernon - Crying (Deep Drive Mix) (5:27)
-04. Nightbar Jazz - Late Night (Drum & Bass Downbeat Mix) (3:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzПродолжительность: 01:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2435EB6A80BF2A5CAFB0430418CED01D65EFB55A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1414441   (385622) от 08.10.2020
+
+VA - The Sacred Rage (2020) Morphine Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Contemporary, Techno, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Kameel Farah and Thomas Brinkmann - Sans Titre (06:40)
+ 02. "A" trio - Over (07:06)
+ 03. Monolake - Beirut (07:53)
+ 04. Irena and Vojtech Havlovi - Radek 2 (06:13)(   Читать дальше...   )Жанр: Experimental, Contemporary, Techno, AmbientПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B9A8590666C2B96F2F5C6441C7663424920B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414222   (385621) от 08.10.2020
+
+Tomas Senkyrik - Fond (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electrocoustic, Field Recording>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hana 04:56
+2. Eugen 06:46
+3. Fond 11:28
+4. Tata 04:14Жанр: Ambient, Electrocoustic, Field RecordingПродолжительность: 00:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18ABD62DB079FDEC45E09A0A4A067E80467E7BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414455   (385617) от 08.10.2020
+
+Sciama - Illusion of Separation (2020) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385617.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Selui	8:37
+2	Unfolding Self	8:00
+3	Somnium	5:12
+4	Illusion Of Separation	6:40(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092613C8B3B39FD72C68E8F5FFFBE79EF9FE4EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414656   (383634) от 09.10.2020
 
 Sciama - Broken Circle (2019) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Drone>
@@ -653,93 +740,6 @@ VA - Summer Tales EP (2020) 20:21 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55B38A193030214F6870332A57F7B97E8836F797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180152   (342807) от 03.11.2017
-
-Ghost And Tape - Vár (2017) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sprout (03:40)
-02. Eostre (05:03)
-03. Monarch (06:41)
-04. Hatch (02:50)(   Читать дальше...   )Жанр: Ambient, Minimal, Drone, ExperimentalПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4721A9421EB76EE0E1090FDC6BCB95C7DAE74D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180347   (342649) от 03.11.2017
-
-The Seven Fields Of Aphelion - Discography 2 Releases (2010-2017) Graveface Records, Rad Cult [FLAC|Lossless|tracks+.cue] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divining (Naming Of The Lost) (04:51)
- 02. Horizon Obscure (02:01)
- 03. The Crossing (02:25)
- 04. Drift (Losing Light) (02:39)(   Читать дальше...   )Тип издания: CDЖанр: AmbientПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B87157FD109E7403E1494173F5EA85103B5A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419221   (342194) от 27.10.2020
-
-David Moufang - Solitaire (1995) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <Ambient, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In/Out (15:59)
- 02. Mad Mood (07:23)
- 03. Damaskus - Dakar (08:57)
- 04. Indian Mantra (04:58)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266198DBE541CC8E13E83916E67C386011B48B51
 ```
 
 https://mybot314.ru/tekegram_catalog/

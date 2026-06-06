@@ -1,22 +1,25 @@
-###  Публикация: 535592   (514714) от 18.08.2012
+###  Публикация: 1241555   (519292) от 18.08.2018
 
-Mixed Wallpapers (15.08.12) [Wallpapers]
+VA - Wearmada Ibiza Pool Party (Extended Versions) (2018) [MP3|320 Kbps] <House, ElectroHouse,Trance, Dance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Loud Luxury feat. Brando - Body (Orjan Nilsen Extended Remix) 4:44
+02. Armin Van Buuren - Blah Blah Blah (Bassjackers Extended Remix) 4:18
+03. Afrojack vs. Jewelz & Sparks - One More Day (Nicky Romero Extended Remix) 5:22
+04. Lost Frequencies feat. James Blunt - Melody (ANGEMI Extended Remix) 4:21(   Читать дальше...   )Жанр: House, ElectroHouse,Trance, DanceПродолжительность: 02:09:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01FC3A58614F3C5E2BE5FF54377F868716E328CA
+magnet:?xt=urn:btih:8B49158F0A3D8A9BB48C4308CFEA31CB4AC08D09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 535702   (514713) от 18.08.2012
+###  Публикация: 1241703   (519291) от 18.08.2018
 
-Computer Desktop Wallpapers Collection (16.08.12) [Wallpapers]
+MIKA - The Boy Who Knew Too Much (2009) [MP3|320 Kbps] <Pop>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. We Are Golden (3:56)
+02. Blame It On The Girls (3:35)
+03. Rain (3:44)
+04. Dr. John (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC6AB750EB3137978BD0B8E818E502A3D9DE2F2D
+magnet:?xt=urn:btih:13C9525EB5E58F7F96D04AED806540EB1E766578
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 535706   (514712) от 18.08.2012
+###  Публикация: 1241508   (519290) от 18.08.2018
 
-Landscapes HD Wallpapers (16.08.12) [Wallpapers]
+VA - Markus Schulz - Global DJ Broadcast: Top 20 August (2018) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_519290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01.Rex Mundi - Opera Of Northern Ocean (Nifra Extended Remix)
+02.Anske & Victoriya - Love Won't End (Extended Mix)
+03.Davey Asprey - Moments (Extended Mix)
+04.Gai Barone - Shiny (Danny Eaton Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89B81169ED787BE496DB55BEB1B8C7DE0CD3BC5E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 535594   (514711) от 18.08.2012
+###  Публикация: 1241739   (519289) от 18.08.2018
 
-Landscapes HD Wallpapers (15.08.12) [Wallpapers]
+Футбол. Российская Премьер-Лига. Чемпионат России 2018 - 2019. Обзор матчей 2-го тура (2018) IPTV [H.264/1080p-LQ]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_519289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Российская Премьер-Лига. Чемпионат России по футболу 2018-2019 года.
+Обзор матчей 2-го тура:
+03.08.2018 — Динамо М – Рубин
+04.08.2018 — Урал – Краснодар(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:56:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F384A4068DD78E9E2D86337A8A02BFD60AFD36AF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 535591   (514710) от 18.08.2012
+###  Публикация: 1241518   (519288) от 18.08.2018
 
-Best HD Wallpapers Pack (15.08.12) [Wallpapers]
+VA - Ferry Corsten Presents Corsten's Countdown August (2018) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_519288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01 Ferry Corsten - I Love You (Won't Give It Up) (Extended Mix)
+02 Will Atkinson - Seventh Heaven (Extended Mix)
+03 Robert Nickson - It's Always You (Extended Mix)
+04 Dennis Sheperd & Bjorn Akesson - Memoria(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA8BA92969319C902761A280FFA3DAB688FBF23F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 535703   (514709) от 18.08.2012
+###  Публикация: 1241591   (519287) от 18.08.2018
 
-Best HD Wallpapers Pack (16.08.12) [Wallpapers]
+VA - German Top 50 Official Dance Charts 17.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_519287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Sean Finn;Guru Josh;Sean Finn x Guru Josh - Infinity 2018 (Extended Mix)
+02. Dynoro & Gigi D'Agostino - In My Mind
+03. Shakedown - At Night (Purple Disco Machine Remix)
+04. Oliver Heldens;Sidney Samson - Riverside 2099(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:13:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B461470955C9BA05AE9F701BB2917118FEAD8F73
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 535769   (514707) от 18.08.2012
+###  Публикация: 1241658   (519286) от 18.08.2018
 
-Best HD Wallpapers Pack (17.08.12) [Wallpapers]
+Архимандрит Кирилл Костопулос | Папство - это ересь (2003) [DJVU]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Предложенное вашему вниманию издание представляет собой рассуждения известного греческого богослова архимандрита Кирилла (Костопулоса) об основных экклезиологических и догматических расхождениях между Православной Церковью и Римо-католицизмом. Разумеется, эта проблематика не является чем-то новым для русской богословской мысли: она более чем достаточно была освещена (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0630BEC8F601DEB836CBAD1A2EBE339EA2BC595C
+magnet:?xt=urn:btih:7F504AABA47677166C89D1A86F5AC6C20A5135FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 535772   (514706) от 18.08.2012
+###  Публикация: 1241405   (519285) от 18.08.2018
 
-Design and interior of the wallpaper (17.08.12) [Wallpapers]
+Hill Country Revue - H C R III (2018) [MP3|320 Kbps] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Intro in D (01:26)
+02. Feel it (02:58)
+03. We don't care (03:08)
+04. Feeling the blues (03:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3155E548D5005E22E8833F401378EE678F4DA8E6
+magnet:?xt=urn:btih:BECC675A3706648D4036B1E7E8D55F15C4E19535
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 536273   (514705) от 18.08.2012
+###  Публикация: 1241676   (519284) от 18.08.2018
 
-Журнал | Viva! № 17(204) (Украина) [15 августа 2012] [PDF]
+VA - Ello (2016) aliēnus [FLAC|Lossless|tracks+.cue] <Techno, Dub Techno, Deep Techno>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал о знаменитых и популярных людях. На страницах издания вы найдете главные события в жизни звезд, материалы, которые раскроют секреты красоты известных соблазнительниц и очаровательных мужчин, чей стиль стал притчей во языцех, яркие и красочные фотографии моды, статьи о модных тенденциях сезона.Формат: PDF
+01. Wil - Vatnajokull (64°24′N 16°48′O) (06:35)
+ 02. Sraunus - ien ma (09:07)
+ 03. Dubatech - Circa (06:35)
+ 04. Regulus Rex - Schwarzwasser (09:43)(   Читать дальше...   )Жанр: Techno, Dub Techno, Deep TechnoПродолжительность: 01:13:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16092F456353EB3207F9E9F7BC8BE42AD4C8DC5E
+magnet:?xt=urn:btih:058688B353A824FA2502BFF897854CD03B528E6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,103 +256,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 535590   (514703) от 18.08.2012
+###  Публикация: 1241604   (519283) от 18.08.2018
 
-Computer Desktop Wallpapers Collection (15.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3EAFF900BCF346187126713DC45AAC318404F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535707   (514701) от 18.08.2012
-
-Design and interior of the wallpaper (16.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDECD875B94FE59A7342CCF70F7B7C2C1BE9C14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535827   (514695) от 18.08.2012
-
-[Wallpapers] Мотоциклы Indian
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514695.jpg" />
-</div>
-
-
-###  Подробнее
-
-История компании Индиан началась летом 1900 года на велотреке а американской «глубинке». Партнеры решили дать своему детищу самое что ни на есть американское название - Indian, то есть «индеец».
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB69726C751367C78A685D760C3F4C7CFC86A7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535768   (514693) от 18.08.2012
-
-Computer Desktop Wallpapers Collection (17.08.12) [Wallpapers]
+Обои - Wallpapers Full HD / Кошачьи #19 [JPG]
 
 >>Графика, Арт, Разное
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B6E5D52078C6ECE2D5E93117C3F80EB04A64C0F
+magnet:?xt=urn:btih:7859EED4C11C2CC4798EBFD59E02721B2AF0A5FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,28 +282,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561543   (514685) от 05.07.2022
+###  Публикация: 1241613   (519282) от 18.08.2018
 
-Backfire - The Two of Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+VA - The Official UK Top 40 Singles Chart 17.08.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Ezra - Shotgun (03:22)
+02. Drake - In My Feelings (03:39)
+03. DJ Khaled feat. Justin Bieber, Chance the Rapper & Quavo - No Brainer (04:26)
+04. Benny Blanco/Khalid/Halsey - Eastside (02:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900A1DF65D35EFD561F9EED41A8D0063F9BEE2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241611   (519281) от 18.08.2018
+
+Agnes Strange - Strange Flavour (1975) Remaster, 1996 [MP3|320 Kbps] <Hard Rock, Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Two Of Us (00:01:02)
-02 - Omega (00:05:59)
-03 - A Mind By Itself (00:05:49)
-04 - Killed Freedom (00:07:26)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:21:09
+01. Give Yourself A Chance (03:29)
+02. Clever Fool (03:24)
+03. Motorway Rebel (04:05)
+04. Travelling (02:54)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:02:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE69DB2DE15823F0B69B2AFB91ACC81DE1AC9494
+magnet:?xt=urn:btih:C4F5D3250402717E22171FDF438158C7C8CC85A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,28 +340,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561440   (514684) от 05.07.2022
+###  Публикация: 1241344   (519280) от 18.08.2018
 
-Bobby Gentilo - Gentilo (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+Ольга Форш | Одеты камнем (2018) [MP3]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Disease (3:38)
-02. Peace Train (4:08)
-03. Tell Me (3:51)
-04. Troublin' (4:04)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:38:34
+В центре романа "Одеты камнем" - трагическая судьба "таинственного узника" Петропавловской крепости, русского революционера Михаила Степановича Бейдемана. По распоряжению Александра II без суда, по подложному манифесту, который призывал народ уничтожить самодержавие, содержался в одиночном заключении в Алексеевском равелине 20 лет.Жанр: Исторический романПродолжительность: 08:20:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5B4BE5EE140A0B57A251CC609867611700CA87E
+magnet:?xt=urn:btih:BA8742769605F59960C5BCEC9B7E93C9FE81C310
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,284 +366,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561556   (514682) от 05.07.2022
+###  Публикация: 1314435   (519279) от 14.07.2019
 
-Horned Wolf - Become Like They Are (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Rock, Doom Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 You're Boring [00:04:35]
-02 Bloodlines [00:06:10]
-03 Charnel House [00:05:41]
-04 Drag The Bayou [00:04:10](   Читать дальше...   )Жанр: Sludge Rock, Doom Metal, Stoner MetalПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6DEDC7B0C91FC0D417DA71812EA929838FADA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561451   (514681) от 05.07.2022
-
-Voodoo Ramble - Can't Write a Pop Song (When You've Got The Blues) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born on the Road (3:11)
-02. Can't Write a Pop Song (When You've Got the Blues) (3:04)
-03. Too Bad for Heaven, Too Good for Hell (3:12)
-04. Down Home (3:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0D3F17676232191D8350D15D02FC87751434F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561456   (514680) от 05.07.2022
-
-Williboy Taxi - Down the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (C.C. Rider) (0:33)
-02. Revolution Chair (feat. Vittorio Pitzalis, Andrea Locci & Giorgio Del Rio) (2:36)
-03. Baby Don't Cry (feat. Vittorio Pitzalis & Anna Maria Viani) (3:11)
-04. Learnin' to Lie (feat. Vittorio Pitzalis) (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F44C8727819919A5500DCB30DF28B082C7DD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561558   (514679) от 05.07.2022
-
-Thumpermonkey - We Bake Our Bread Beneath Her Holy Fire (2009) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - If It Works For The Cast Of LA Law, It's Going To Work For Me (00:02:39)
-02 - Whateley (00:06:34)
-03 - I Don't Know If This Is A Matter For Wardrobe Or Hairdressing (00:04:11)
-04 - Proktor Cylex (00:05:59)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4CF729229D4C6B5C5144C8DDBD810F5344B370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561544   (514678) от 05.07.2022
-
-Сирокко / Sirocco (1951) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа Жозефа Кесселя "Coup de Grace" (Смертельный удар). Действие происходит в 1925 году в Дамаске, где идёт война между сирийскими повстанцами и французскими войсками. Гарри Смит, аморальный американский торговец оружием, продаёт оружие арабским мятежникам в Дамаске, пытающимся свергнуть французский протекторат. Однажды в ресторане он знакомится (   Читать дальше...   )Производство: США, Santana Pictures CorporationЖанр: нуар, драма, мелодрама, боевик, военныйРежиссер: Кёртис БернхардтАктеры: Хамфри Богарт, Марта Торен, Ли Дж. Кобб, Эверетт Слоун, Джералд Мор, Зеро Мостел, Ник Дэннис, Онслоу Стивенс, Людвиг Донат, Дэвид БондПеревод: профессиональный многоголосыйСубтитры: английские SDHПродолжительность: 01:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312E745CE5E6F701A69047807DB1DDA11D1BE79E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561443   (514677) от 05.07.2022
-
-Bonnie and the groove Cats - The Last Gap (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When the Wind Stopped to Blow (4:19)
-02. Can't Stop Loving Me (2:28)
-03. Place I Call My Home (3:38)
-04. Ride Along (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889D7A3EB997B814CD6733B790C98781918ECAF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561452   (514676) от 05.07.2022
-
-Wayne Madder - Unconditional (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Know That I Love You (4:17)
-02. Crack in the Wall (4:33)
-03. She Can Fly (3:50)
-04. I Need Somebody (5:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B696A7B17C63DA1557F31CA33407F463E9A82C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561619   (514675) от 05.07.2022
-
-Выстрел в состоянии аффекта / Shot in the Excitement (1914) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о соперничестве двух туповатых ухажёров за сердце не менее придурковатой дамы. В своей непримиримой схватке претенденты не стесняются в выборе средств и полны решимости пойти на самые крайние меры.
-Дамочка-то может и придурковатая, но фигурка у ней ничего себе так, крепенькая...Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Руб МиллерАктеры: Аль Ст. Джон, Элис Хауэлл, Руб Миллер, Джозеф Суикерд, Эдвин Фрэйзи, Гроувер ЛигонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D2732A16BEEB306A515E5D07A42B391E30BD2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561458   (514674) от 05.07.2022
-
-Xander and the Peace Pirates - Order out of Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Cry (4:52)
-02. Leave The Light On (4:04)
-03. Soul Sailing (3:17)
-04. I'm No Good At Being Bad (5:10)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8EE9DE6ACFB01B90814F4F5DC2221B61F6B1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561546   (514673) от 05.07.2022
-
-Steve Tibbetts - Hellbound Train: An Anthology (2022) Remastered[FLAC|Lossless|WEB-DL|tracks] <Fusion>
+Shakatak - In The Blue Zone (2019) Japan [FLAC|Lossless|image + .cue] <Smooth Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Full Moon Dogs (00:09:19)
-02 - Chandoha (00:05:57)
-03 - Lochana (00:03:41)
-04 - Black Temple (00:09:57)(   Читать дальше...   )Жанр: FusionПродолжительность: 02:06:33
+01. To Be Loved
+02. Making My Dreams Come True
+03. Back To The Heart Of It
+04. Ready To Take A Chance(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCDB9DD9C58946EA2F4A0CD6546DC1E014ABBED4
+magnet:?xt=urn:btih:0E6A4E68652DF7199BD1C4EDE37EF9D3286328C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +395,326 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561445   (514672) от 05.07.2022
+###  Публикация: 1314338   (519278) от 14.07.2019
 
-Brad Wilson - Brad "Guitar" Wilson (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+TogetherShare Data Recovery 6.9 Professional / Enterprise / AdvancedPE RePack (& Portable) by TryRooM [Ru/En]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ballad of John Lee (4:00)
-02. Walkin' Thru the Park (3:41)
-03. Rock Me Baby (4:04)
-04. House Is Rockin' (2:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:34
+TogetherShare Data Recovery служит для восстановления утраченных данных с ПК, серверов или ноутбуков. Она способна восстанавливать файлы с удаленных или поврежденных разделов жесткого диска, а так же восстанавливать данные с отформатированных дисков с переустановленной Windows, с RAID-массивов, USB-флешек, карт памяти и прочих носителей.
+Позволит восстановить нужные (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19137A97D8F150F1D6722D0519D3AD37C1E56703
+magnet:?xt=urn:btih:FDF6D96C4B0F211CCFD1D57ACF43976977644089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314258   (519277) от 14.07.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 12.07.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy Yankee feat. Katy Perry & Snow - Con Calma (Remix) 3:01
+02. Billie Eilish - Bad Guy 3:14
+03. Ed Sheeran & Justin Bieber - I Don't Care 3:40
+04. Drenchill feat. Indiiana - Freed From Desire 3:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216C3725EEB3D32FDF8A650476328ED0AD532363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314373   (519276) от 14.07.2019
+
+С.И. Костыгина и др. | Английский язык для студентов университетов. Чтение, письменная практика и практика устной речи [2 части] (2013) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_519276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник создан в соответствии с Федеральным государственным образовательным стандартом по направлению подготовки 050100 — Педагогическое образование (профиль «иностранный язык»,квалификация «бакалавр»). Учебник представляет собой часть учебного комплекса «English for University Students. Reading, Writing and Conversation» и включает в себя оригинальные и творческие (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314415   (519275) от 14.07.2019
+
+Формула 1. Сезон 2019. 10-й Этап. Гран-при Великобритании. Квалификация (13.07.2019) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519275.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 июля 2019 года, суббота. 16:00 МСК
+70-й сезон Формулы-1 2019 года
+10-й Этап. Гран-при Великобритании. Сильверстоун (Великобритания)
+Квалификация(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386E1BDFCC09E995F8E6B97B2B379B4D8137C201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148318   (519274) от 14.07.2019
+
+Почта (1972) VHSRip
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это кинорассказ о почтальоне, Герое Социалистического Труда Касымалы Токолдошеве. Сюжет картины сочинён самой жизнью – это ежедневный путь, совершаемый почтальоном. Путь, лежащий к дальним высокогорным урочищам Сусамырской долины, сначала в машине, а потом по узким горным тропинкам на лошади с тяжёлыми курджунами заполненными почтой. На экране обыкновенные, повседневные (   Читать дальше...   )Производство: КиргизфильмЖанр: ДокументальныйЯзык субтитров: АнглийскийПродолжительность: 00:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65509BF16E01241A8149E02110AD7CE37966633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314363   (519273) от 14.07.2019
+
+А.Г. Минченков | Английские частицы: функции и перевод (2004) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие посвящено функционированию и переводу на русский наиболее употребительных частиц современного английского языка. Оно содержит общие положения о классе иллокутивных частиц, подробный анализ их коммуникативных функций и комплекс упражнений, способствующий закреплению изученного материала и стимулирующий у учащихся дальнейший творческий поиск. Пособие (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6B3E27031FCD078590151256E9158D57892B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314381   (519272) от 14.07.2019
+
+Славянский базар в Витебске. Песнярам - 50  (12.07.2019) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519272.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Песняры» — советский вокально-инструментальный ансамбль под управлением Владимира Мулявина. Широкой аудитории он известен по песням «Белоруссия», «Беловежская пуща», «Александрина», «Вологда», «Косил Ясь конюшину» и другими. Славу ансамблю принесли авторские и народные композиции, в аранжировках которых использована исконно славянская песенная культура. Началом (   Читать дальше...   )Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C71492860EE84AC7A8C318CBDDB2DFDBB40525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314570   (519271) от 14.07.2019
+
+Формула 1. Сезон 2019. 10-й Этап. Гран-при Великобритании. Гонка (14.07.2019) IPTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519271.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 июля 2019 года, воскресенье. 16:00 МСК
+70-й сезон Формулы-1 2019 года
+10-й Этап. Гран-при Великобритании. Сильверстоун (Великобритания)
+Гонка(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080BFC0DD5C959866EFB5402A86856DB13AC6469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314471   (519270) от 14.07.2019
+
+Подборка | Зоология и животноводство (2019) [CHM]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это подборка книг по зоологии и животноводству.
+Подборка содержит более 200 книг.
+Затронуты темы выращивания домашних животных, дрессировка животных,
+происхождения видов животных,(   Читать дальше...   )Жанр: Зоология, животноводствоФормат: CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A7C3E0F467FA020E56149EB2468B1C261F95B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314423   (519269) от 14.07.2019
+
+Опасные встречи: смертоносные змеи / Dangerous encounters (2006) HDTV [H.264/1080i] (сезон 1, серия 5)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следите за путешествием Брэди по всему земному шару в поисках самых опасных змей. Он найдет и самую крупную ядовитую змею, и самую быструю змею, и даже змею, которую поклялся никогда не трогать.Производство: США, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс КаватсУчастники: Брэди Барр, Стивен М. КаджиураПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B0EAFD260BE35D8ADFC9CBAF9F3736CB176A197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314544   (519268) от 14.07.2019
+
+Формула 1. Сезон 2019. Этап 10. Гран-при Великобритании. Гонка (14.07.2019) HDTVRip
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_519268.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 июля 2019 года, воскресенье. 16:00 МСК
+70-й сезон Формулы-1 2019 года
+10-й Этап. Гран-при Великобритании. Сильверстоун (Великобритания)Телекомпания: Матч ТВЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 1:37:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314446   (519267) от 14.07.2019
+
+JetBrains Rider 2019.1.3 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rider позволяет разрабатывать приложения для .NET Framework, .NET Core и Mono, в том числе .NET-сервисы и библиотеки, игры на движке Unity, кросс-платформенные мобильные Xamarin-приложения, веб-приложения ASP.NET и ASP.NET Core.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1755A15234F57DF0D08EFDAE05755579EC695AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

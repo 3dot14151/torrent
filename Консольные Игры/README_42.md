@@ -1,29 +1,3 @@
-###  Публикация: 948633   (410691) от 20.10.2015
-
-Disney Epic Mickey 2: The Power of Two (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Epic Mickey 2: The Power of Two является продолжением платформера Epic Mickey, рассказывающего о приключениях Микки Мауса. Во второй части Микки предстоит путешествовать вместе с Кроликом Освальдом, поэтому разработчики добавили кооперативный режим, позволяющий другому игроку в любой момент присоединиться к игре. Кроме этого теперь все голоса были озвучены.Тип издания: ЛицензияРазработчик: Blitz Games Studios, Junction Point StudiosЖанр: Arcade / Adventure / Platformer / 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F80FFB3431258E01DA6DE99A6874EE95E322AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325628   (408516) от 17.09.2019
 
 Pure Football (2010) [PS3] [EUR] 3.21 [Cobra ODE / E3 ODE PRO ISO] [Repack] [En]
@@ -687,6 +661,32 @@ Resistance: Burning Skies (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F04EF090BB0461B6155EEBCC7D230B14C56AD380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568672   (393429) от 01.11.2012
+
+Borderlands 2 [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: ЛицензияЖанр: Action, First Person Shooter, RPGЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10D9A09DD923D7B2091995D5047B22C772A3C13
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1858939   (1060761) от 13.03.2026
+
+Maaike van Putten, Imke van Putten | Python Illustrated. Not another boring Python book, learn programming the fun way (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn Python coding concepts the fun way through humour, storytelling, and beginner-friendly examples that make your first step into the world of Python programming enjoyable.
+
+Key Features:
+Follow an adorable, illustrated teaching cat with sharp coding instincts as your guide.(   Читать дальше...   )Жанр: Object-Oriented Design, Introductory & Beginning Programming, Python ProgrammingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD82BF4C118D2256F8DA6CF0CEB0B98C90D9655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858936   (1060760) от 13.03.2026
 
 Valentine G. Nachi, Donald A. Tevault | Linux Shell Scripting for Hackers. Automate and scale your hacking process with bash scripting (2026) [PDF, EPUB] [EN]
@@ -667,32 +696,6 @@ In this completely new manual, gain a deeper understanding (   Читать д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB4D35B14D394D5E7B44A958260C29E5851E8B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856211   (1058656) от 27.02.2026
-
-Audrey Roggenkamp, Ian Rutkowsky, Nita Rutkosky | Benchmark Series, Microsoft Excel 2019 Levels 1&2 (2020) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058656.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Benchmark Series is designed for students to develop a mastery skill level in Microsoft Word, Excel, Access, and PowerPoint. Its graduated, three-level instructional approach moves students to analyse, synthesise, and evaluate information. Multi-part, projects-based exercises build skill mastery with activities that require independent problem solving, which (   Читать дальше...   )Жанр: Microsoft Excel Guides, Microsoft Office Guides, Software Suite BooksЯзык: АнглийскийИздательство: Paradigm Education SolutionsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD9C25D42392F67A870614634DB2686683BA19A
 ```
 
 https://mybot314.ru/tekegram_catalog/

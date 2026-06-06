@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1872437   (1070432) от 22.05.2026
+
+Agalloch - The White (2008) EP, Reissue, Remastered, 2019, Eisenwald Tonschmiede [FLAC|Lossless|image + .cue] <Ambient, Neofolk>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070432.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Isle Of Summer
+2. Birch Black
+3. Hollow Stone
+4. Pantheist(   Читать дальше...   )Жанр: Ambient, NeofolkПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A8900CBC5B37AB9EBBA4B7E89EC903E321E3AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869345   (1068302) от 
 
 Tangerine Dream - Pergamon (1981) 1992, Relativity Records [FLAC|Lossless|image + .cue] <Electronic, Ambient, Berlin School>
@@ -701,32 +730,6 @@ Tim Schaufert - am i the only one (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A64B4790DE61CF56111FEA1656DF75C635125D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446074   (1033065) от 08.02.2021
-
-Tim Schaufert - Footprints (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Footprints (03:12)Жанр: AmbientПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989F0E78693EC2E54C8A5D3E230972E52654F499
 ```
 
 https://mybot314.ru/tekegram_catalog/

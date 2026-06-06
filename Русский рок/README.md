@@ -1,33 +1,4 @@
 https://t.me/izofen
-###  Публикация: 1871050   (1069358) от 
-
-ГОРШЕНЕВ - Фауст-2. Первый акт (2026) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пробуждение
-2. Императорский дворец
-3. Маскарад
-4. Дворцовый сад(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8A6217F9D7FBBF56D3E1DCA6936B78D9E88B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867453   (1066998) от 25.04.2026
 
 МПТРИ - Безалкогольный (2004) Reissue, 2026 [MP3|320 Kbps] <Ska, Rock>
@@ -36,7 +7,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1066998.jpg" />
 </div>
 
 
@@ -65,7 +36,7 @@ Lumen - Любовь и Красота (2026) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1066783.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1065444.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1065106.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1065104.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1064411.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1062880.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1062879.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1062843.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1062755.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1060694.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Dmitry Spirin (ex-Тараканы) - Чужие (2026) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1060599.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1059710.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B86A3013F0E86D24CE21D90929C366B698159D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855375   (1057911) от 22.02.2026
+
+igo - 3 Albums (2012-2026) AI-generated content [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Без тебя...
+2025 - Театр теней
+2026 - Alter EgoЖанр: Heavy MetalПродолжительность: 3 CD, 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9683B376C91C1B54908723EA160802F79A2FB7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

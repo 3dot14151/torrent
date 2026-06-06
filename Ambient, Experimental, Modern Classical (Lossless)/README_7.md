@@ -1,3 +1,32 @@
+###  Публикация: 1209093   (779538) от 25.02.2018
+
+Yann Novak - The Future Is a Forward Escape into the Past (2018) Touch [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radical Transparency (10:00)
+02. The Inertia of Time (09:49)
+03. Casting Ourselves Back into the Past (10:19)
+04. Nothing Ever Transcends Its Immediate Environment (11:20)Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A55CCED13573178B169C3EBDA1F62CA1A4BD70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013731   (777146) от 05.05.2016
 
 Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) Columbia [FLAC|Lossless|WEB-DL|tracks] <Electro, Trance, Ambient, House>
@@ -713,35 +742,6 @@ Noraus - Noraus (2019) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Psybie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838F44F00A5E1C108EC23BC9CCE67D7516BE113A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396792   (744086) от 17.07.2020
-
-Cult48 - Catalog 1 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Calls To Deep (02:16)
- 02. August 84 (05:32)
- 03. Dusk (01:08)
- 04. 251070 (01:51)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09D776A78C1E48210AF41ABB5C4D2A945FCB197
 ```
 
 https://mybot314.ru/tekegram_catalog/

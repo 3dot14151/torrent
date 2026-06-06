@@ -1,3 +1,264 @@
+###  Публикация: 1064478   (426228) от 20.10.2016
+
+Ben Folds - So There (2015) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Chamber Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capable of Anything
+02. Not a Fan
+03. So There
+04. Long Way To Go(   Читать дальше...   )Жанр: Alternative Pop, Chamber PopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94548429848E65EC7C567EBEB08AF9238EBCF4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064654   (425558) от 20.10.2016
+
+VA - BRAVO Hits 95 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zara Larsson - Ain't My Fault (3:44)
+02. The Chainsmokers feat. Halsey - Closer (4:04)
+03. Enrique Iglesias feat. Wisin - Duele el corazón (3:20)
+04. Rag'n'Bone Man - Human (3:18)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9659C3F5F11BB66597BB13411824D4D37E8021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572246   (425405) от 25.08.2022
+
+ABBA - On And On (2003) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterloo
+02. Rock Me
+03. Love Isn't Easy
+04. Gonna Sing You My Lovesong(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FC31F4D37F28B454AF62479D9C1E48E617DAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946716   (425052) от 14.10.2015
+
+Tom Jones - Long Lost Suitcase (2015) [FLAC|Lossless]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opportunity To Cry
+02. Honey, Honey (ft. Imelda May)
+03. Take My Love (I Want To Give It)
+04. Bring It On Home(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14811B5B2BA147E052984DCFA84654AD8767D89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166606   (423920) от 17.09.2017
+
+Anastacia - Evolution (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423920.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Caught In The Middle
+2. Redlight
+3. Stamina
+4. Boxer(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191B3AB8346BAC401F7B13BE8B961E6252F0CB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064875   (423894) от 21.10.2016
+
+VA - Gold Ballads (2003) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Williams - Feel
+02. Blue feat. Elton John - Sorry Seems To Be The Hardest Word
+03. Everything but the Girl - Mirroball
+04. Atomic Kitten - No One Loves You(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C82C106F047E4061E28FF22F6E452FC8D6BF71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064919   (423479) от 21.10.2016
+
+Lady Gaga - Joanne (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Elecrtronic, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond Heart (3:30)
+02. A-YO (3:27)
+03. Joanne (3:16)
+04. John Wayne (2:54)(   Читать дальше...   )Жанр: Pop, Elecrtronic, Rock, Dance, Pop RockПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB7CD6B2DB376FED10F11F6F682C079FE061210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411620   (423155) от 27.09.2020
+
+Will Butler - Generations (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outta Here (04:44)
+02. Bethlehem (03:31)
+03. Close My Eyes (04:30)
+04. I Don't Know What I Don't Know (03:30)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABAA2FD53012F31AA38803BBACB94CE3BBBCFC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947015   (422563) от 15.10.2015
+
+Julio Iglesias - Mexico (2015) [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Usted
+02. Jurame
+03. Ella
+04. Fallaste Corazon(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505B61DD873DEE50A50D69A954582572CF3D7520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250391   (422141) от 29.09.2018
 
 Cher - Dancing Queen (2018) Warner Bros. Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -484,267 +745,6 @@ VA - Pure... Legends (2013) Box Set, 4 CD [FLAC|Lossless]<Retro, Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F281764E12B421EA52C3C6C4C63840C5D404A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413080   (411916) от 02.10.2020
-
-VA - Lazy Morning (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America - Ventura Highway (03:31)
-02. Kate Bush - Army Dreamers (02:54)
-03. Tom Petty - Wildflowers (03:10)
-04. Emmylou Harris - Here, There and Everywhere (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22B3608F97FEB13A48FEE64AE3847D56F33BC2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413020   (411894) от 02.10.2020
-
-VA - Heartbreak Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - That Should Be Me (Album Version) (3:52)
-02. Dean Lewis - Waves (4:00)
-03. OneRepublic - Apologize (Album Version) (3:26)
-04. Whitley - More Than Life (2:55)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084CEC7DEF07994B89632AA4BDC3AEC438512F72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948624   (411403) от 20.10.2015
-
-VA - Guilty Pleasures|The Songs You Secretly Love (2011) 2CD [FLAC|tracks + .cue]<Synth-pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Light Orchestra - Sweet Talkin' Woman (3:49)
-02. Daryl Hall & John Oates - Private Eyes (3:36)
-03. The Steve Miller Band - Abracadabra (3:40)
-04. Laura Branigan - Self Control (4:05)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 02:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B2B9C6D0B07198C231D53CC5FBE866377754C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948598   (411262) от 20.10.2015
-
-Maroon 5 - Singles (2015) [FLAC|tracks|WEB-DL]<Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Love (2002) - 3:27
-02. Payphone (feat. Wiz Khalifa) (2012) - 3:51
-03. She Will Be Loved (2002) - 4:14
-04. One More Night (2012) - 3:39(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99983FBFEEA6E439B27775F16CA93FE7B7F0B9A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251752   (410979) от 04.10.2018
-
-VA - Latin Party Hits 2018 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Alicata feat. Giuseppe Alicata - Tu sei la mia vita (Radio Version)
-02. Loona - Summer of Love (Dance Mix)
-03. Outatime - Last Night a DJ Saved My Life (Coma's Danceton Remix)
-04. Ferry G - Bailar Vida (Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, LatinПродолжительность: 03:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530CF13AD5DADF40C2415D6EFD752D7BFD4785C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168263   (410353) от 23.09.2017
-
-Fergie - Double Dutchess (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungry (feat. Rick Ross)
-02. Like It Ain't Nuttin'
-03. You Already Know (feat. Nicki Minaj) (Interlude Version)
-04. Just Like You(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA49AA2576545E221EF97FD7B31F7F194301B47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413303   (410002) от 03.10.2020
-
-Robson Green - Moment In Time (2002) [FLAC|Lossless|image + .cue] <Rock, Pop Rock, Folk Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410002.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:13] 01. Love Hurts
-[3:31] 02. Make It With You
-[3:18] 03. Me And Mrs. Jones
-[3:45] 04. If Tomorrow Never Comes(   Читать дальше...   )Жанр: Rock, Pop Rock, Folk Rock, BalladПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F36DC1CA284E146E27FDC937AAC1D90FAAD061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066947   (409759) от 27.10.2016
-
-Oonagh - Märchen enden gut (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Ethno-Pop, Pop-Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aulë und Yavanna (3:36)
-02. Numenor (3:44)
-03. Das Mädchen und die Liebe (feat. Santiano) (2:56)
-04. Niënna (3:35)(   Читать дальше...   )Жанр: Pop, Folk, World, Ethno-Pop, Pop-Folk, Ethnic Fusion, Celtic, Fantasy MusicПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEEB14C4531832D3BC4D7F90449D3D13493F2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066878   (409757) от 27.10.2016
-
-Christina Aguilera - Stripped (2002) [APE|Lossless|image + .cue] <Pop, RnB, Pop Rap>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stripped (intro)
-02. Christina Aguilera feat. Lil’ Kim / Can't Hold Us Down
-03. Walk Away
-04. Fighter(   Читать дальше...   )Жанр: Pop, RnB, Pop RapПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BC38AF21E897F81A59C6E8A5E33F0335D38B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 723515   (357592) от 17.11.2013
+
+Omar Santana, Dre Hectik - Universal Sound (2оо9) [FLAC|Lossless|WEB-DL]<Broken Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omar Santana vs Dre Hectik - Slutronica
+02. Omar Santana - Universal Sound
+03. Omar Santana vs Dre Hectik - Playing With Fire
+04. Omar Santana vs Dre Hectik - Mic Recka(   Читать дальше...   )Жанр: Broken BeatПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17738B5F3CB22377EFBB416558CABA7C827D334D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329238   (352364) от 05.10.2019
 
 Tantrum Desire - Blue Moon (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Drum'n'Bass>
@@ -716,35 +745,6 @@ Koan - Don Quixote's Passion (Side C.D) (2023) [FLAC|Lossless|WEB-DL|tracks] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BFC6CD86B263074A36DA73F6A7B36929837B16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412458   (228951) от 16.11.2020
-
-Mystic State - Discography 28 Releases (2013-2020) Artikal Music UK, The Chikara Project [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Halftime, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomahawk (06:31)
- 02. Competition (06:00)
- 03. Cuatro (05:43)
- 04. Hemisphere VIP (05:04)Тип издания: WEBЖанр: Drum n Bass, Halftime, Jungle •Продолжительность: 08:29:05 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB1CF26B32B4D7FED309737D3EB0C5B677FC3E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

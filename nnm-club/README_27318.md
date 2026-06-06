@@ -1,25 +1,106 @@
-###  Публикация: 1812333   (7836) от 14.08.2025
+###  Публикация: 1801889   (14734) от 13.06.2025
 
-Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+Иконки - IconScout - Bakery 3D Icon Pack [PNG, GLB]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконки на тему пекарни.Формат: PNG, GLBРазрешение файлов: 1024x1024
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F880ED10830F9472D5FD46588423C6938921DBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801821   (14733) от 13.06.2025
+
+VA - Compilation Part 168 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Jumanov - Ta Ta Ta Ta
+02 - A-Sultan - Funkadelic Sky
+03 - Aykan Emir - Childhood
+04 - Imazee - Don’t Make Me Stay(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC105876DF687B84F0F8751F898BE16D78A21A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801800   (14732) от 13.06.2025
+
+Новая история Трампа / Rewriting Trump (2025) WEB-DLRip [H.264] [MVO]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14732.jpg" />
+</div>
+
+
+###  Подробнее
+
+История возвращения Дональда Трампа в борьбу за Белый дом раскрывается через призму закулисных интриг, медийных скандалов и личных драм. В центре событий оказываются Майкл Вулф, Дональд Трамп-младший, ключевые советники кампании и скандально известная Сторми Дэниелс. На фоне громких дебатов с Байденом и обсуждений возможной выдвиженки Камалы Харрис возникает тема (   Читать дальше...   )Производство: Великобритания / SKY Studios, Sky News FilmsЖанр: документальный, политика, биографияРежиссер: Артур Кэри, Ясмин ПермолУчастники: Дональд Трамп, Джейн Фонда, Джимми Киммел, Джимми Киммел, Роберт Де Ниро, Джеффри Эпштейн, Джей Ди ВэнсПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F60E248A19D5096A29BCC48627770A403B1824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801785   (14731) от 13.06.2025
+
+Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Death Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Герман Франк — немецкий музыкант, гитарист, продюсер, известен своим участием в рок-группе Accept.2009 - Loyal To None
-2012 - Right In The Guts
-2016 - The Devil Rides Out
-2019 - Fight The FearЖанр: Heavy MetalПродолжительность: 05:05:13
+01 - Bequest Of The Wicked [1:05]
+02 - The Eyes Of Suffering [4:04]
+03 - Deformity [4:42]
+04 - Never Forgotten Place [4:38](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:41:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C943394C97F4DCDBFDFA5366DA7452CE81E08A17
+magnet:?xt=urn:btih:3C8F257C9877839346E3B6F206CC401943FC2773
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812282   (7835) от 14.08.2025
+###  Публикация: 1801777   (14730) от 13.06.2025
 
-Андрей Федин | Честное пионерское! (Часть 4). (2025) [MP3, Максим Сметанников]
+Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Heavy Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1984 год. Снова. Граждане СССР ещё строят коммунизм, с азартом охотников «достают» дефицитные товары. И не подозревают о тех печальных поворотах, что ждут и их, и страну в скором будущем. Мой отец пока жив и преподаёт в школе. Мне прошлому исполнилось семь лет. И он (не я) скоро пойдёт в первый класс. Этот мальчик не догадывается, что жизнь приготовила ему сюрпризы. (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 08:44:00
+01 - Hell, Fire and Damnation (Live at Hellfest) [5:40]
+02 - Motorcycle Man (Live at Hellfest) [3:47]
+03 - Power and the Glory (Live at Hellfest) [5:19]
+04 - Madame Guillotine (Live at Hellfest) [5:05](   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 01:09:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FA6B782E9DF5EF97FEE706BA02BF627017A52D5
+magnet:?xt=urn:btih:2D704BB31725FAD4652A32938CC7B80DD9F4DF8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +137,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812334   (7834) от 14.08.2025
+###  Публикация: 1801786   (14729) от 13.06.2025
 
-Via Mistica - Fallen Angels (2004) 2005 [FLAC|Lossless|image + .cue] <Gothic Metal>
+Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [MP3|320 Kbps] <Gothic Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bequest Of The Wicked [1:05]
+02 - The Eyes Of Suffering [4:04]
+03 - Deformity [4:42]
+04 - Never Forgotten Place [4:38](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F980F0C57867BC33EDDBECB6356BE8BF9366C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801781   (14728) от 13.06.2025
+
+The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untouched		04:14
+02. Hook Me Up		02:56
+03. This Is How It Feels		04:12
+04. This Love		02:59(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B515FFF5A0FCB12BCC1FBD54E64E4152B1E79747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801827   (14727) от 13.06.2025
+
+Highsociety - Datamosh (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Synth Metal, Electronic>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Angel of Destiny 08:24
-02. Aristea 04:36
-03. Edge of Darkness 05:20
-04. Fallen Angels 03:45(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:54:16
+01. Going Under [00:03:13]
+02. All for Nothing [00:03:29]
+03. Echoes [00:03:25]
+04. BREAK [00:03:41](   Читать дальше...   )Жанр: Alternative Metal, Synth Metal, ElectronicПродолжительность: 00:40:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9604BEB1D9FF65AD1DEDA9AC2DB7AF330AF196C
+magnet:?xt=urn:btih:9FE126F7714FE8F66C07A82108B219D252A26C68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +224,231 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812387   (7833) от 14.08.2025
+###  Публикация: 1801877   (14726) от 13.06.2025
 
-Андрей Федин | Комсомолец (Часть 1). (2024) [MP3, Мирослав Велесов]
+Our Lady Peace - Clumsy (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superman’s Dead    [0:04:16.69]
+02. Automatic Flowers    [0:04:05.31]
+03. Carnival    [0:04:48.05]
+04. Big Dumb Rocket    [0:04:23.65](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BC670F98C805AB2A2D2CE677DA183558C63B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801875   (14725) от 13.06.2025
+
+The Beautiful South - Welcome to the Beautiful South (1990) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for Whoever    [0:06:09.28]
+02. Have You Ever Been Away    [0:05:12.15]
+03. From Under the Covers    [0:04:04.50]
+04. I’ll Sail This Ship Alone    [0:04:40.45](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84150524A5162D13A693E487828EA7B7FD1C63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801778   (14724) от 13.06.2025
+
+Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer    [0:03:57.36]
+02. Crawl    [0:04:06.31]
+03. Sex on Fire    [0:03:23.26]
+04. Use Somebody    [0:03:50.57](   Читать дальше...   )Жанр: Southern Rock, Indie RockПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829C2F4E6A5793440B33C1F7800673AA6B7965AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801831   (14723) от 13.06.2025
+
+НХЛ. Кубок Стэнли 2025. Финал. 4-й матч. Эдмонтон Ойлерз - Флорида Пантерз (12.06.2025) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14723.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 июня 2025, пятница. 03:00 МСК
+Стадион: Амерант Банк Арена (Санрайз, США), вместимость: 19434
+Финал. 4-й матч. Флорида Пантерз (Санрайз) — Эдмонтон Ойлерз (Эдмонтон)
+Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейЯзык озвучки: русский, английскийПродолжительность: 03:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E264965FB249A84DF3AE1A66E84046E669E8C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801830   (14722) от 13.06.2025
+
+NoiZZy - Dreamland (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamland [00:04:17]
+02. Fake [00:02:40]
+03. Addiction [00:05:29]
+04. Time [00:05:17](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAB9B9618EF77C098A267E67060A1D733AD6BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801779   (14721) от 13.06.2025
+
+Saxon - Eagles Over Hellfest (2025) Live [MP3|320 Kbps] <Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hell, Fire and Damnation (Live at Hellfest) [5:40]
+02 - Motorcycle Man (Live at Hellfest) [3:47]
+03 - Power and the Glory (Live at Hellfest) [5:19]
+04 - Madame Guillotine (Live at Hellfest) [5:05](   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88195AF8279CDB19ABDFC0FB8FE3D1FC51093D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801912   (14720) от 13.06.2025
+
+ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflekt ft. Delline Bass - Need To Feel Loved (Cristoph Remix) w/ARTY - ID w/Kx5 ft. Hayla - Escape (Acappella)
+02. ARTY - ID
+03. Matisse & Sadko vs. Gotye & Kimbra - Verve vs. Somebody That I Used To Know (Martin Garrix Mashup)
+04. Steve Angello & Sebastian Ingrosso ft. Namasenda - No Enemies(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9217FCD63EF317AFC6578EB2858E6B8365E9024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801847   (14719) от 13.06.2025
+
+Иван Бунин | Таня. В Париже (Инсценировка) (2025) [MP3, Иван Жуков, Татьяна Михалевкина и др.]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В СССР завершается «золотая пятилетка». Я снова студент первокурсник. Когда-то друзья восторгались моей карьерой. Кто-то завидовал моей внешности и тому вниманию, что уделяли мне женщины. Но это всё в прошлом – точнее, в будущем. Я «настоящий» в этом году ещё не родился. Мне позволили прожить новую жизнь. Но не объяснили, какую плату за это потребуют у меня «нового» (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: АСТПродолжительность: 07:55:53
+Серия/Цикл: Театр у вас дома.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Рассказы «Таня» и «В Париже» И.А. Бунина, входят в цикл «Тёмные аллеи». Произведения написаны в 1940 году, впервые опубликованы в 1943 году.
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:46:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D4C8E772328AEAE0263DF4062305C1D0D77FAD5
+magnet:?xt=urn:btih:C0DF53FFAA1737C20331132067A6AD16FDCE2A6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +456,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812281   (7832) от 14.08.2025
+###  Публикация: 1801849   (14718) от 13.06.2025
 
-Андрей Федин | Честное пионерское! (Часть 3). (2025) [MP3, Максим Сметанников]
+Insania - The Great Apocalypse (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1984 год. Снова. Граждане СССР ещё строят коммунизм, с азартом охотников «достают» дефицитные товары. И не подозревают о тех печальных поворотах, что ждут и их, и страну в скором будущем. Мой отец пока жив и преподаёт в школе. Мне прошлому исполнилось семь лет. И он (не я) скоро пойдёт в первый класс. Этот мальчик не догадывается, что жизнь приготовила ему сюрпризы. (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРесПродолжительность: 08:19:14
+01. The Trinity (06:37)
+ 02. Indestructible (05:20)
+ 03. No One's Hero (08:01)
+ 04. Afterlife (05:43)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:03:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCC9A8A27850177BC449CC3565D651DA1F0A2845
+magnet:?xt=urn:btih:FCB83541CCE621F78A1D31E49E073CCFB5CBFF76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812267   (7831) от 14.08.2025
+###  Публикация: 1801890   (14717) от 13.06.2025
 
-Александр Светлый | Непопулярный игрок (Книга 5). Убийца богов (2025) [MP3, Сергей Ефимов]
+The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Реинкарнация в мире нового масштабного состязания Небесных богов прошла с неожиданной накладкой. Лайт был готов жаловаться на новую подставу, ведь его чуть не сожрала неизвестная сущность, но потом разобрался и понял, что лучшего подарка ему ещё в жизни не делали.Жанр: Фэнтези, приключенияИздательство: ЛитРесПродолжительность: 16:11:14
+01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
+02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
+03 - Blood Mother [3:17]
+04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBF1A919E91F33CC1C4CB1773FF9DD2D35E20ABC
+magnet:?xt=urn:btih:8DD186B90C38262D9E9288FED5988E4CDD8483BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812268   (7830) от 14.08.2025
+###  Публикация: 1801782   (14716) от 13.06.2025
 
-Александр Светлый | Непопулярный игрок (Книга 6). Повелитель хаоса (2025) [MP3, Сергей Ефимов]
+Neil Diamond - The Best of The Movie Album (1998) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Soft Rock,>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У каждого явления и существа во вселенной есть своё предназначение, но есть те, кто выходят за рамки своей роли, ломают выстроенную им сцену и идут напролом в поиске своего личного счастья и понимания гармонии мира. Лайт хоть и не осознает этого, но является одним из таких созданий. Из-за особой судьбы, он может настолько не вписываться в общий сценарий событий, (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: ЛитРесПродолжительность: 15:29:25
+01. As Time Goes By    [0:02:55.43]
+02. Unchained Melody    [0:03:49.60]
+03. Can You Feel the Love Tonight    [0:04:08.45]
+04. The Way You Look Tonight    [0:02:38.07](   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock,Продолжительность: 00:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4BE1BED1E1C9E189DE7168152F37463AD5FCC69
+magnet:?xt=urn:btih:167F7E0900F4980E3593A980BD8E607ABB4EC818
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +543,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654311   (7828) от 15.08.2025
+###  Публикация: 1801662   (14715) от 13.06.2025
 
-The Slormancer (2021) [Multi] (1.0.2c) License GOG
+Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
 
->>Win Игры
->>RPG
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Slormancer - эпическая двухмерная экшен-RPG с исследованием подземелий, в которой вам предстоит стать частью отряда изгоев, сражающегося с полчищами врагов во главе со Слормантом. Играйте за "Могучего" Рыцаря, "Свирепую" Охотницу или "Озорного" Мага, осваивайте сотни способностей и врожденных умений, обзаводитесь снаряжением, защищайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Slormite StudiosЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Французский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Французский, Китайский (упрощенный) и другие
+Жанр: Folk, CountryПродолжительность: 01:04:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C3CE3379BB2E51FCBB9442B7A657206484D9CE1
+magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +569,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812482   (7827) от 15.08.2025
+###  Публикация: 1801835   (14714) от 13.06.2025
 
-Call of Duty Modern Warfare III (2023) [Ru/En] (10.4.23098619) Repack Other s
+The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 
->>След.
->>Action (FPS)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Call of Duty Modern Warfare 3 (2023) - ремастер третьей части знаменитой серии шутеров. Разработчики решили сосредоточиться на переиздании лишь сюжетной кампании. Используется тот же движок, на котором были перевыпущены предыдущие две игры. Третья и заключительная часть одноименной линейки рассказывает про Третью мировую, которая была развязана усилиями Шепарда и (   Читать дальше...   )Тип издания: RepackРазработчик: Sledgehammer Games, Treyarch, Infinity Ward, Beenox, Raven Software, High Moon Studios, DemonwareЖанр: Экшены, ШутерыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+01. Revelation [00:04:13]
+02. Love Me Alive [00:03:25]
+03. Foolish Pleasure [00:02:41]
+04. The Hero [00:03:47](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:28:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1A3A618851A6393156092D615E75F70A2C845EA
+magnet:?xt=urn:btih:D897B35CE14A6C84A3BECE75FA115FB025B8441D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +598,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611278   (7826) от 15.08.2025
+###  Публикация: 1801801   (14713) от 13.06.2025
 
-Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [MP3|320 Kbps] <Blues Rock, Folk Rock, Progressive Rock>
 
->>Win Игры
->>Action (FPS)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Войдите в первый мегаполис Европы: Багровый прилив. Свободный город Багровый Прилив (представительный свободный город этого Нового Мирового Порядка, показывающий, что обе системы могут сосуществовать в гармонии, создавая лучшее будущее для своих граждан) был возведен как представительная вершина достижений человечества на границе Германии и Польши, в согласии уважать (   Читать дальше...   )Тип издания: LicenseРазработчик: MGP Studios, Solid9 StudioЖанр: Action, Shooter, AdventureЯзык субтитров: Русский, Английский, Испанский, ПольскийЯзык интерфейса: Русский, Английский, Испанский, Польский
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:776FD47166F1E7F2009FB69DB49CB7FE2F19415E
+magnet:?xt=urn:btih:AFBB0871E67DBDEB3213813A991B4D588FA1F0BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,28 +627,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558885   (7825) от 15.08.2025
+###  Публикация: 1801769   (14712) от 13.06.2025
 
-Виктор Цой и Кино - Коллекция (2022) [MP3|320 Kbps] <Rock>
+Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordings Ltd [FLAC 24/96|Lossless|WEB-DL|tracks] <Britpop, Alternative Rock, Indie Rock>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник лучших композиций легендарного поэта и композитора Виктора Цоя и группы Кино. Его песни актуальны, как никогда. Все треки взяты с ремастированных фирменных CD изданий. Не люблю ремастеры звука, так как в них искуственно завышают частоты и задирают громкость, затачивая под новодельные побрякушки, пукалки и домашние кинотеатры. На настоящей, благородной аудиосистеме (   Читать дальше...   )01. Песня без слов
-02. Красно-жёлтые дни
-03. Группа крови
-04. Пачка сигарет(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:26
+01 - Supersonic [4:45]
+02 - Roll With It [4:00]
+03 - Live Forever [4:39]
+04 - Wonderwall [4:22](   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 02:08:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCE9E82D443369BE59CCE02880A931F2FF28E7F1
+magnet:?xt=urn:btih:798DBFC6222AF8BC193EC504AF5962434DBE9CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,25 +656,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729218   (7824) от 15.08.2025
+###  Публикация: 1801891   (14711) от 13.06.2025
 
-Field of Glory: Kingdoms (2024) [Multi] (1.06.06/dlc) License GOG
+The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
 
->>Win Игры
->>Strategy Tactical (RTS/TBS)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Field of Glory: Kingdoms - это необычная стратегия, позволяющая возглавить различные нации и создать из них грозные королевства, что делает ее одной из самых захватывающих игр в жанре. Действие разворачивается в 1054 году, вскоре после Великого раскола, и погружает игроков в более чем двухвековую историю Европы, Африки и Ближнего Востока. Проект обладает ошеломляющим (   Читать дальше...   )Тип издания: LicenseРазработчик: AGEODЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, ИспанскийЯзык интерфейса: Английский, Французский, Испанский
+01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
+02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
+03 - Blood Mother [3:17]
+04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF3A74F5C6B1D4596599403163E417DD866A8EB7
+magnet:?xt=urn:btih:EAC64DD849B80A6240FA137917792218B41290FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,25 +685,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702090   (7823) от 15.08.2025
+###  Публикация: 1801799   (14710) от 13.06.2025
 
-Rail Route (2024) [Ru/Multi] (2.3.22/dlc) License GOG
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Folk Rock, Progressive Rock>
 
->>Win Игры
->>Simulation (Other)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rail Route – экономический симулятор, в котором пользователь столкнется с диспетчеризацией железных дорог. Обучение поможет разобраться с трудной механикой и терминами. Прохождение начинается с небольшой железнодорожной системы с ограниченной местностью. Игроку предстоит расширять пути, увеличить прибыль, создавая новые дороги, сокращая их и применяя разные фишки.Тип издания: LicenseРазработчик: Bitrich.infoЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AC48BD97ABB4331240F182FC917581F2D4102A2
+magnet:?xt=urn:btih:931A31D6D0882E4EB028D82D22E965D6F669784F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,337 +714,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767914   (7822) от 15.08.2025
+###  Публикация: 1801857   (14709) от 13.06.2025
 
-Witchfire (2024) [Ru/En] (0.7.3) Repack Let'sРlay [Early Access]
+Пролиф - 3 Albums (2025) [MP3|320 Kbps] <Alternative Rock>
 
->>Win Игры
->>Demo/Beta версии Игр
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Witchfire - это тёмный фэнтезийный ролевой шутер от первого лица, в котором вы играете за грешника, ставшего охотником на ведьм, который отправляется в последний путь к спасению. Отправляйтесь в опасные экспедиции, побеждая врагов, чтобы усилить свои силы и арсенал. Собирайте ценные ресурсы и отступайте в своё убежище или испытывайте удачу, сражаясь с Фамильярами (   Читать дальше...   )Тип издания: RepackРазработчик: The AstronautsЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+01. Рыбалка [00:05:22]
+02. Керженец [00:08:14]
+03. Сад [00:03:51]
+04. Весна: 2020 [00:04:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 3 CD, 03:45:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:490A3B0D01C7892222449B2E368F4406721B8A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806114   (7821) от 15.08.2025
-
-Супермен / Superman (2025) Telecine [H.264/1080p] [звук с TS] [AD]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кларк Кент, родившийся на планете Криптон, но оказавшийся на воспитании у простой семьи на Земле, пытается найти баланс между своей человеческой жизнью и криптонским наследием, делающим его Суперменом — воплощением добра и справедливости.Производство: США / DC Studios, Domain Entertainment (II), Troll Court EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс ГаннАктеры: Дэвид Коренсвет, Милли Олкок, Изабела Мерсед, Нэйтан Филлион, Николас Холт, Сара Сампайо, Рэйчел Броснахэн, Скайлер Гизондо, Фрэнк Грилло, Прюитт Тэйлор ВинсПеревод: Дублированный (звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:59:44Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779652   (7820) от 15.08.2025
-
-Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Wanterlude
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Живые земли, загадочный остров, полный приключений и опасностей! Avowed - фэнтезийная ролевая игра с видом от первого лица, разработанная знаменитой студией Obsidian Entertainment. Ее действие разворачивается в мире Эоры, уже знакомом игрокам по серии Pillars of Eternity. Живые земли - это остров, где в воздухе гудит древняя магия, растения могут (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:951AA0E2949FD2994A0A4F6839390EF4A47A2AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596429   (7819) от 15.08.2025
-
-Chained Echoes (2022) [Multi] (1.344/dlc) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chained Echoes - это сюжетная JRPG. С группой героев вам предстоит отправиться в странствие по обширному континенту Валандису, чтобы положить конец войне между тремя королевствами. В путешествии вас ждут многообразные пейзажи: обдуваемые ветрами нагорья, тропические острова, затопленные города и заброшенные темницы. Хватайте меч, концентрируйте свои волшебные силы (   Читать дальше...   )Тип издания: LicenseРазработчик: Matthias LindaЖанр: Ролевая игра, Пошаговая, ExplorationЯзык субтитров: Английский, Немецкий, Французский, КорейскийЯзык интерфейса: Английский, Немецкий, Французский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2044E6AD9E027D784A6CC647A26971642E8A0129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299206   (7818) от 15.08.2025
-
-Планета Ка-Пэкс / K-PAX (2001) D-TheaterRip [H.264/1080p]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7818.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Манхэттенский психиатрический институт привозят странного человека в черных очках. Он зовет себя Протом и утверждает, что его родина — далекая планета Ка-Пэкс, откуда он мгновенно перенесся на Землю в луче света. Несмотря на все усилия, опытному доктору Пауэллу не удается разгадать загадку таинственного пациента, который охотно и весьма убедительно доказывает всем (   Читать дальше...   )Жанр: Фантастика, ДрамаРежиссер: Айэйн СофтлиАктеры: Кевин Спейси, Джефф Бриджес, Мэри Маккормак, Элфри Вудард, Дэвид Патрик Келли, Сауль Уильямс, Питер Герети, Селия Уэстон, Аджай Найду, Трэйси ВиларПеревод: МногоголосыйСубтитры: RussianПродолжительность: 02:00:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232425   (7817) от 15.08.2025
-
-Darkest Dungeon (2016) [Ru/Multi] (26186a/dlc) License GOG [Soundtrack Editon]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkest Dungeon – пугающе сложная пошаговая ролевая игра в жанре roguelike с готической атмосферой, посвященная психологическим тяготам, с которыми сталкиваются искатели приключений. Соберите, обучите и отправьте в бой команду далеких от совершенства героев. Впереди ждут мрачные леса, забытые подземелья, затхлые склепы и бесчисленные опасности.Тип издания: LicenseРазработчик: Red Hook StudiosЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F697FD74E1DDA68D748340B7D41C5BA9508154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621533   (7816) от 15.08.2025
-
-Vagrus: The Riven Realms (2021) [En] (1.2100730/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vagrus - The Riven Realms – ролевая игра с элементами стратегии, где потребуется взять контроль над лидером каравана и выживать в темном сюрреалистическом мире. Возглавьте туристическую компанию, набирайте в свои ряды мощных воинов и путешествуйте по большой земле, сражаясь с врагами и зарабатывая полезные материалы. Исследуйте огромный континент, вмещающий уникальные (   Читать дальше...   )Тип издания: LicenseРазработчик: Lost Pilgrims StudioЖанр: Ролевая игра, Стратегия, ФэнтeзиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B3B59427F43AF0B1AF23B14E3F9160E23D5AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609789   (7815) от 15.08.2025
-
-SpellForce: Conquest of Eo (2023) [Ru/Multi] (1.9.6/dlc) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примерьте мантию своего могучего предшественника и станьте наследником его таинственной волшебной башни в пошаговой стратегической игре, действие которой происходит в фантастическом мире SpellForce. Изучите множество заклинаний и заколдуйте окружающие земли, вызывайте фантастических миньонов, обучайте могущественных воинов и путешествуйте по миру. Участвуйте в динамических, (   Читать дальше...   )Тип издания: LicenseРазработчик: Owned by GravityЖанр: Ролевая игра, Пошаговая, ФэнтeзиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26526B8BFDD8D543362D2DB065AB3397852E8C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618928   (7814) от 15.08.2025
-
-The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под названием The Last Spell скрывается гибрид рогалика и тактической RPG с изометрическим видом. Действие разворачивается в мрачном фэнтезийном средневековье. В мире случился катаклизм из-за последней войны и участия в ней колдунов. Появился туман, превращающий людей в адских тварей.Тип издания: LicenseРазработчик: Ishtar GamesЖанр: Ролевая игра, Пошаговая, ФэнтeзиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F633813A2B6FE6DB6B2A63AE902B8970875A7205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418815   (7813) от 15.08.2025
-
-Project Zomboid (2013) [Ru/Multi] (42.8.1) License GOG [Early Access]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Project Zomboid - многообещающая Survival-RPG, в которой вы будете пытаться выжить в городе наполненном миллионами зомби. Спасения нет, лекарства нет. Конец близок... приготовьтесь к нему. Полностью открытый мир, как сейчас модно называть - песочница. В любой дом можно зайти и обшарить любой шкафчик. Улицы не пустуют, постоянно происходит какое – то движение.Тип издания: LicenseРазработчик: The Indie StoneЖанр: Экшны, Симулятор, Open WorldЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F677AA504594460DE4485EE95E7971F337B939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536251   (7812) от 15.08.2025
-
-Distant Worlds 2 (2022) [En] (1.3.1.1.1/dlc) License GOG
-
->>След.
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Distant Worlds возвращается. Distant Worlds, космическая стратегия в жанре 4X, получившая высокие оценки у критиков, возвращается с совершенно новым 64-битным движком, трёхмерной графикой и отполированным интерфейсом, чтобы с помощью игры Distant Worlds 2 положить начало новой эпической серии. Distant Worlds 2 - это масштабная космическая стратегия в реальном времени (   Читать дальше...   )Тип издания: LicenseРазработчик: Code ForceЖанр: Симулятор, СтратегияЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874C37EBA62330C271517CEB5E5FEDED46AC2700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514722   (7811) от 15.08.2025
-
-Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) License GOG
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во мраке далекого будущего есть только война. Warhammer 40,000: Battlesector – это бесконечные взрывы и хруст костей, отвага и смерть. Это динамичная и зрелищная пошаговая стратегия, которая перенесёт Вас на поля сражений 41-го тысячелетия. Собирайте войска, развивайте армию, отправляйте в бой могучих героев и бейтесь за победу, применяя тактические приёмы, мощные (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Lab GamesЖанр: Стратегия, Пошаговая, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A81AB6E01E3169DBB6CA87068B992C6DA5BF63CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235755   (7810) от 15.08.2025
-
-Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.02/dlc) License GOG [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гладиус Прайм был известен среди Имперских ученых, как планета богатая на археологические находки. Во время его колонизации были найдены древние реликвии, намекающие на окутанное тайной прошлое планеты. Находки оказались нечто большим, чем реликвиями. Пробудился ужасный отголосок древнего прошлого, и жители Гладиуса оказались втянуты в смертельную войну за выживание.Тип издания: LicenseРазработчик: Proxy StudiosЖанр: Стратегия, Пошаговая, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BC4FCC81D46AB6431C879CE5C27D509399C364
+magnet:?xt=urn:btih:42CF34FE8CC0BA843281ED831D81BD7B407DC33E
 ```
 
 https://mybot314.ru/tekegram_catalog/

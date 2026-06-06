@@ -1,3 +1,87 @@
+###  Публикация: 1031363   (652171) от 04.07.2016
+
+Timur Mingazov - MBS Mix #27 (Why Spring- - Deep House Apr `16) | (2016) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Born In Silence Intro
+ 1.Yotto – Crosswalk
+ 2.Kyle Watson – Moments
+ 3.Sons Of Mafia – Chimera(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFAE80FDD8DEC930819903DD23CA0019A695C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031638   (652170) от 04.07.2016
+
+VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nicky Romero -  Novell (Original Mix) 5:35
+002. KSHMR feat. Sidnie Tipton -  Wildcard (Radio Edit) 3:09
+003. Sam Feldt -  Been A While (Madison Mars Remix) 3:39
+004. Tiesto & Bobby Puma -  Making Me Dizzy (Extended Mix) 4:40(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00818734E28D77A6E02C2ABFBC6816233B7F3202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031352   (652163) от 04.07.2016
+
+A.S.T - The Planet Of Music CD 4 - Mix By A (2016) [MP3|320 Kbps] <Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652163.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ сборникЖанр: Future HouseПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD597BF5A84579E2759AE746286BA6989D0D16BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031547   (652013) от 04.07.2016
 
 VA - Miracle Summer Base Resistance (2016) [MP3|320 Kbps] <House, Electro House, Bigroom>
@@ -661,93 +745,6 @@ VA - Techno Top Spring (2015) [MP3|320 кб/с]<Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C05F3BD2561164C8022E5F1D968A4FDF4B8C04BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905620   (649485) от 06.06.2015
-
-VA - Lounge Cocktails (2013) [MP3|320 кб/с]<Lounge, Jazz>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hank Mobley, Djalma Ferreira, Luiz Antonio - Recado Bossa Nova (Remastered) (08:11)
-02. Cal Tjader - Soul Burst (Guajera) (04:41)
-03. Stan Getz, Charlie Byrd, Antonio Carlos Jobim, Newton Mendonсa - Desafinado (05:50)
-04. Roy Ayers Ubiquity, William Allen - This Side Of Sunshine (03:17)(   Читать дальше...   )Жанр: Lounge, JazzПродолжительность: 01:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4367CD86DA1A30CC08133332D32C7C909A1D5CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905773   (649367) от 06.06.2015
-
-VA - Hits Cocktail Vol. 8 (2015) [MP3|320 кб/с]<Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Martinez & Andrew feat. Inmagine - Tonight (Radio Edit) [03:21]
-02. Avicii - Waiting For Love (Extended Mix) [05:25]
-03. Jochen Miller feat. Simone Nijssen - Slow Down (Radio Edit) [03:18]
-04. Scooter & Vassy - Radiate (SPY Version) [03:06](   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2306A21417A074AC876625EFDA98926AB85325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905493   (649065) от 06.06.2015
-
-Pet Shop Boys - Golden Disco Hits (2001) [MP3|320 кб/с]<SynthPop, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go West (04:58)
-02. Paninaro 95 (04:07)
-03. It's a Sin (04:58)
-04. Rent (03:30)(   Читать дальше...   )Жанр: SynthPop, ElectronicПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FE654AACBB357AB9724518A68D3A44A8C7DEC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

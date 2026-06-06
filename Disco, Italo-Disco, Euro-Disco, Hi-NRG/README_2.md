@@ -1,3 +1,61 @@
+###  Публикация: 1481855   (1008029) от 05.07.2021
+
+Estrak Lancios - Cosmopolitan Wave (1979) LP [MP3|320 Kbps] <Electronic, Leftfield, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmopolitan Wave (17:19)
+-Red Wave
+-Violet Wave
+-Blue Wave(   Читать дальше...   )Жанр: Electronic, Leftfield, DiscoПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53557F84FBF239610B83B40DF21371E6D97C394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482019   (1007906) от 06.07.2021
+
+Tata Vega - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тата Вега (урожденная Кармен Роза Вега 7 октября 1951 года на Ямайке, Куинс, Лонг-Айленд,Нью-Йорк) - вокалистка, чья карьера охватывает театр, кино и различные музыкальные жанры.01. Come On And Try My Love (3:26)
+02. I Need You Now (3:35)
+03. Get It Up For Love (6:09)
+04. If Love Must Go (4:12)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20223ADFC432666EA4BB37BF3DB608A89DFEA2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483602   (1006756) от 14.07.2021
 
 Fancy - Masquerade (Les Marionnettes) (2021) [MP3|320 Kbps] <Pop ,  Eurodisco>
@@ -714,64 +772,6 @@ Moulin Rouge - Moulin Rouge (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF00E28F20BEFC731ECF8643F2E2697D18E0D439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089193   (953751) от 02.01.2017
-
-Mark Ashley - Greatest Hits II (2013) [MP3|320 Kbps] <Disco,  Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are Not Alone
-02. It's All Over
-03. You Are My Paradise
-04. Destination Love(   Читать дальше...   )Жанр: Disco,  Euro-DiscoПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133E9798AE41324B76CEF491062A743640D3CF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362112   (951109) от 22.02.2020
-
-The New Marketts - Step On It (1977) LP [MP3|320 Kbps] <Disco, Instrumental, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Coaxing (2:47)
-02. Mary Hartman, Mary Hartman (You Have Never Been In Love) (2:54)
-03. Smile Happy (2:46)
-04. African Lightning (3:07)(   Читать дальше...   )Жанр: Disco, Instrumental, Funk SoulПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1B504D564717B258C1186A4C11630412474D69
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 941334   (462724) от 27.09.2015
+
+VA - Blues Guitar Duels (1997) [MP3|256 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Guy & Phil Guy - Girl You're Nice And Clean
+02. Hubert Sumlin & Ronnie Earl - West Side Soul
+03. Smokin' Joe Kubek & Bnois King - Corn Palace
+04. Mike Morgan & Jim Suhler - You're Fine(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7CA314B248A2E07B8A1B4F06BF47BF8FD32C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941041   (462709) от 27.09.2015
+
+Thorbjorn Risager & The Black Tornado - Songs From The Road (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Wanna Leave (04:49)
+02. Paradise (04:59)
+03. Drowning (04:16)
+04. Baby Please Don't Go (03:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76104E923219D49EF7557C1DBE16BC6EF005194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 388531   (458917) от 17.09.2011
 
 Venom Blues - Recoil (2007) [MP3|320 kbps]<Electric blues>
@@ -705,64 +763,6 @@ Delta Moon - Babylon Is Falling (2018) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3F445E19A73D29D3B0F77FD53FCCCB1CA171D94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945346   (433933) от 10.10.2015
-
-Willie May - Blues Mona (2015) [MP3|320 кб/с]<Blues, Country Blues, Funky>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lock It Up (03:25)
-02. Big Legged Woman (03:38)
-03. Monas Watching Eye (04:12)
-04. Stop Hurtin' Me (03:38)(   Читать дальше...   )Жанр: Blues, Country Blues, FunkyПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1956004CF7C4F1AA9AD389DDBBD943DD2A51E6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945542   (433922) от 10.10.2015
-
-Cass Greaves - He's Whiskey in a Teacup (2015) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen of the Bayou (04:21)
-02. Devil Boy (05:10)
-03. You Ain't Been Around (05:02)
-04. St Louis Blues (04:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA0F1BDB6AE253778E47A868A8C50E032E1B06D
 ```
 
 https://mybot314.ru/tekegram_catalog/

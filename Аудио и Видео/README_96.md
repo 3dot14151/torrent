@@ -1,3 +1,61 @@
+###  Публикация: 1526068   (738823) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic, Neev Kennedy, Bote - What Else Is There To Love (3:31)
+02. Costa, Cathy Burton - Always (3:38)
+03. Beat Service, Ana Criado - So Much Of Me Is You (Radio Edit) (3:33)
+04. 4 Strings, Susanne Teutenberg - A Brand New Day (2:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DE6CD05DE0DCE0293E3059872D1B723D929755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526069   (738821) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic, Cathy Burton, AxelPolo - Loving Overflow (Radio Edit) (3:37)
+02. Costa, Sarah Lynn - The Water's Edge (3:51)
+03. 4 Strings, Maria Nayler - Remember You As Mine (3:21)
+04. Tenishia, Ana Criado - Ever True (Radio Edit) (4:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4B361C950FC70A6C4D59DB859CEA6C824F0783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526083   (738820) от 23.01.2022
 
 VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbps] <Jazz>
@@ -684,64 +742,6 @@ Lamuzgueule - Electro Swing Best of, Pt. 2 (2021) [AAC|~330 Kbps] <Electro Swing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B6C4916D99B6291DE59FDBFE1339EE9F23B89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526323   (738485) от 24.01.2022
-
-Lamuzgueule - Electro Swing Best of, Pt. 1 (2021) [AAC|~339 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamuzgueule, Dimaa - Prohibition (4:08)
-02. Lamuzgueule, Lyre le temps - French Kiss (3:10)
-03. Triple Lutz (3:51)
-04. Lamuzgueule, Thomas Faure (Electro Deluxe), Syd - Black Swan (4:42)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9C6F55BFB3329C5AC3E98B0A0C0B76BE753ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526332   (738484) от 24.01.2022
-
-Swing Republic - Midnight Calling (2012) [AAC|~327 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing Republic, Karina Kappel - Fall (3:19)
-02. Swing Republic, Karina Kappel - Mama (3:20)
-03. Swing Republic, Karina Kappel - Midnight Calling (3:44)
-04. Swing Republic, Karina Kappel - Sugar Bubble (3:37)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12081AADE31163EEB9B423EE92C6598E590BBB9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

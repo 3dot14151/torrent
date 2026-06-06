@@ -1,3 +1,148 @@
+###  Публикация: 1347709   (148656) от 24.12.2019
+
+VA - Animalistic: Hard Rock Review (2019) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148656.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Duneeater - Stigma 66
+002. Gran Duca - All Hail The Autowagen
+003. Senchineru - Creep
+004. Let Them Hang - Network In Blood(   Читать дальше...   )Жанр: Hard Rock, Hardcore, MetalПродолжительность: 08:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954E8AE069CD0D877D09A5A1841059247ABCFA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271683   (148469) от 24.12.2018
+
+VA - Rock in Auto Vol 4. (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saving Abel - Addicted (3:43)
+02. 12 Stones - Hey Love (3:53)
+03. AC / DC - You Shook Me All Night Long (3:30)
+04. Adelitas Way - Last Stand (3:42)(   Читать дальше...   )Жанр: RockПродолжительность: 06:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A7C5999061B031079F1613EBC653D4C9171C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086794   (147936) от 26.12.2016
+
+VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electronic>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Karma Police 04:22
+02 Burn The Witch 03:41
+03 Creep 03:56
+04 Reckoner 04:51(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 02:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01368BEDB1A4F423EDE877457101D809FCF800A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969118   (147010) от 27.12.2015
+
+VA - Рок впрок 4 (2015) [MP3|320 кб/с] <Рок, Поп-Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мара - За мной
+02. J-МОРС - Не край
+03. Ракоший Нелч - Куда уходят кумиры
+04. Pauca Verba - Ничего(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B881978F63BABC1B15E6431AD5D4C5686DC2D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519813   (145395) от 26.12.2021
+
+The BossHoss - Compilation (2021) [MP3|320 Kbps] <Rock/Country/Rockabilly>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Like It Like That
+02. My Country
+03. Stallion Battalion
+04. Sex on Legs(   Читать дальше...   )Жанр: Rock/Country/RockabillyПродолжительность: 05:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3E5938B74B222EC7EA07EF2FEAABAE60CFB8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519991   (145272) от 26.12.2021
 
 Wolf Hoffmann - Compilation (2021) [MP3|320 Kbps] <Rock, Instrumental>
@@ -606,157 +751,6 @@ Chris Bell - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3098E6A9207A0D994061E82A0E5A602D7D86D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521056   (137601) от 31.12.2021
-
-Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadow
-02. Back to Texas
-03. Sleepless Night
-04. Nobody  Knows(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086360311628F4C36EBBE7904A688B24563815B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596432   (131265) от 30.12.2012
-
-VA - Rockовое Нашествие-Русская версия (2012) [MP3|128 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ДДТ - Напиши мне, напиши
-002 Алиса - Качели
-003 Король и Шут - На краю
-004 Сергей Шнуров - Sky Whisky
-005 Бригадный подряд, Король и шут, Пилот и Кукрыниксы - Питер рок-н-ролл
-006 Мельница - Дороги
-007 Браво - Вот и я
-008 Louna - Мама
-009 СерьГа - Берегите лес
-010 Чайф - Для него(   Читать дальше...   )Жанр: RockПродолжительность: 12:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CE0FE43F95787647EE4AC6478067D6396215B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683944   (127858) от 15.12.2023
-
-VA - Jingle Bell Rock (2023) [MP3|320 Kbps] <Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127858.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Twisted Sister - Heavy Metal Christmas (The Twelve Days of Christmas) [05:15]
-002. L.A. Guns - Merry Xmas Everybody [04:11]
-003. Cheap Trick - Christmas Christmas [02:17]
-004. Alice Cooper, John 5, Billy Sheehan, Vinny Appice - Santa Claws Is Coming To Town [04:20](   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F63A21FAD2A6F5E2E4A20A434AC42A663F6DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685753   (127070) от 19.12.2023
-
-Dr. Arthur Krause - Best of (2003-2016) Compilation Album [MP3|320 Kbps] <Goth Rock, Darkwave>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Hard Hands
-02. Born in Russia
-03. Dance like Hell
-04. Deported Soul II(   Читать дальше...   )Жанр: Goth Rock, DarkwaveПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED49AE5766E566A7B1EE44112EC2BF7C3B2469E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689101   (124808) от 01.01.2024
-
-VA - Полный Отстой (2023) [MP3|320 Kbps] <Thrash, Metal, Hard>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taliesin - Faceless Women (04:26)
- 02. Acod - Nekyia Catharsis (05:25)
- 03. Amberian Dawn - Head Over Heels (03:40)
- 04. Ancient Mastery - Eternal Night (08:07)(   Читать дальше...   )Жанр: Thrash, Metal, HardПродолжительность: 05:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30436F1F35297CC22E1BC36B88C2A0B06F1A3D16
 ```
 
 https://mybot314.ru/tekegram_catalog/

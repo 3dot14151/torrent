@@ -1,520 +1,25 @@
-###  Публикация: 919423   (582553) от 19.07.2015
+###  Публикация: 1552834   (585852) от 22.05.2022
 
-Disney Universe / Disney: Мир Героев (2011) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582553.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Disney: Мир Героев» - это новая компьютерная и видеоигра в жанре аркада, созданная по мотивам популярных анимационных и художественных фильмов Disney и Disney/Pixar. Игроки смогут примерить на себя костюмы любимых персонажей и отправиться в путешествие, решая головоломки и сражаясь с противниками. В игре могут принять участие от одного до четырех человек одновременно. (   Читать дальше...   )Тип издания: LicenseРазработчик: EurocomЖанр: Action / AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F93BE488AEB3520D48FA94902629C7AE5CD2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919389   (582552) от 19.07.2015
-
-Geekbrains | Objective C. Уровень 1 Программирование под iPhone и iPad (2015) PCRec [H.264/720p-LQ]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начальных знаний в программировании (в том числе в программировании для устройств Apple) не требуется. Необходимо наличие компьютера или ноутбука Apple.Жанр: Программирование, Objective-CПродолжительность: 18:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDA0B739C8A5AB874247FFB037A620E2EA3C4F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919436   (582551) от 19.07.2015
-
-YelloSOFT WPI The version 4 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>WPI
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cборник предназначен для установки программ, распределённых по категориям на чистую операционную систему семейства Se7en\8\8.1\10
-Вам стоит только выбрать программы по душе и надобности и запустить установку. (не все программы имеют тихую установку!)
-Все программы в сборке имеют подробное описание, что и для чего (если кто-то не знает)
-Для большего удобства использования (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D805B0F0C78A13BD1AA008824CA32146B4992B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880904   (582550) от 19.07.2015
-
-AntiCollector Base Updater 2.7 [Ru] - базы коллекторских телефонных номеров
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Написанна небольшая программа, для скачивания базы коллекторских телефонных номеров из программы АнтиКоллектор Россия платная,  для вставки в Root Call Manager. Данную базу можно использовать и в других программах с "чёрным списком", может быть даже на яблоках, но я пользователь Root Call Manager. Сразу скажу, что программа не имеет никакого отношения к (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 23 июня 2015 г.Разработчик: debiloid78Поддерживаемая ОС: Работает под Win XP, Win Vista, Win 7, Win 8/8.1Жанр: Программы для ПКЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF535117C1A37C5D2BCF6851569A1FEF7D66219B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919158   (582549) от 19.07.2015
-
-Niko: Through The Dream (2015) [Ru/En] (1.0) RePack R.G. Механики
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Niko - духовное путешествие через сны, где приключения, головоломки и загадки собрались вместе в ониристическом и минималистичном мире. Это место, в котором живут картины прошлого, эмоции, воспоминания, сожаления, радости, все важные события, которые остались в памяти. Нико попала в сон-­прошлое и теперь хочет вернуться обратно. Но ей не обойтись без вашей помощи (   Читать дальше...   )Тип издания: RepackРазработчик: Studio PaintЖанр: Минималистическая игра-головоломка с видом от первого лицаЯзык озвучки: -/-Язык интерфейса: Английский, русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286E1F74A91DED13838D80DEF6F4C502F14A3167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919623   (582548) от 19.07.2015
-
-Adobe Illustrator CC 2015 19.0.1 RePack by D!akov [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Illustrator CC 2015 – это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях цифровой графики, иллюстраций и печати, при разработке любых видов мультимедийных ресурсов, как то печатных материалов, интернет-содержимого, интерактивных средств, видеороликов и мобильных приложений. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98C1A0BB4569563A776C140DB2DE804FD930AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 130120   (582547) от 19.07.2015
-
-BBC: По странам и континентам: Южная Америка, Дикая Австралазия, Дикая Африка, Дикая Индонезия, Дикая Индия   (1997-2003)
-
->>След.
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_582547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 27~49:00:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919628   (582546) от 19.07.2015
-
-Adobe Flash Professional CC 2015 15.0.1.179 RePack by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Flash Professional CC 2015 - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Flash Professional CC 2015 также позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2B47092CAA87340CB4662D185C29D30A1BDDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919559   (582545) от 19.07.2015
-
-Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 07.2015 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582545.jpg" />
-</div>
-
-
-###  Подробнее
-
-32-х битная операционная система Windows® 7™ максимальная (x86) с интегрированными обновлениями, оформлением в темно-голубом стиле и полуавтоматической установкой на 1 DVD. Содержит удобное предзагрузочное меню для проверки компьютера.
-
-Сборка основана на официальном образе MICROSOFT MSDN:
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.isoЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F488E5504F4323450DEABC09DF3B1E644069BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041513   (582544) от 09.08.2016
-
-Mike Pachelli - Simplicity (2006) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simplicity - 4:19
-02. Melodie The Dog - 3:55
-03. Evian - 4:33
-04. Reminisce - 4:34(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6343F623E41554E51AFB67A08B4AB5A7BBDC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041548   (582543) от 09.08.2016
-
-Волейбол. Олимпийские игры 2016. Женщины. Группа А. Тур 2. Россия - Южная Корея (2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582543.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 августа 2016 года, вторник. 02:30 МСК
-Женщины. Группа A. 2-й тур. Россия - Южная Корея
-Арена: Мараканазиньо (Рио-де-Жанейро, Бразилия)Телекомпания: Матч Игра HDЖанр: СпортПродолжительность: 02:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975AA5E7C4F26398D45EA953C12E4AAAAB37DC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041554   (582542) от 09.08.2016
-
-Волейбол. Олимпийские игры 2016. Женщины. Группа А. Тур 2. Бразилия - Аргентина (2016.08.08) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582542.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 августа 2016, вторник. 04:35 МСК
-Женщины. Группа A. 2-й тур. Бразилия - Аргентина
-Арена: Мараканазиньо (Рио-де-Жанейро, Бразилия)Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05D2D0E3C4D0876604802AE9513829620CA91AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041577   (582541) от 09.08.2016
-
-Фехтование. Олимпийские игры 2016. Женщины. Сабля. Полуфиналы и финал (08.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582541.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 августа 2016 года, понедельник. 22:00 МСК
-Фехтование
-
-Арена: Кариока Арена 3 (Рио-де-Жанейро, Бразилия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: Русский (С. Баландина)Продолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D9A237B9FF0960F8814D12EA4B29A43E4D0988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041586   (582540) от 09.08.2016
-
-Гребной слалом. Олимпийские игры 2016. Квалификация (08.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582540.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 августа 2016 года, понедельник. 18:30 МСК
-Гребной слалом
-
-Арена: Уайтуотер Сентер (Рио-де-Жанейро, Бразилия)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Гатаулин)Продолжительность: 01:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827F820FA87DA646E3675D5B6A16B68809EA8B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041622   (582539) от 09.08.2016
-
-Спортивная гимнастика. Олимпийские игры 2016. Мужчины. Командное многоборье. Финал (08.08.16) HDTVRip [H.264/720p][hand made 50fps][EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная трансляция.
-08 августа 2016 года, понедельник. 22:00 МСК
-Мужчины. Командное многоборье. Финал
-(   Читать дальше...   )Телекомпания: BBC SportЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 03:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F60B3BDD399F2AE1F356F69B3E286DE5CA2D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041515   (582538) от 09.08.2016
-
-Mike Pachelli - A Jazzy Little Christmas (2009) [FLAC|Lossless|image + .cue] <Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Christmas - 3:25
-02. Santa Claus Is Coming To Town - 3:11
-03. Frosty The Gypsy Jazz Snowman - 2:48
-04. Have Yourself A Merry Little Christmas - 3:10(   Читать дальше...   )Жанр: Jazz, ChristmasПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7111FF23C51933AEEE64FBF5E76CE8F30987F028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041566   (582537) от 09.08.2016
-
-Олимпийские игры 2016. Все на Матч! Рио-2016. Выпуски 11 - 12 (07.08.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзоры событий и соревнований, аналитика, статистика, анонсы, интервью, эксперты.
-Не все выпуски будут посвящены только Олимпиаде есть и смешанные. Они так же выходят в эфир под названием: "Все на Матч! Рио-2016".
-Ведь никто не отменял Лигу Чемпионов, Лигу Европы, Международный Кубок Чемпионов и прочие турниры.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийПродолжительность: 00:19:29 - 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08299EC339BCB966688A0F1660E3A0F41756CE93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041519   (582536) от 09.08.2016
-
-Микроорганизмы являются силой, которая будет приводить в движение микроскопические "ветряные электростанции"
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_582536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветряные электростанции являются одним из наиболее распространенных видов альтернативных источников энергии. Однако, при всех их достоинствах, такие электростанции имеют целый ряд существенных недостатков, они оказывают влияние на климатическую обстановку в близлежащих районах, они служат помехами для радаров самолетов и авиадиспетчерских служб, они требуют больших (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041616   (582535) от 09.08.2016
-
-Раrаdох - Pangea (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Speed Metal, Thrash Metal, Power Metal>
+Sageness - Tr3s (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Instrumental, Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Apophis
-02. Raptor
-03. The Raging Planet
-04. Ballot or Bullet(   Читать дальше...   )Жанр: Speed Metal, Thrash Metal, Power MetalПродолжительность: 01:05:33
+01 - The Effects Of Colours (00:09:48)
+02 - Greenhouse (00:08:06)
+03 - Spirit Machine (00:06:18)
+04 - Event Horizon (00:12:22)Жанр: Heavy Psychedelic, Instrumental, Stoner RockПродолжительность: 00:36:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB642A6D0660EF751F74238E91914932B71A649C
+magnet:?xt=urn:btih:8D5A009C1335B63CDFB5E2857DE2DD37597B3897
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -522,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041672   (582534) от 09.08.2016
+###  Публикация: 1552591   (585851) от 22.05.2022
 
-Волейбол. Олимпийские игры 2016. Мужчины. Группа B. 2-й тур. Россия - Аргентина (09.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Англия - Мрачный рай (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Darkwave, Indie>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585851.jpg" />
 </div>
 
 
 ###  Подробнее
 
-09 августа 2016 года, вторник. 15:30 МСК
-Волейбол
-
-Арена: Мараканазиньо (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Стецко)Продолжительность: 01:51:26
+01 - Колыбельная (00:03:51)
+02 - Связали по рукам (00:04:42)
+03 - Станем рассветом (00:03:36)
+04 - Про расстояния (00:03:42)(   Читать дальше...   )Жанр: Post-Punk, Darkwave, IndieПродолжительность: 00:40:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:638C085ACA5C74B8DFF3E1AC8B13F6DADE0801D4
+magnet:?xt=urn:btih:C7E9277BDF2B4D913B156CC491C4BA8F72029D83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041645   (582533) от 09.08.2016
+###  Публикация: 1552746   (585850) от 22.05.2022
 
-Спортивная гимнастика. Олимпийские игры 2016. Мужчины. Командное многоборье. Финал (08.08.2016) IPTVRip [H.264/1080p-LQ]
+Six Silver Suns - As Archons Fall (2021) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585850.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Командное многоборье, наши пробились в финал. Смотрим и болеем. !!!!Телекомпания: Матч!HDЖанр: Телепередача, Спорт, ВидовойПродолжительность: 02:47:34
+01. Lord Of The Southern Tower (4:45)
+02. To The Unknown (4:24)
+03. Children Of The Stars (3:59)
+04. Fading By Light (4:30)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1E1C8AD3A920E31CE83036408D9B41EDD24EDFE
+magnet:?xt=urn:btih:92A36FD860759FC235B6A7CF616B6350B61CFD02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041506   (582532) от 09.08.2016
+###  Публикация: 1552639   (585849) от 22.05.2022
 
-Волейбол. Олимпийские игры 2016. Мужчины. Группа B. 1-й тур. Россия - Куба (07.08.2016) HDTV [H.264/1080i]
+Train - AM Gold (2022) [FLAC|Lossless|WEB-DL|tracks] <Roots Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-08 августа 2016, понедельник. 02:30 МСК
- Предварительный раунд. Группа B. 1-й тур.
-
-Стадион: Мараканазиньйо (Рио де Жанейро, Бразилия) , вместимость: 12000Телекомпания: Матч! Игра HDЖанр: СпортПродолжительность: 01:54:51
+01 - AM Gold (00:02:49)
+02 - Running Back (Trying to Talk to You) (00:04:01)
+03 - Cleopatra (00:03:20)
+04 - Bettin' On Me (00:03:28)(   Читать дальше...   )Жанр: Roots RockПродолжительность: 00:38:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EF994FF08D05E61D3448C7CD67B48ABBBD5F27D
+magnet:?xt=urn:btih:B7032F66D9D24C12D65106CE6A5A666FD52C9DE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,25 +114,342 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041642   (582531) от 09.08.2016
+###  Публикация: 1552666   (585848) от 22.05.2022
 
-Кирей Мэргэн | Тайна Караидели (1985) [DJVU]
+Cyanide 4 - Amalgama (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Secret Doctrine (00:04:02)
+02 - Warlike Fellow (00:03:23)
+03 - Perfect Sensation (00:03:44)
+04 - So in Vain (00:04:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE542468AD306668D08DC1533AF97894C39F1FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552158   (585847) от 22.05.2022
+
+VA - The Original Masters, Vol. 5 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_585847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Paul - East (6:20)
+02. Mandingo - Kubile Kumba (3:51)
+03. Can - ...And More (2:35)
+04. John Gibbs And The Us Steel Band Orchestra - J'ouvert (5:20)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552670   (585846) от 22.05.2022
+
+Evals Mess Project - Born of the Flower (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - For Those Who Sails and Weeping (00:06:58)
+02 - Witch's Fury (00:08:25)
+03 - Second Dream of Exoria (00:03:57)
+04 - Tears of Death (00:05:21)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CC480AC45177FF0F0A9C30FAAD1D0F52F55347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552162   (585845) от 22.05.2022
+
+VA - The Original Masters, Vol. 7 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eli's Second Coming - Love Chant (5:57)
+02. Tony Silvester - Pazuzu (6:38)
+03. Dennis Coffey - Boogie Magic (5:46)
+04. Porn Music - Boogie Nights (2:38)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C2E14FFAF7D6F9C0791483727618C52E6B4260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552164   (585844) от 22.05.2022
+
+VA - The Original Masters, Vol. 8 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tee Cee's - Ecstasy (8:21)
+02. Calender - Hypertension (5:50)
+03. Pam Todd And The Love Exchange - Let's Get Together (5:23)
+04. Cory Daye - Green Light (9:00)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90A45FB399B01781CC7883ECAECEE8351F235C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552657   (585843) от 22.05.2022
+
+Red Moon Shaman - Chapter One (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pale Rider (00:05:01)
+02 - Rolling Sunshine (00:05:00)
+03 - Spirits (00:04:53)
+04 - Thorns (00:04:42)(   Читать дальше...   )Жанр: Heavy Psychedelic Rock, Stoner RockПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCD7E55F6EFDCF4387D5739BEBA04B806C7E41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552445   (585842) от 22.05.2022
+
+Lonerider - Sundown (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasyland
+02. Cross the Border
+03. Undefeatable
+04. Harder Love(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues RockПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8CD9B27D012515C0D0D453392FC29909C35394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552644   (585841) от 22.05.2022
+
+Iris Divine - Mercurial (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bitter Bride (00:05:03)
+02 - Silver Tongued Lie (00:04:19)
+03 - Thirteen (00:07:09)
+04 - Sapphire (00:03:49)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E61D7725F449C82C1667E714B730B0F4618042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552157   (585840) от 22.05.2022
+
+VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eruption - I Can't Stand the Rain (6:28)
+02. Chilly - For Your Love (11:48)
+03. Skatt Brothers - Walk the Night (5:23)
+04. Bay City Rollers - Don't Stop the Music (5:59)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70740C18D6B325B3769431FF445A5EE16987420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552165   (585839) от 22.05.2022
+
+VA - The Original Masters, Vol. 9 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.C. Larue - I Don't Want to Lose You (14:04)
+02. Blair - Nightlife (7:19)
+03. Climax Blues Band - Couldn't Get It Righ (3:03)
+04. Billy Paul - Let the Dollar Circulate (4:56)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461D83DC3845E7C1175B04022BE874FED9256283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552886   (585838) от 22.05.2022
+
+Полидор. Чудесные пилюли / Pillole portentose (1910) WEBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая киношутка. Два приятеля собрались на охоту, а один раздобыл где-то таблетки. Непростые таблеточки. Закинешься такой таблеточкой и начинаешь суетиться как подорванный...Производство: Италия, Società Italiana CinesЖанр: Комедия, короткометражный, немое киноРежиссер: Нет сведенийАктеры: Джузеппе Гамбарделла, Полидор (Фердинанд Гийом)Перевод: НемойСубтитры: ОтсутствуютПродолжительность: 00:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6AB281ECA6FCB29D6EDFAE4D14C3F83A186FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552894   (585837) от 22.05.2022
+
+Чешские народные сказки | Златовласка (1953) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приключенческая повесть известного башкирского писателя Кирея Мэргэна (1911 — 1984) о пионерах, которые отправляются на лодках в поход по реке Караидель. По пути они ближе узнали родной край, встречались с разными людьми, а главное — собрали воспоминания участников гражданской войны.Жанр: Детская прозаПеревод: А. ТверскойФормат: DJVU
+В книге представлены 4 ярких представителя чешских народных сказок: "Златовласка", "Янко-крепыш", "Учёный пёс" и Гонза и хозяин".
+Для детей младшего школьного возраста. Иллюстрации В.Минаева.Жанр: СказкаПеревод: Т. Аксель, М. Зельдович и С. ШмеральФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1C511A956C3050F6C66C123FF56CEF69A2ADC4B
+magnet:?xt=urn:btih:BE6CBD4EBD924A8E825BD62D612D31D7137FE45F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,28 +457,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041528   (582530) от 09.08.2016
+###  Публикация: 1552156   (585836) от 22.05.2022
 
-Tiny Grimes & J.C. Higginbotham - Callin' The Blues (1958) 1994, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+VA - The Original Masters, Vol. 3 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Callin' The Blues [08:48]
- 02.Blue Tiny [11:38]
- 03.Grimes' Times [11:25]
- 04.Air Mail Special [07:34]Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:39:23
+01. Maynard Ferguson - Gonna Fly Now (4:21)
+02. Duke Of Burlington - Flash (3:35)
+03. V.I.P. Connection (Arpady's) - West Coast Drive (4:40)
+04. John Forde - Don't You Know Who Did It (3:29)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A37F46802C9EF07973AD17EDFEC8B6D55910B1E0
+magnet:?xt=urn:btih:861634E0077677D8CBFDED740D2A08FABD07330F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,26 +486,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041691   (582529) от 09.08.2016
+###  Публикация: 1552160   (585835) от 22.05.2022
 
-Permute 2.2 [Multi/Ru]
+VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muscle Shoals Horns - Break Down (3:41)
+02. Brooklyn Express - Hollywood Party (6:13)
+03. Cissy Houston - Think It Over (7:59)
+04. Glitter Band - Makes You Blind (5:04)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A35959F7AFFF15F87EAADA9713DC744AAB5FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552748   (585833) от 22.05.2022
+
+Robin Red - Robin Red (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Leave Me (With A Broken Heart) (4:48)
+02. (I'm A) Bad Habit (3:13)
+03. Everlyn (3:21)
+04. Freedom (4:30)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE642F767477530ADA141C943A877AF4D2EBF5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552845   (585831) от 22.05.2022
+
+VA - DMC Freshers Ball (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Synth-pop, Pop Rap, Pop Rock, Indie Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_585831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - The Freshers Monster Ball (Student Party Mix)(1)
+02. Various Artists - The Freshers Monster Ball (Student Party Mix)(2)
+03. Various Artists - The Freshers Monster Ball (Student Party Mix)(3)
+04. Various Artists - Rock Party 2 (Re-Edit)(   Читать дальше...   )Жанр: Synth-pop, Pop Rap, Pop Rock, Indie RockПродолжительность: 01:18:55 hrs
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357973   (585830) от 02.07.2011
+
+X-men / Люди Икс [2011, TV, 12] HDTV 720 raw + rus
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 августа 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+Эволюция продолжается! Среди homo sapiens постепенно появляется новая раса с необычными способностями – кто-то овладел стихиями, обрел невероятную силу и скорость, другие читают мысли или проходят сквозь стены. Страх, любопытство, неприятие, агрессия – вот реакция обычных людей на тех, чье существование перестало быть секретом для публики. Власть имущие ищут контроль над мутантами, некоторые мутанты открыто заявляют, что раз они «следующая ступень», то надо объединиться и править «людишками». Лишь небольшая группа одаренных озабочена не властью или личной выгодой, а поиском согласия в новом мире, помощью людям и себе подобным. Их зовут просто – «Люди Икс».
+
+После многих битв, великих побед и горьких неудач, группа профессора Ксавье рассеялась. Но вот очередной тревожный сигнал приходит (конечно же!) из Японии, и краткое расследование показывает, что беда грозит не отдельным лицам, а судьбам мира. А это значит, что Циклопу, Шторм, Зверю и Росомахе пора вновь садиться в иксоплан и лететь на острова, в район Тохоку, (   Читать дальше...)Жанр: приключения, фантастикаРежиссер: Кидзаки ФуминориПродолжительность: 12 серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09C4EF9B521F2862A89EA70757CE98329AF4D770
+magnet:?xt=urn:btih:B0E1444BC0DC978CD4958502DC781E9F36AEED72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,25 +601,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041627   (582527) от 09.08.2016
+###  Публикация: 357965   (585828) от 02.07.2011
 
-Газета | Попутчик-Криминальное чтиво №8 (2016) [PDF]
+Русский крестный отец / The Russian Godfather (1996) DVDRip
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Криминальное чтиво» - свежая информация и фотографии с места событий, истории о криминальном мире, детективное чтиво, свежие новости и многое другое. В каждом номере вы найдете статьи о самых громких и сложных уголовных делах, которые когда-либо рассматривались в суде.Жанр: История, криминалистика, детективФормат: PDF
+Банда «беспредельщиков» из бывшего Союза перебирается в Америку, где «пацаны» наводят ужас на Лос-Анджелес. Ограбления банков, наркотики, проституция, кровавые разборки на улицах — полиция ничего сделать с нашими интеллектуалами не может.
+
+Два крутых агента безопасности, русский и американец, должны нейтрализовать нашествие варваров на беззащитных американских обывателей. Семью русского офицера убивают, жену и дочь американца похищают и продают, но охотники на крестного отца русской мафии от этого только распалились.Жанр: Боевик, ПриключенияРежиссер: Йорго ОгненовскиАктеры: Йорго Огненовски, Джефф Конуэй, Русс Рэссик, Ливэни, Нильс Стюарт, Драги Поповски, Герман Синицин, Ким Доусон, Кимберли Стивенс, Драгана Огненовски и другие.Перевод: Авторский (одноголосый) Юрий СербинПродолжительность: 1: 28: 51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84D61A8B6F5067F2FA6503211EB420D7AF8FE5B4
+magnet:?xt=urn:btih:DB96B0FE4EE719F1D4F7BF25661F76796DF46265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357518   (585825) от 02.07.2011
+
+Амели на Мели (Александра Образцова) - Студийный сборник (2011) [MP3|160 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585825.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Навстречу страху
+ 2. Забыть её
+ 3. Безымянной
+ 4. Скажи
+ 5. Я знаю
+ 6. Если бы
+ 7.  Бродит утро
+ 8.  Наизусть
+ 9.  Прости мне
+ 10.  Одиночество, спи!(   Читать дальше...)Жанр: RockПродолжительность: 01:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BC3CFCB6B36160FA2FABB41603DD11AE81A914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357986   (585824) от 02.07.2011
+
+Михаил Задорнов "Антология Юмора" (2008) /2хDVD5/
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Избранные концерты живого классика российского юмора и сатиры Михаила Николаевича Задорнова на телеканале РЕН ТВ. В передачу вошли самые лучшие концертные номера из ранние демонстрированных на РЕН ТВ концертов за период с 2005 по 2007 год.Жанр: КомедияПродолжительность: 10 х ~ 01:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0046C3676AA6B9AFB3F7BD4349357F98173E24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357784   (585823) от 02.07.2011
+
+Эффективная прокачка пресса (2004) DVDRip [En]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшего комплекса упражнений на пресс чем этот вы еще не находили!!! Советуем вам качать пресс следуя этому видео, повторяя за тренером. Сама тренировка идет 5:30 мин, но тяжело становиться уже после первых 30 секунд. Ну а как иначе?? Красота требует жертв!! Еще один плюс к тому, что в конце видео делают растяжку пресса, это делает его более рельефным.Жанр: ОбучающееПродолжительность: 00:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA17CDFD538EF1D8F6BEEAED04E851CBFC0DC32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357911   (585822) от 02.07.2011
+
+Месть в Сиэтле / True Justice: Dark Vengeance (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть копом нелегко, и в этом не раз убеждался бывалый детектив Элайя Кейн, повидавший на своём веку немало драк, перестрелок, локальных войн и жестоких схваток. В этом он уверяет и свой отряд полицейских-коллег и напарников, большинство из которых являются совсем зелёными новичками. Однако, жизнь на улицах города является столь же непростой, сколь и опасной, поэтому блюстители закона и охранники правопорядка вынуждены день за днём пресекать правонарушения и предотвращать преступления, ловить бандитов и арестовывать наркоторговцев.
+ Опытный Элайя во всём помогает и способствует юным законникам, а также вразумляет и наставляет их на путь праведный. Постепенно улицы очищаются от маргинальных нечистот и презирающих закон лиц, но всё новые проблемы и неприятности дают знать, что южному правосудию не быть невостребованным. Элайя Кейн и его верная команда помощников ни на шаг не отступят от своего, продолжая лоббировать букву закона повсеместно и там, где, кажется, её не уважают и вовсе не признают. Они непременно добьются, (   Читать дальше...   )Жанр: боевик, триллер, драмаРежиссер: Вейн Роуз, Киони Ваксман, Лауро ЧартрэндАктеры: Стивен Сигал, Алекс Маллари мл., Джоуз Исо Пена, Стюарт Уильям Биг Слипс, Кайл Кэсси, Майкл Эклунд, Марина Ева, Питер Грэхэм-Годрэу, Сара Линд, Джим ТорбернПеревод: Профессиональный (многоголосый)Продолжительность: 01:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87F514BAF32BFB2679AF6BCE1E59A10D7E9324B
 ```
 
 https://mybot314.ru/tekegram_catalog/

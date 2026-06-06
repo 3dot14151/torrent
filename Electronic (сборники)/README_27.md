@@ -1,3 +1,90 @@
+###  Публикация: 987116   (927989) от 16.02.2016
+
+VA - Tempting Lounge: Sensual Lounge Music Selection (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luigi Seviroli - Aeoliah - Full Mix
+02. Francesco Demegni - Seduction
+03. Antonio Vernuccio - Flying Over the Sea
+04. Giacomo Bondi - Your Style - Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5703E0CBFE6FDAFD1982C4B9DEA51692A81D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987247   (927981) от 16.02.2016
+
+VA - Vintage Sounset Lounge (2016) [MP3|320 kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Source - Framed Profile - Curt Clever Version
+02. Chad - Making Love - Brief Mix
+03. Derail - Freedom - Deep Little
+04. Bee Side - Can Be - Tiny Original(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E04D4054E08F0B83BE0A4A7E5630C71F78D301E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987019   (927978) от 16.02.2016
+
+VA - Cocktail Chillhouse Collection (2016) [MP3|320 kbps] <Chill House, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamar Ensemble - About Yesterday (05:46)
+02. The Sura Quintet & Franco Poti - No Inhibitions (06:03)
+03. Rhythmphoria - Highlights (05:32)
+04. Diario - Gracefulness (05:39)(   Читать дальше...   )Жанр: Chill House, Lounge, ChillOutПродолжительность: 02:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11184EBC2748ECCDB7DD2BB4DE5418702B017ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986959   (927965) от 16.02.2016
 
 VA - Essentials Dance Effects Skyline (2016) [MP3|251-320 кб/с] <Club, Disco, Electro, Bigroom, Progressive>
@@ -658,93 +745,6 @@ VA - Alone With You: Deep House Extended Set (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDF4F207EE4FEEBC01A06229A10E47CC24043D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366378   (923874) от 11.03.2020
-
-VA - Beatport Chillout: Electro Sound Pack #28 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maximilien - Crazy Vocoding
-002. Chris Le Blanc - Into My Dream (Original Mix)
-003. Ambrozia - Velvet (Peter Martin Remix)
-004. Ticane - Altitude(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A2423F28009551AAEAA213778FF6922D84C910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095926   (922871) от 22.01.2017
-
-VA - Kazan Deeper 2017 (2017) [MP3|320 Kbps] <Deep House, Melodic, Progressive, Funky>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amen B & Miroslav Vrlik - 2 Faced People (Martin Cloud Remix) 06:01
-02. Rauwkost - Slipe And Slide 06:49
-03. Peer Van Mladen - With You 05:37
-04. Sam Greycious - Going Back 08:35(   Читать дальше...   )Жанр: Deep House, Melodic, Progressive, FunkyПродолжительность: 02:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8895AA4B14A36707DAEFDAC2F2143AE929E6AB54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095910   (922827) от 22.01.2017
-
-VA - Ultimate Vocals (2017) [MP3|320 Kbps] <Nu Disco, Funky, Progressive, Club, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix And Bebe Rexha - In The Name Of Love 03:15
-02. Armin Van Buuren Feat. Kensington - Heading Up High (Swanky Tunes Remix) 03:11
-03. Max Ruby - Meldonium (Radio Edit) 03:09
-04. Greenage - Drift 08:05(   Читать дальше...   )Жанр: Nu Disco, Funky, Progressive, Club, SoulfulПродолжительность: 05:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21104B6E172AC3E41C904372BF46FEE1B861A84
 ```
 
 https://mybot314.ru/tekegram_catalog/

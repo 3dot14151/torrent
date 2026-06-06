@@ -1,25 +1,25 @@
-###  Публикация: 1203907   (785463) от 04.02.2018
+###  Публикация: 1276645   (787626) от 17.01.2019
 
-VA - The Elegance Of Electronic Music - Deep House Edition #2 (2018) [MP3|320 Kbps] <Funky, Club House>
+Fogh Depot - Turmalinturm (Remixes) (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental Electronic, Dark Jazz, Doom Jazz>
 
 >>Electronic
->>House
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787626.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 2Gemeinsam - Want Some Love (Radio Edit)
-02. Scheinizzl - One More (Radio Edit)
-03. Mike Dem, Sanna Hartfield - Day Dream (Radio Edit)
-04. Biskuwi - Sadness Is A Reason To (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:56:44
+01. Alice Bob and Cypher (Franz Kirmann's A Kraftwerk Kiss Remix) (6:20)
+02. Meduse (Dima Ustinov Remix) (7:52)
+03. Alice Bob And Cypher (Saffronkeira Remix) (7:36)
+04. Quicksilver Spoon (Moa Pillar Remix) (5:49)(   Читать дальше...   )Производство: Denovali Records - den302Жанр: Experimental Electronic, Dark Jazz, Doom JazzПродолжительность: 00:41:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:726136EE51E1B50E8375A3AD18F899C3177972DC
+magnet:?xt=urn:btih:41CB3E2816B18B1F5FACB3F4D79547D579EDA5DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,195 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204136   (785462) от 04.02.2018
+###  Публикация: 1276774   (787625) от 17.01.2019
 
-Indian Wells - Where The World Ends (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Ambient, Experimental, IDM, Techno>
+Moonspell - 1755 (2017) Limited Edition [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Em Nome do Medo (5:32)
+02. 1755 (5:12)
+03. In Tremor Dei (4:27)
+04. Desastre (3:23)(   Читать дальше...   )Жанр: Dark Metal, Gothic MetalПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DB899EA881B23851A59DFCDCE4F9368A2E2DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276747   (787624) от 17.01.2019
+
+TunesKit Audio Capture 2.0.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший потоковый аудио рекордер и экстрактор для захвата, извлечения и редактирования любого звука на вашем Mac, включая Apple Music, Spotify, радио, игровую музыку, фильмы и т. д. С качеством без потерь и конвертирования записей в MP3, AAC, WAV, FLAC и многие другие популярные форматы.
+
+TunesKit Audio Capture для Mac - это самое умное и простое решение для аудиозаписи, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B8A9961482CC06A09AFEEFBB77B0BB57A96103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276724   (787623) от 17.01.2019
+
+TunesKit Video Cutter 2.0.0 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный инструмент для резки видео, который может не только обрезать и объединять видео и аудио с сохранением 100% качества без потерь, но также редактировать и сохранять разделенные видеоклипы с несколькими эффектами в любом популярном формате для воспроизведения на любом устройстве.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF96DA5D0903BA6C36A5124E8C5FA14AC3237A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276664   (787622) от 17.01.2019
+
+VA - Street Hits 80s (2018) [MP3|320 Kbps] <Hip-House, Pop, Jazzdance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaka Khan - Ain't Nobody 4:05
+02. Gwen Mccrae - Keep The Fire Burning 5:44
+03. Zapp - Dance Floor (Single Version) 3:56
+04. Slave - Watching You (Single Version) 3:33(   Читать дальше...   )Жанр: Hip-House, Pop, Jazzdance, DiscoПродолжительность: 02:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A39593CC5C38DB2069E235BDD7E990BA88F196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276662   (787621) от 17.01.2019
+
+VA - 80's Groove Record Box (2018) [MP3|320 Kbps] <Funk, Soul, Disco, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Benson - Love X Love (4:47)
+02. Chaka Khan - This Is My Night (4:40)
+03. Sister Sledge - All American Girls (4:43)
+04. Grover Washington, Jr. - Just The Two Of Us (7:23)(   Читать дальше...   )Жанр: Funk, Soul, Disco, SoulПродолжительность: 02:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE8F05336ACFF9B91E00CD9E104516806DB3A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276559   (787620) от 17.01.2019
+
+Дубликат / Jonathan (2018) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как многие жители Манхэттена, Джонатан просыпается ровно в 7 утра и отправляется на работу, а вечером ложится спать. Вроде бы всё, как у всех. Если бы не одно «но» — каждый день молодой человек проживает две жизни. Пока одна личность спит, вторая ведёт активную жизнь. И каждое утро Джонатану приходит видео от самого себя — о том, что он делал во второй половине дня.Производство: СШАЖанр: Фантастика, драмаРежиссер: Билл ОливерАктеры: Энсел Элгорт, Сьюки Уотерхаус, Патриша Кларксон, Мэтт Бомер, Дуглас Ходж, Сулейман Си Саване, Шунори Раманатхан, Джо Эгендер, Йен Унтерман, Алок ТевариПеревод: Многоголосый закадровый (iTunes)Субтитры: АнглийскиеПродолжительность: 01:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC7BEC4CE478F1011DD4F927008654D5F6E7EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276200   (787619) от 17.01.2019
+
+Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Motion Picture Soundtrack) (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack, Score, Synthwave>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787619.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Voices (4:42)
- 02. Cascades (4:56)
- 03. Forest Hills (5:30)
- 04. Some Stripes (6:37)(   Читать дальше...   )Жанр: Ambient, Experimental, IDM, TechnoПродолжительность: 01:02:20
+01. The 'Nam (01:24)
+02. The Raid On The House (03:29)
+03. The Deal (03:20)
+04. Confronting The Red Ninja (02:43)(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaveПродолжительность: 00:37:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1B6C276B3D73FAC67BD97FEF3BE092B80F0BA6C
+magnet:?xt=urn:btih:15F2EBE81066B1E702CA552AB119655F041F708D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +223,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203991   (785461) от 04.02.2018
+###  Публикация: 1276555   (787618) от 17.01.2019
 
-Св. Аммон и др. | Творения древних отцов-подвижников (2012) [DJVU]
+Дубликат / Jonathan (2018) BDRip [1080p] ATV
 
->>Разное (категория книг)
->>Религиозная литература
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые читателю «Творения древних отцов-подвижников» являются переизданием ставшей библиографической редкостью книги, вышедшей в 1990-е годы. В издании представлены переводы святоотеческих аскетических сочинений таких известных авторов Египетской пустыни IV века, как св. Аммон, св. Серапион Тмуитский, преп. Макарий Египетский, Стефан Фиваидский, блж. Иперехий, (   Читать дальше...   )Жанр: ПравославиеПеревод: А.И. СидоровФормат: DJVU
+Как многие жители Манхэттена, Джонатан просыпается ровно в 7 утра и отправляется на работу, а вечером ложится спать. Вроде бы всё, как у всех. Если бы не одно «но» — каждый день молодой человек проживает две жизни. Пока одна личность спит, вторая ведёт активную жизнь. И каждое утро Джонатану приходит видео от самого себя — о том, что он делал во второй половине дня.Производство: СШАЖанр: Фантастика, драмаРежиссер: Билл ОливерАктеры: Энсел Элгорт, Сьюки Уотерхаус, Патриша Кларксон, Мэтт Бомер, Дуглас Ходж, Сулейман Си Саване, Шунори Раманатхан, Джо Эгендер, Йен Унтерман, Алок ТевариПеревод: Многоголосый закадровый (iTunes)Субтитры: АнглийскиеПродолжительность: 01:40:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA581B9E8CE3E48E84A7A51876BD763027F8506A
+magnet:?xt=urn:btih:5D2C0A9C6A918B1B984E00619A04FAB953A4DA3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +249,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277375   (785460) от 20.01.2019
+###  Публикация: 1276731   (787617) от 17.01.2019
 
-Ashes of Ares - Well of Souls (2018) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
+Кэти Уильямс | Скажи машине «спокойной ночи» (2019) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Consuming the Mana
-02. The Alien
-03. Unworthy
-04. Soul Searcher(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:58:00
+Есть мандарины, работать при утреннем свете и… ампутировать фалангу указательного пальца на правой руке. Какие рекомендации услышишь ты от машины счастья?
+
+Перл работает на огромную корпорацию. По запатентованной схеме она делает всех желающих счастливее. Советы механизма бывают абсурдными. Но Перл нравится работа, да и клиенты остаются довольны. Кроме ее собственного (   Читать дальше...   )Жанр: Зарубежная фантастика, Социальная фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB66231F38A7E1CD4BD13CC6B06AA8098E86F21E
+magnet:?xt=urn:btih:4BE3A4306BEDB418EFA03ADE417AC3AF61D7B9C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +277,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277409   (785459) от 20.01.2019
+###  Публикация: 1276718   (787616) от 17.01.2019
 
-Blood Incantation - Starspawn (2016) [FLAC|Lossless|image + .cue] <Death Metal>
+Arturia Pigments 1.1.1.503 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787616.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vitrification of Blood (Part 1) (13:09)
-02. Chaoplasm (5:34)
-03. Hidden Species (Vitrification of Blood Part 2) (7:01)
-04. Meticulous Soul Devourment (4:16)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:20
+Многоплановый программный синтезатор.
+Очень мощный таблично-волновой виртуальный аналоговый синтезатор - это Pigments и он изменит способ создания музыки. Превращение в звук искры воображения - самая главная, волнующая часть создания музыки. Pigments делает этот процесс естественным, интуитивно понятным и ярким.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: Arturia IncПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B40E0DD4D939B5F7FF8E66D376CD09437E89B0B
+magnet:?xt=urn:btih:CE4F056B3259BDFCC9A1F01C5386F3D95B9E3C55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,361 +304,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277298   (785458) от 20.01.2019
+###  Публикация: 1276585   (787615) от 17.01.2019
 
-VA - Civil Dance Vol.9 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Vegas - Let The Bass Kick (Radio Edit)
-02. Martial Flowz - Arena
-03. Tcline - Insanity
-04. Glamrock Brothers - Long Train Runnin (Walker &  Daniels Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275852A4C307BB45572B07BBCD4D2CB393236E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277307   (785457) от 20.01.2019
-
-MRUKS - Deja VU Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MRUKS - UH
-02. MRUKS - FOX
-03. MRUKS - Tempore
-04. MRUKS - Ancient People(   Читать дальше...   )Жанр: Funky, Club House, RetrowaveПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45182DC63AD509EB52BF8DD33E55946799F1CFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277237   (785456) от 20.01.2019
-
-Lividity - Used, Abused, and Left for Dead (2006) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raped for Rent (3:00)
- 02. Gore Epitomite (0:47)
- 03. Seven19 (2:58)
- 04. Deviant Pleasures (2:28)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EA780C7E7AFFD0BCD3D48697851FED1B94F147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277371   (785455) от 20.01.2019
-
-Frozen Land - Frozen Land (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loser's Game
-02. Delusions of Grandeur
-03. The Fall
-04. Underworld (Manala)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB19AA4AA7F3BCC356E195707242C714A537690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277394   (785454) от 20.01.2019
-
-Starbreaker - Dysphoria (2019) Japan [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure Evil
-02. Wild Butterflies
-03. Last December
-04. How Many More Goodbyes(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C198655D7120BB46DFCDA5D9DEC5A801F01F400D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277445   (785453) от 20.01.2019
-
-Our Lady Of The Flowers - Holiday In Thule (2019) 13 Records [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiation (04:55)
- 02. Quantum Prayer - One (04:30)
- 03. A Glowing, Floating Light (07:00)
- 04. Ripples in Shallow Water (09:59)(   Читать дальше...   )Жанр: Ambient, Field Recording, Dub TechnoПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0581FE8AB81A4EC93CAA39481D7D51DBD8A488F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277512   (785452) от 20.01.2019
-
-Журнал | Дачный клуб №2 (февраль 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785452.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале собрана информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая, собранного на своих грядках, а также советы народной аптечки.Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94E239D10E234D50C05F456D047575F739DEBEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277311   (785451) от 20.01.2019
-
-VA - Turn Up The Volume - Radio Versions (2019) [MP3|320 Kbps] <House, Dance, Club, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels van Gogh, Steelfish-Love & Money (Radio Edit)
-02. Audax, Adriano Pagani, Dimy Soler-Fire & Ice (Radio Edit)
-03. Tocadisco-Feeling Irie (Radio Edit)
-04. MXB-Bottle Runs Dry (MBP Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Club, FunkyПродолжительность: 01:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF143FF97121C937F607DE52CC9029C8F7F8AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277433   (785450) от 20.01.2019
-
-Э. Ходжа | Размышления о Китае: 1962-1977 [2 тома] (1979) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785450.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Размышления о Китае» взяты из Политического дневника товарища Энвера Ходжа. Помещаемые в настоящем томе размышления охватывают один из сложнейших периодов развития КНР с начала 1962 по декабрь 1972 год, включающий полную зигзагов политику КПК в отношении КПСС и советского руководства; так называемую, Культурную революцию; смычку с американским империализмом и т. (   Читать дальше...   )Жанр: История, политология, экономика, документалистика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E71804B24E69110C4C92A2D699EA1ECE397C9F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277429   (785449) от 20.01.2019
-
-Э. Ходжа | Сверхдержавы: 1959-1984. Из политического дневника (1986) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга отражает много острых и важных событий международной политической жизни, происшедших за четверть века (июнь 1959 — декабрь 1984). Но, в особенности, внимательно и постоянно следя за всеми аспектами политики и акций Соединенных Штатов Америки и Советского Союза, в своей книге товарищ Энвер Ходжа подвергает их глубокому анализу. Он объясняет, как возникли сверхдержавы, (   Читать дальше...   )Жанр: История, политология, экономика, документалистика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD2D4404A8B0434F75362A7EC5158DE67F29084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277425   (785448) от 20.01.2019
-
-Ф. А. Ротштейн (общ. ред.) | Албанский узел (1925) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из объекта истории Албания, воссозданная в урезанных границах после империалистической войны в виде независимой республики, стремится стать ее субъектом; по — удастся ли ей это или нет — она, несомненно, заставит еще много говорить о себе. Ее географическое положение на побережье Адриатики придает ей совершенно исключительную важность, несоизмеримую ни с ее протяжением (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, культурология, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66C49E248E8A1097232922A6108E3B460F68F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277492   (785447) от 20.01.2019
-
-The Thing With Five Eyes - Noirabesque (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Electronic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salem (6:14)
-02. Alma (4:39)
-03. Hedra (5:24)
-04. Zigurhat (4:32)(   Читать дальше...   )Производство: Svart Lava Records 003Жанр: Dark Ambient, Dark Jazz, Electronic, Arabica, CinematicaПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECDBB83FE5AE3567ADE3EC0F01F12F920D3FEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277324   (785446) от 20.01.2019
-
-AnyTrans for Android 6.5.0 (build 20190117) [En]
+Arturia - Pigments 1.1.1.503 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by R2R [EN]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787615.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AnyTrans for Android - предназначен для быстрой и удобной передачи файлов с компьютера на android девайс и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш android девайс буквально в два счета и так же просто вытащить их оттуда.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+Многоплановый программный синтезатор.
+Очень мощный таблично-волновой виртуальный аналоговый синтезатор - это Pigments и он изменит способ создания музыки. Превращение в звук искры воображения - самая главная, волнующая часть создания музыки. Pigments делает этот процесс естественным, интуитивно понятным и ярким.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C0BEB9B84DA986D59ECA213DC3E778249A52F49
+magnet:?xt=urn:btih:D56C1A48A7935A0DD541671FA89ED0A77DC0DD03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,28 +331,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277368   (785445) от 20.01.2019
+###  Публикация: 1276736   (787614) от 17.01.2019
 
-Evergrey - The Atlantic (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
+VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Silent Arc
-02. Weightless
-03. All I Have
-04. A Secret Atlantis(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:06
+01. California Sunshine - Alala (Intro Chill Mix)
+02. Illegal Substances - Lost Civillization (Edit)
+03. Ufomatka - Sunrise On Venus
+04. The Same Old Souls - Strange Light Anomalies(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 03:23:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EDAD2D959E22617AF9ED659D0324E027611663C
+magnet:?xt=urn:btih:B5EF0BA8E934DB69AFD18A8263A2D394BFF6DA9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,25 +360,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277330   (785444) от 20.01.2019
+###  Публикация: 1203341   (787613) от 03.02.2018
 
-Архимандрит Кирион (Ониани) | Юродивый Гавриил (Ургебадзе). Преподобноисповедник (2017) [DJVU, PDF]
+Подшивка журналов | Зорька [8 журналов] (1909) [PDF]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787613.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга архимандрита Кириона (Ониани) «Юродивый Гавриил» посвящена удивительному грузинскому старцу, преподобноисповеднику и юродивому Гавриилу (Ургебадзе) (1929-1995), канонизированному Грузинской Православной Церковью в 2012 году. С детства было очевидно, что он — избранник Божий, предназначенный для особого служения. В книге есть описание его жития, интересные воспоминания (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+Ежемесячный иллюстрированный журнал для детей от 8 до 14 лет. Издается при подготовительном училище С.А. Ковалюка в ВильнеЖанр: Детская проза, СтихиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E1D0308EC2C3422E90E029FC08FBCDC5AC0BB11
+magnet:?xt=urn:btih:5C77C73A7B46579EA746BA094128659E82922CC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,28 +386,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277167   (785443) от 20.01.2019
+###  Публикация: 1203815   (787612) от 03.02.2018
 
-Lutz Rahn - Solo Trip (1978) Reissue CD, 2012, MIG [MP3|320 Kbps] <Electronic, Krautrock>
+Покорение космоса / Conquest of Space (1955) DVDRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Немецкий клавишник (родился 10/11/1951, в Гамбурге). Владелец Brucken-Studio. Известен своей постоянной работой в группе Novalis. Выпустил единственный - предлагаемый сольный альбом.01. Solo Trip (2:07)
-02. Yeti (4:02)
-03. Galaxy Taxi (5:06)
-04. September (3:46)(   Читать дальше...   )Жанр: Electronic, KrautrockПродолжительность: 00:29:03
+Будущее. Человечество вышло в космос, построило в нём станцию «Колесо» и приступило к постройке космического корабля для полёта на Луну. Но в самый последний момент командование приказывает поменять курс и вместо Луны лететь на Марс. Многие члены экипажа недовольны приказом. Командующий, генерал Сэмуэл Т. Мерритт, разрывается между долгом и религиозными убеждениям. (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: ФантастикаРежиссер: Байрон ХэскинАктеры: Уолтер Брук, Эрик Флеминг, Мики Шонесси, Фил Фостер, Уильям Редфилд, Уильям Хоппер, Бенсон Фонг, Росс Мартин, Вито Скотти, Джон Дэннис, Майкл Фокс, Джоан ШоулиПеревод: Профессиональный (многоголосый закадровый), одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:20:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CA14CFD9E1E253DB246B228CF03854CF02B29E2
+magnet:?xt=urn:btih:52ECC97A8976F9CF6B3744CC77E9C5E0116D9A24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,28 +412,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277350   (785442) от 20.01.2019
+###  Публикация: 1203800   (787611) от 03.02.2018
 
-Валера Шунт - Жизнь босяцкая (2000) [FLAC|Lossless|image + .cue]<Шансон>
+Татьяна Овсиенко - Grand Collection (2004) [FLAC|Lossless|image + .cue]<Pop>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Жизнь босяцкая
-02. Заочницы
-03. Русская идея
-04. Случайная встреча(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:54:37
+01. Колечко
+02. Капитан
+03. Солнце мое
+04. Школьная пора(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F90EE9ADEF76C49AE7E20FFA35BF9EE0C29DEEF4
+magnet:?xt=urn:btih:347060F44AE2544FB63AB61B9A8A462D0101FE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,28 +441,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277284   (785441) от 20.01.2019
+###  Публикация: 1203691   (787610) от 03.02.2018
 
-Труды Первого Всероссийского Съезда по борьбе с торгом женщинами и его причинами [2 тома] (1911-1912) [PDF]
+Обои - Desktop Wallpapers Full HD. Part (119) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:637B6338838637C2053F160C39909C9272617A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202340   (787609) от 03.02.2018
+
+Птичка (2015) WEB-DLRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето. Детский лагерь отдыха. Луга. Поля. Птицы. Стрекотание кузнечиков. Речка. Вечерние дискотеки. Песни у костра. И, конечно, любовь. Роман воспитателей Риты и Паши развивается на глазах их воспитанников. Особенно пристально наблюдают за ним Дима и Лента. Ведь Дима тайно влюблен в Риту, а Лента — в Пашу. И хоть подростки не дружат между собой, ревность становится (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Владимир БекАктеры: Маргарита Толстоганова, Петр Скворцов, Саша Рыбакова, Матвей Иванов, Тимофей ШубинСубтитры: ОтсутствуютПродолжительность: 01:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82EEE869806F5DBF391754AF06733C7ACED12FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203760   (787608) от 03.02.2018
+
+Чак Вендиг | Последствия (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман трилогии «Последствия».
+
+Вторая «Звезда Смерти» разрушена, Император убит и Дарт Вейдер повержен. Империя понесла сокрушительное поражение и Повстанческий Альянс празднует свою решающую победу. Но битва за свободу еще не закончена.
+(   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПеревод: Кирилл ПлешковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279926F119AC6698A9528BFAB7DD29F6ABF59F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203649   (787607) от 03.02.2018
+
+В.К. Битюков, Д.С. Симачков | Источники вторичного электропитания (2017) [PDF]
 
 >>Научная и техническая литература
->>Историческая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Труды первого всероссийского съезда по борьбе с торгом женщинами и его причинами, происходившего в С.-Петербурге с 21 по 25 Апреля 1910 года.
-
-Среди вызванных условиями современной жизни прискорбных явлений, содействующих физическому и нравственному развращению населения, одно из первых мест принадлежит торговле женщинами и проституции во всех ее видах.
-(   Читать дальше...   )Жанр: История, политология, экономика, психология, криминология, правоведение, документалистика, публицистикаФормат: PDF
+Рассмотрены базовые вопросы физики и схемотехники построения современных источников вторичного электропитания, включающих управляемые и неуправляемые выпрямительные устройства, параметрические, линейные и импульсные стабилизаторы напряжения, инверторы тока и напряжения и преобразователи постоянного тока.
+Значительное внимание уделено методическим вопросам экспериментального, (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B68201265E55CD31751EFDE65DB1505A0CB0DAA3
+magnet:?xt=urn:btih:7775EB3009E3BA06030D4C82E192B5EE151A48A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,28 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203891   (785440) от 04.02.2018
+###  Публикация: 1203647   (787606) от 03.02.2018
 
-VA - The Official UK Top 40 Singles Chart 02.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+Alternate File Shredder 2.220 [Multi/Ru]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drake - God's Plan
-02. Ramz - Barking
-03. Eminem - River (feat. Ed Sheeran)
-04. Dua Lipa - IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:59
+Программа для безвозвратного удаления файлов и папок. Может не только удалять существующие файлы, но и затирать свободное пространство. Из дополнительных настроек присутствует изменение количество проходов стирания, игнорирование защиты от записи, затирание имен файлов, изменение размеров файлов, замена информации случайными данными вместо нулей и др.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45E6C389F7126A955FDD90DFA40B6F6DD6B1192E
+magnet:?xt=urn:btih:E399F20B6820B70AC361178BEE330E1700C72498
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,28 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203929   (785439) от 04.02.2018
+###  Публикация: 1203782   (787605) от 03.02.2018
 
-VA - Art of Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Display Driver Uninstaller 17.0.8.3 [Multi/Ru]
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Talking Toy - Oort Cloud - Epic Soundtrack Intro Mix
-02. Leslie Dhani - What I Need - Deep House Dance Mix
-03. Out Of Balance - Black Sky Falling - 808 Lounge Mix
-04. Madam Charlton - Your Voice Is in My Mind - Vocal Pop Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:59
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, или когда нужно тщательно удалить драйверы видеокарты. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:933F93CDFFF6FEAFB532342405A7CD0056C6E436
+magnet:?xt=urn:btih:95542741395B2815B27118460F5C9E37F950D1E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,25 +601,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204100   (785438) от 04.02.2018
+###  Публикация: 1203693   (787604) от 03.02.2018
 
-Приход храма Св. Духа сошествия на Лазаревском кладбище (изд.) | Молитвенное последование с покаянным каноном о грехе убийства чад во утробе (аборте) (2017) [PDF, DJVU]
+Векторный клипарт - Creative Market - Cosmos II - 2149628 [AI]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для покаяния в грехе аборта существует исповедь, на которой священник в частном порядке назначает епитимью в соответствии с духовным и телесным состоянием кающегося, возрастом, состоянием здоровья и прочими обстоятельствами. Аборт – один из самых тяжких грехов. Святая Церковь, согласно канонам, отлучала совершивших грех аборта от причастия на 10 лет, наравне с убийцами. (   Читать дальше...   )Жанр: МолитваФормат: PDF, DJVU
+Cosmos II - это векторное расслоение, содержащее 19 hi-end векторных работ с графическими исследованиями пространства, scifi и вселенной.Формат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7451E1E91D0794A678F260128556D815A4B6C4D2
+magnet:?xt=urn:btih:0F6FEE7B03F0BB751AC39F387C989FAD45544398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203692   (787603) от 03.02.2018
+
+Обои - Desktop Wallpapers 4K Ultra HD. Part (123) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0416577F06042492E019D9D4209813B6B3BEE0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203873   (787602) от 03.02.2018
+
+LibreOffice 6.0.0.3 Stable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787602.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDCFE283BA69FB280FF7125650D30EAA1A55748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203763   (787601) от 03.02.2018
+
+Movavi Video Suite 17.2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite – это пакет программ на русском языке, который поможет вам без труда смонтировать отличный фильм, музыкальный клип или слайд-шоу, даже если вы совсем новичок в создании видеороликов. Накладывайте музыку, применяйте визуальные эффекты, добавляйте титры и стильные переходы – обрабатывайте видео на свой вкус! Также в Movavi Video Suite входит набор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4689A1CC669032DE1EE07C3A31B5883A6C775E10
 ```
 
 https://mybot314.ru/tekegram_catalog/

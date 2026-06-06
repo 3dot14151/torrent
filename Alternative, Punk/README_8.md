@@ -1,3 +1,32 @@
+###  Публикация: 1123643   (786359) от 08.04.2017
+
+Sylvaine - Wistful (2016) Limited Edition [MP3|320 Kbps] <shoegaze, post-rock, darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delusions
+02. Earthbound
+03. A Ghost Trapped in Limbo
+04. Saudade(   Читать дальше...   )Жанр: shoegaze, post-rock, darkwaveПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F92BD303AA9770093975F84B008D009B69EFB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123628   (786355) от 08.04.2017
 
 Sylvaine - Silent chamber, noisy heart (2014) [MP3|320 Kbps] <shoegaze, post-rock, darkwave>
@@ -713,35 +742,6 @@ Viot - Astana (2016) [MP3|320 кб/с] <Alternative, Indie Rock, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC58917A53F1DAF2DA778DBDF534601F0E6E5409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689482   (769718) от 24.06.2020
-
-Blue October - Sway (2013) [MP3|320 кб/с]<Alternative, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe, It's Over 01:12
-02. Sway 04:45
-03. Angels In Everything 04:23
-04. Bleed Out 03:52(   Читать дальше...   )Жанр: Alternative, Modern RockПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A91190884245E7E7376F7B905E156A7123A80D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

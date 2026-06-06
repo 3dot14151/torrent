@@ -1,3 +1,90 @@
+###  Публикация: 1334378   (296918) от 28.10.2019
+
+mindXpander - Triumphant Return (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Creatures (5:31)
+02. Pandora's Music Box (6:35)
+03. Smuggler's Guild (6:29)
+04. Hoshi No Koe (6:38)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDDE6E36EAC528E1D20855172F03402235884B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334375   (296828) от 28.10.2019
+
+mindXpander - Xpanderland (2002) [FLAC|Lossless|image + .cue] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Goblins (7:30)
+02. Sea Of Stars (6:38)
+03. Krog's Return (6:26)
+04. Cosmic Rain (5:47)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B604BEFA7F47B5FA46287A2C4DC62A0A9E7D0E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334370   (296371) от 28.10.2019
+
+mindXpander - A Tribute To Laserdance (2000) [FLAC|Lossless|image + .cue] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Run (6:00)
+02. Enemy On Earth (5:39)
+03. The Challenge (5:56)
+04. New Adventures (5:54)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E39333374DB22D23ABE1C4B275054F136EFAE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334367   (296369) от 28.10.2019
 
 Humphrey Robertson - Synthesizer Dance Christmas Edition (2005) [FLAC|Lossless|tracks + .cue] <Synthpop, Spacesynth>
@@ -654,93 +741,6 @@ Faderhead - Night Physics (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DD5A54EAB4BF40A7C43FF4E7963ED734D88B635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339288   (267113) от 18.11.2019
-
-DEADLIFE - Rebel Nights (2019) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:15)
- 02. Summer Mist (3:53)
- 03. Blue Gum (3:44)
- 04. Never Forget (5:30)(   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave, DarkwaveПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5743C05F95B511EB74DB1AB8BCAA129BFE9F913C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190552   (266915) от 10.12.2017
-
-New Order - Singles (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop, Pop-Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ceremony (4:39)
- 02. Procession (4:29)
- 03. Everything's Gone Green (4:11)
- 04. Temptation (5:24)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop-RockПродолжительность: 02:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60601CD8CC1197CE7164CDC200DC573BF51FFE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191528   (264106) от 14.12.2017
-
-New Order - Music Complete (2015) [FLAC|Lossless|tracks + .cue] <New Wave, Synthpop, Pop-Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Restless (5:28)
- 02. Singularity (5:37)
- 03. Plastic (6:55)
- 04. Tutti Frutti (6:23)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop-RockПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF56146E50E9C5DA72BCB2C9F3D5CF431E2AD63
 ```
 
 https://mybot314.ru/tekegram_catalog/

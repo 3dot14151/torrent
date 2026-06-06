@@ -1,3 +1,32 @@
+###  Публикация: 1403078   (695942) от 17.08.2020
+
+VA - Discover Trance 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sly One vs. Jurrane - Everything to Me (Original Mix) (8:36)
+02. Adam Foley - Fourteen Falls (Original Mix) (8:21)
+03. Gary Maguire - Secrets (Original Mix) (7:29)
+04. Tom Colontonio - Subdued (Mike Nichol Remix) (7:50)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B4F0AA5243412C3C8D9F9DCB8A8A6EBC38B9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027984   (692770) от 21.06.2016
 
 VA - Best Of Uplifting Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Uplifting Vocal Trance>
@@ -718,35 +747,6 @@ VA - A State Of Trance 2022 (Mixed by Armin van Buuren) (2022) 2CD [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C8F9C259255703570574682196D9E43018071D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299258   (599897) от 01.05.2019
-
-Orbital ‎ - Orbital 2 (1993) [FLAC|Lossless|tracks + .cue] <Trance, Techno>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Becomes (01:44)
-02. Planet Of The Shapes (09:36)
-03. Lush 3-1 (05:40)
-04. Lush 3-2 (04:41)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73328B8BDE0C0E16493E608B0EA7B48986A0B84B
 ```
 
 https://mybot314.ru/tekegram_catalog/

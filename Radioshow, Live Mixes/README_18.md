@@ -1,3 +1,235 @@
+###  Публикация: 1449392   (245321) от 21.02.2021
+
+Tiesto - Tomorrowland Friendship Mix (2021-02-18) [MP3|320 Kbps] <House, Future House, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - The Business
+02. KREAM - Take Control
+03. VINNE ft. Thayana Valle - Clothes Off
+04. Imanbek & GOODBOYS - Goodbye (GOODBOYS VIP Edit)(   Читать дальше...   )Жанр: House, Future House, Bass HouseПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E00B5CB87855FD39B9A8D8513D2B650BC3B5501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529485   (244772) от 06.02.2022
+
+Crunkz - Never Stop Ep. 4 (2022-01-29) [MP3|320 Kbps] <Tech House, Future House, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crunkz - Superlike
+02. KREAM & Millean. & Bemendé vs. Elton John & Dua Lipa - What You've Done To Me vs. Cold Heart (Crunkz Edit) w/Elton John & Dua Lipa - Cold Heart (WeDamnz VIP Edit)
+03. Crunkz - ID
+04. Crunkz & ID - ID(   Читать дальше...   )Жанр: Tech House, Future House, Bass HouseПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931E78DC597C16B18B0EDB8918EB95BD0C541CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536592   (244113) от 12.03.2022
+
+Timmy Trumpet - Live @ kineticFIELD, EDC Mexico (2022-02-27) [MP3|320 Kbps] <Big Room, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timmy Trumpet - Freaks w/ID - ID
+02. Tiësto & DallasK - Show Me (Timmy Trumpet Remix)
+03. Nirvana - Smells Like Teen Spirit w/ID - ID w/Megan Thee Stallion - Body (Acappella)
+04. GTA & TJR - Mic Check w/Greazy Puzzy Fuckerz & D-Fence - Virgin (Kick Edit) w/Timmy Trumpet - Freaks (Acappella)(   Читать дальше...   )Жанр: Big Room, Hard DanceПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E5CFB70182409AB5010A95CB54C35695582F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536421   (244099) от 12.03.2022
+
+Otto Knows - Tomorrowland Friendship Mix (2022-03-10) [MP3|320 Kbps] <Progressive House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audion - Mouth To Mouth
+02. Chris Lorenzo ft. High Jinx - California Dreamin'
+03. Super Flu - Go
+04. Moojo - Healing(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D23E59B76CBD4E1A2B2D2B00214F3DEEC7D265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456121   (243369) от 21.03.2021
+
+Kosling - Live @ Fireland Festival,France (2021-03-19) [MP3|320 Kbps] <Big Room, Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keud & Cendre - Way Down
+02. Kosling & Blackcode ft. Alessa - Supernova
+03. Kosling & Still Young ft. OMZ - When We Were Young
+04. Thomas Gold & David Shane - Superhuman (Kosling Edit)(   Читать дальше...   )Жанр: Big Room, Dance, Electro PopПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ABFEEC826B4C2CCBC4D21E5112E6B032E7B50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627941   (242549) от 21.04.2023
+
+VA - Armin van Buuren - A State Of Trance 1117 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Grand - Fernet
+02. Andy Moor & Somna & Ava Silver - Alchemy
+03. Ahmed Helmy - Talk To You
+04. Artche - Weightless(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98022A155E6E74FB2D8A5794C209304F51B8D551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634194   (242437) от 21.05.2023
+
+VA - Armin van Buuren - A State Of Trance 1121 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & HRRTZ feat. Julia Church - Fire With Fire (Future Favorite)
+02. Super8 & Tab and Crowd+Ctrl feat. Jess Ball - Incomplete
+03. Kryder - The Eye Of Ra
+04. DIM3NSION - Stronger Now(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BC2DE68AC298BAEFC8BC4FAF9E8283EE60A317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542582   (242147) от 10.04.2022
+
+VA - TrackWolves Best Of 2021 DJ Mix (2021-2022) [MP3|320 Kbps] <Electro House, Big Room, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alexander Popov - TrackWolves Best Of 2021 DJ Mix 2022-02-15:
+
+01. Alexander Popov & Whiteout - Right Back
+02. Alexander Popov & Kitone - Breathe (Ahmed Helmy Remix)(   Читать дальше...   )Жанр: Electro House, Big Room, TranceПродолжительность: 18:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44103BA4C554F06F1D6662DA4733272BBE91F5C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624721   (242069) от 08.04.2023
 
 VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -511,238 +743,6 @@ VA - Armin van Buuren - A State Of Trance 1129 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98118319C1105CDEE829986393F331A739E30BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643121   (231775) от 01.07.2023
-
-VA - Armin van Buuren - A State Of Trance 1127 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Gareth Emery feat. Sarah de Warren - Vertigo
-02.	Ferry Corsten - Mind Trip
-03.	Progressive Pick: Laura van Dam feat. Chris Howard - True Colors
-04.	Shouse & David Guetta - Live Without Love (Armin van Buuren Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841E9FC53412AD98CBC527960D536B4CF6401134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648040   (230911) от 22.07.2023
-
-VA - Armin van Buuren - A State Of Trance 1130 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Ilan Bluestone & Oliver Smith - Blue Eagle (ANJUNABEATS)
-02.	Sean Tyas & DIM3NSION - Arise ASOT (ARMADA)
-03.	Chris Schweizer ft. Sarah Howells - Company (Progressive Mix) ASOT (ARMADA)
-04.	Little Foot - Dakota (SONGSPIRE)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6B9B053A523A3FDD388482B590DE187A39C4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649537   (229130) от 28.07.2023
-
-VA - Armin van Buuren - A State Of Trance 1131 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Ferry Corsten - Follow You (FLASHOVER)
-02.	Ferry Corsten - Voeman (FLASHOVER)
-03.	Ferry Corsten & Betsie Larkin - Not Coming Down (FLASHOVER)
-04.	Ferry Corsten & Ciaran McAuley - Mo Chara (FLASHOVER)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D65529CD48572141CCB33E53B7027A6E1CD7466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 402814   (227912) от 18.12.2013
-
-Tiesto - Club Life 001-350 (2007 - 2013) [MP3|128-320 kbps]<Trance, House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hour 1:
-01.	Club Life - Intro (00:31)
-02.	Tiësto feat. Anastacia - What Can We Do (A Deeper Love) (Third Party Remix)	(06:10)
-03.	Nicky Romero - Toulouse	(04:58)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive House, Electro House, HouseПродолжительность: 663:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D69D0239906360522DDF5A45249207AA3B0C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513427   (225569) от 28.11.2021
-
-Cosmic Gate - Cosmic Gate In Concert (The Classics) (2020-10-17) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Rivera feat. Lizzie Curoius - Departures (Cosmic Gate Remix)
-02. deadmau5 - Faxing Berlin
-03 .Nadia Ali - Rapture (Tristan Garner Remix)
-04. Cosmic Gate & Aruna - Free Falling (Barra)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E43732801FA8D7CC4859156A53C7ABA1CFEBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268782   (225217) от 12.12.2018
-
-VA - Markus Schulz – Global DJ Broadcast (World Tour, SQL Miami) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Smiley – The Dreamers (Markus Schulz In Bloom Mix)
-02. ID
-03. Markus Schulz & Jam El Mar – The Lotus
-04. ID(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653A2E63B99E3FECE1C33D3A0A107F496CD800D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268784   (225208) от 12.12.2018
-
-VA - Ori Uplift & Tycoos - Uplifting Only 304 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.BREAKDOWN OF THE WEEK: Kiyoi & Eky & Khairy Ahmed - Silent Heart
-02.Rene Ablaze featuring Andromeda - Elysium
-03.Bobina & Christina Novelli - Mysterious Times (Extended Mix)
-04. Ana Criado - In A Thousand Skies (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686B43C34812AA8078E28F50AC8B219DEA21C85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425382   (222662) от 20.11.2020
-
-ARTBAT - Tomorrowland Friendship Mix (2020-11-19) [MP3|320 Kbps] <Techno, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Asher & James Massiah - Time & Space (Reprise Mix)
-02. Colyn - Khazad Dum
-03. Yotto - Nova
-04. Innellea - The World Returns(   Читать дальше...   )Жанр: Techno, Progressive HouseПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5677D259E5BB8101C03FD8EE42941255AECE699
 ```
 
 https://mybot314.ru/tekegram_catalog/

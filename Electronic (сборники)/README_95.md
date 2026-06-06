@@ -1,3 +1,90 @@
+###  Публикация: 1138912   (662326) от 31.05.2017
+
+VA - Pacific Progressive Trance Vol. 3 (2017) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drym & Ltn Ft. Adara - Rescue Me (Ltn Extended Sunrise Remix)
+02. Royal Zeven - Glacier (Infinity State Remix)
+03. Martin Soundriver - Project X (Radio Edit)
+04. Tritonal - Hey MaMaMa (Club Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 08 :12 :44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78109C2F98E371CE0E63552AE47AFC2DFE19B38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139148   (661399) от 01.06.2017
+
+VA - Trance Traveling 89 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gareth Emery & Louis Vivet - Stronger 2:51
+02.  Estiva - Blossom (Extended Mix) 5:47
+03.  Super8 & Tab feat. Jonny Rose - Falling Into You (Extended Mix) 4:32
+04.  Denis Kenzo & Sveta B - Just To Hear (Extended Mix) 5:59(   Читать дальше...   )Жанр: TranceПродолжительность: 03:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E627C89E652B506BA0514C3DE24C6129DDC5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139077   (661305) от 01.06.2017
+
+VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661305.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nico Stojan feat. Iannis Ritter - Dedicated
+002. FonnikDeep - Love (Broken Instrumental)
+003. James Silk - La Noche
+004. Sound Slave - Lost in Lost Angeles City (Deephope Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1133D38CE3E24867F3091779AB2F7257806541DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139052   (661294) от 01.06.2017
 
 VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
@@ -664,93 +751,6 @@ VA - Vocal Chillout Live Set (2022) [MP3|320 Kbps] <Chillout, Vocal, Ambient, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5166DB12504AF1631352890771DAF81A9941CD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515510   (655936) от 26.06.2012
-
-VA - Club Session, Summer Edition (House Music Collection) (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Train (Original Mix) - Fisher & Fiebak
-02. Keep On Groovin (Original Mix) - Funkstar
-03. Ethamin (Kid Shakers Remix) - SL Curtiz, Domovnik
-04. Knock On Your Heart (feat. Alec Sun Drae)Жанр: Funky, Club HouseПродолжительность: 01:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B951A0D06FFD61EAC96EFB303D0914313693069F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226302   (655854) от 20.05.2018
-
-VA - Amsterdam Trance Factory (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воодушевляющая электронная музыка с хорошими ритмами и самыми эксцентричными мотивами была собрана в специальную тематическую коллекцию под названием «Amsterdam Trance Factory». Альбом получился удачно органичным по звуковым качествам и продакшену. Каждая мелодия звучит идеально, и вся музыкальная картина имеет хороший микс.001. Maria Milewska & Andrew Henry - Crystalized (Original Mix)
-002. Roman Messer feat. Christina Novelli - Fireflies (Original Mix)
-003. Cyril Ryaz - Dark Side (Sunset & Steve Dekay Extended Remix)
-004. DJ Pasyk - My Fantasy(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FD14B3B90EA30AC12519034C4DC2BF13191DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140467   (655781) от 06.06.2017
-
-VA - Music For Your Car Vol.4 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655781.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Paffendorf - Where Are You 2K17 (South Blast! Remix) 5:00
-002.  Heaven42 - Dancing And Moving 5:07
-003.  Manu Da Bas - Come Baby Come (Extended Mix) 4:45
-004.  Helena Paparizou - Haide (Summer Breeze Remix) 3:39(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E1351B4EFE9D10EB4B7714789114956BF7527B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1421104   (321904) от 03.11.2020
+
+Bad Boys Blue - Tears Turning To Ice (2020) [MP3|320 Kbps] <Dance, Pop, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killers (03:49)
+ 02. Tears Turning to Ice (03:19)
+ 03. Love Love Love (02:56)
+ 04. A Million Times in Heaven (04:07)(   Читать дальше...   )Жанр: Dance, Pop, Euro-DiscoПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B6340AB80F7393C35B55FB84713B2D562A1D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332062   (318505) от 18.10.2019
+
+VA - Musicland - The Sound Of Munich (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы и продюсеры: Giorgio Moroder, Pete Bellotte01. Giorgio - From Here To Eternity (3:50)
+02. Donna Summer - Love To Love You Baby (3:26)
+03. Munich Machine - Get On The Funk Train (3:57)
+04. Trax - Dance (5:58)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA775FC39504D27AC624F777D1E5D942F5279310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332003   (318503) от 18.10.2019
+
+Syncophonic Orchestra - Columbia - A Space Symphony (1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автором и продюсером проекта является Alec R. Costandinos, выпустивший диск под псевдонимом A. Kouyoumdjian.01. Ignition (1:41)
+02. A Theme For Columbia (3:35)
+03. Tomorrow Starts Today (3:26)
+04. The Conquest (4:43)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134A74E74F0CD7C1DA593B503EA581BBCC193CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181985   (317059) от 10.11.2017
+
+Luisa Fernandez - Disco Darling (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_317059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Granada (4:42)
+02. Cool It, Baby (3:41)
+03. Lay Love On You (4:20)
+04. I Love To Love You (Love To Love Me) (3:49)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187917F91212A1402C5E4821300981205488B382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181892   (316946) от 10.11.2017
+
+VA - Italian Style Everlasting Italo Dance Compilation Vol.8 (2017) [MP3|320 Kbps] <Italo-Disco, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boris Zhivago - Rainy Day (BCR Extended TGV Version)  6:32
+02.  Emy Care - Once In A Lifetime (BCR Long Runners Mix)  5:08
+03.  Ranger - Breaking My Heart (BCR Long Venice Mix)  6:43
+04.  Limelight - Forever Lovers (BCR Extended Modern Version)  6:50(   Читать дальше...   )Жанр: Italo-Disco, EurodanceПродолжительность: 02:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA713D4D93F309D5FEE4E4CEA8F9E764583C5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332184   (316666) от 19.10.2019
 
 Blue Sunbeam - Sweetest Girls (1988) [MP3|320 Kbps] <Electronic, Italo-Disco, Hi NRG>
@@ -595,151 +740,6 @@ VA - New Italo Disco Top 25 Compilation Vol.3 (2016) [MP3|320 Kbps] <Hi-NRG, Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0EAAD1D5B65267C8575F1E1CB92587D41D67030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423993   (295917) от 15.11.2020
-
-Salsa Orchestra - Dazzlin Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice 'N' Naasty  (4:31)
-02. Tangerine  (4:32)
-03. Quiet Village  (2:59)
-04. Salsal Rainbow  (3:41)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EE6C5CE7B5163C16D51FBFC9CE7470ECD0BFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334438   (294876) от 29.10.2019
-
-Wolfgang Maus Soundpicture - Children Of The Universe (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of The Universe (6:14)
-02. Introduction To Mankind (3:00)
-03. Civilisation (3:38)
-04. Schizophrenic World (3:57)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36F99CDF5ADB917C61B8C47250AF347CC614524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079570   (294253) от 04.12.2016
-
-VA - Motown Disco Magic - Too Hot Ta Trot (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diana Ross - What You Gave Me  (3:32)
-02. Commodores - Too Hot Ta Trot  (3:11)
-03. 5th Dimension - You Are The Reason (I Feel Like Dancing)  (2:42)
-04. High Inergy - Love Is All You Need  (2:58)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8B65F10DAF3B7A24F812F97F5CF057E567C9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079673   (294184) от 04.12.2016
-
-Erotic Drum Band - The Collection (2006) 2xCD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Erotic Drum Band - Канадский студийный проект от известного диско-продюсера, композитора, аранжировщика и  мультиинструменталиста Питера Ди Майло (Peter Di Milo). В данное переиздание вошли все 3 альбома (1978-1980) и несколько синглов.01. Love Disco Style  (13:58)
-02. Plug Me To Death  (7:17)
-03. Action 78 (Edited Version)  (7:30)
-04. Jerky Rhythm  (9:13)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB1FD34C44A78E763B9E262705EA6986BE5EE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079462   (294147) от 04.12.2016
-
-VA - Italian Style Everlasting Italo Dance Compilation Vol.5 (2016) [MP3|320 Kbps] <Hi-NRG, Italo Disco, Post-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casarano - Fairy Tale (In My Heart) (feat. Elise Dean) (BCR Full Summer Reggae) 6:51
-02. Casanova - Tears of Love (BCR Extended Mega Beats Version) 7:09
-03. DJ Dr. Love - Love Explosion 6:08
-04. Roby - It's My Life (BCR Extended Milano Mix) 8:31(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Post-DiscoПродолжительность: 02:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEFC0377ECFB9F8BC41045A2D21FA91F05C851F
 ```
 
 https://mybot314.ru/tekegram_catalog/

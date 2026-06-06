@@ -1,3 +1,90 @@
+###  Публикация: 1422849   (306288) от 10.11.2020
+
+Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306288.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Boy's First Kill (05:59)
+2. Cut Me Open (04:51)
+3. Facing the Laccadive (05:22)
+4. Alpine Swift (02:18)(   Читать дальше...   )Жанр: Ambient, Experimental, DroneПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44B07E681CDF1FBDFEA0446D0B4434987254BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 848881   (304071) от 29.11.2016
+
+Nigel Stanford - Solar Echoes (2014) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo, New Age>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solar Echoes (10:17)
+02. Entropy (09:02)
+03. Deep Space (08:05)
+04. Cymatics (04:46)(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 01:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC7E4A0B1A99949DC2C295B0BB871B50834B304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423414   (299797) от 13.11.2020
+
+Ana Roxanne - Because Of A Flower (2020) Kranky [FLAC|Lossless|WEB-DL|tracks] <Ambient, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (00:50)
+ 02. A Study In Vastness (06:50)
+ 03. Suite Pour L'invisible (07:01)
+ 04. - - - (05:15)(   Читать дальше...   )Жанр: Ambient, ContemporaryПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F637F25A8DC01BEAD84F4D19E4865897B0CEE32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261972   (298760) от 13.11.2018
 
 VA - 1​+​1​=​X (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Contemporary, Tech House, Minimal>
@@ -655,93 +742,6 @@ The Chi Factory - Red Lantern At The Kallikatsou (2017) Astral Industries [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101180212BC0D7DA68F3CB30E4AA5D56C3EFB903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268783   (263267) от 25.11.2019
-
-VA - Pop Ambient Series (2001-2019) Kompakt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Modern Classical, Soundscape>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thore Pfeiffer - Urquell (05:54)
- 02. Max Wurden - Diminish (04:32)
- 03. Yui Onodera - Cromo 4 (05:42)
- 04. Joachim Spieth - Meteor (06:32)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Acoustic/DroneПродолжительность: 23:17:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E403C83041036EDC76C91FB7B4148A3DD66DC5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193624   (261977) от 22.12.2017
-
-Jason Van Wyk - Opacity (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Contemporary>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shimmer (04:05)
- 02. Blinded (02:18)
- 03. Until Then (01:51)
- 04. Recollect (04:16)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ContemporaryПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A51AAFB2232A0316B9DBF2E752E5ED12E978CC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837895   (257888) от 19.11.2025
-
-Antalio - Existentia (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quest (2:49)
-02. Explosion (5:39)
-03. Existentia (2:57)
-04. Cosmic Order (3:06)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3ED2D18B4FB51EEC4103868862B6F4C55FEC15
 ```
 
 https://mybot314.ru/tekegram_catalog/

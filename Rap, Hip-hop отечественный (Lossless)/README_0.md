@@ -635,35 +635,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838167   (258032) от 21.11.2025
-
-Anacondaz - Ночь с астраханцем (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258032.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кроме любви
-2. Хорошая сторона
-3. Рэп и деградация
-4. Зомби(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786E605546B0A6E0A7BB349E2C12C5B63FFAE6FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834428   (250424) от 03.11.2025
 
 Feduk - Весёлая музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -744,6 +715,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5FF58318D5DDE7AF1927CFE055209A8EA1A84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646661   (231463) от 19.07.2023
+
+АК-47 - Третий (2015) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Большая дама [00:03:29]
+02. Дай 5 [00:04:48]
+03. No Pasaran!!! [00:04:14]
+04. Домашняя работа [00:04:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020CCD50D4B3135D57D2F24DF3A20F8033CF796E
 ```
 
 https://mybot314.ru/tekegram_catalog/

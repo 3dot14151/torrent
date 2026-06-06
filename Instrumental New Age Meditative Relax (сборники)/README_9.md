@@ -1,32 +1,3 @@
-###  Публикация: 1040856   (584461) от 07.08.2016
-
-VA - Relaxing Lounge Music For Your Sleeping Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa Nostra - Espera
-02. Neja - Crime of Passion
-03. 2 Men 4 Soul - Spread Your Love - Remastered
-04. United Peace Voices - Gangchen Song(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A1BCA2A8C1DE2C6444E898FF594F097772BBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541550   (583895) от 12.05.2019
 
 VA - Guitar Mania Vol.01-23 (1999-2004) [MP3|320 кб/с]<Instrumental / Surf / Rock'n'Roll>
@@ -130,6 +101,35 @@ VA - I Like An Indian (Indian Heart) (2016) [MP3|256-320 Kbps] <Native american,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB9FFCA9DF17394CB4EB28DCC48200704526C7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920440   (579799) от 22.07.2015
+
+VA - Magic Instrumental Music (2015) [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579799.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. George Saxon - Only You
+002. Kitaro - Mirage
+003. Stuart McDonald - Scarborough Fair
+004. De Los - Pequena Flor(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 06:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0202B9921FD1FA9D4989D8503A058AF3CFDC5B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

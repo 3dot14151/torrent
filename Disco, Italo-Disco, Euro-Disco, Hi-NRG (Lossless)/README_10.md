@@ -1,3 +1,61 @@
+###  Публикация: 1031288   (668431) от 03.07.2016
+
+Savage - Greatest Hits And More (1990) Unofficial Release [APE|Lossless|image + .cue] <Italo-Disco, Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ten Years Ago (Dub Intro)
+02. I'm Loosing You
+03. Goodbye
+04. Jane(   Читать дальше...   )Жанр: Italo-Disco, Europop, DiscoПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC265094EB10B2A17BB46C3C7FDE88DCC7B18FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224021   (668107) от 08.05.2018
+
+The Three Degrees - Greatest Hits (1998) [FLAC|Lossless|image + .cue] <Disco, Soul, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Jump The Gun
+02.	Long Lost Lover
+03.	Red Light
+04.	Together(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A44A42E2C91A06CFA0AB1B5EEF788BA501E79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539709   (657142) от 26.03.2022
 
 VA - Turbo Disco - Лучшие Хиты Дискотек (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
@@ -693,64 +751,6 @@ VA - I Love Disco Presents: Rewind To The Disco Vol.1 (2009) 2CD, Compilation [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE4F4B4D2E0019CAB86F6F79805AE33D4E1035D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543668   (627591) от 12.04.2022
-
-Bad Boys Blue - The Fifth & Kiss (2000) Unofficial Release [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady In Black
-02. Someone To Love
-03. A Train To Nowhere
-04. I'm Not A Fool(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96FF2A4E0E2468DED082BE6122EB30E7E96B964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543181   (627468) от 12.04.2022
-
-VA - The Best of Dance 80 (2015) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valerie Dore - The Night (4:06)
-02. Tony Esposito - Kalimba De Luna (3:47)
-03. Bobby Farrell - Rasputin (4:50)
-04. Sendy Marton - People from Ibiza (5:07)(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 01:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53CA357469A6315183E33316D72EEE19C7A152A
 ```
 
 https://mybot314.ru/tekegram_catalog/

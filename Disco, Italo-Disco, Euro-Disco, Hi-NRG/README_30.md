@@ -1,3 +1,119 @@
+###  Публикация: 1250529   (422654) от 29.09.2018
+
+Tony Rallo And The Midnite Band - Burnin' Alive (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holdin' On (Instrumental) (0:59)
+02. Burnin' Alive (7:24)
+03. Fais L'Amour (6:29)
+04. Holdin' On (7:34)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6674D2F0CA517C5E63B5345C8F38CAFAB856D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250832   (422641) от 29.09.2018
+
+Tim Maia - Disco Club (1978) Reissue CD, Atlantic, 2018 [MP3|320 Kbps] <Disco, Funk/Soul, MPB>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Fim De Voltar (4:07)
+02. Acenda O Farol (3:12)
+03. Sossego (3:44)
+04. Vitoria Regia Estou Contigo E Nao Abro (2:17)(   Читать дальше...   )Жанр: Disco, Funk/Soul, MPBПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA62BC34D075C51A3674858A6D133A052051A29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065192   (421763) от 22.10.2016
+
+VA - Decade of the Synth  Vol.1 (2016) [MP3|320 Kbps] <Disco, Nu Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vasiliy Arefiev - My Lost Melody  6:40
+02. Italo Brutalo - Velodrome  6:51
+03. Boy Funktastic - Beachs  4:16
+04. Ocsav - Move Your Soul  6:02(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCF77C5512116EEA62DEDE1328EEB1151E49CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572756   (419328) от 28.08.2022
+
+Pisces - Disco 6 (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Love (5:25)
+02. Touch Me (4:40)
+03. Superman (6:16)
+04. Magic Flight (3:21)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A79578CCF21BDFC662941F7F046516023B1B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065445   (419209) от 23.10.2016
 
 Galaxis - I Want More & Space Rangers (1978) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -637,127 +753,6 @@ VA - House Disco Soul (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C22D4C0D240AE12AE3081A86BFC6E8BC8D3831E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562697   (404588) от 21.10.2012
-
-VA - Ti Amo Vol 1 & Vol 2 - The Ultimate Italian Treasures (2012) [MP3|320 кб/с]<Italian pop, Canzone, Oldies>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umberto Tozzi - Non va che volo [04:37]
-02. Fausto Leali - Amore dolce, amore amaro, amore mio [05:01]
-03. Loretta Goggi - Maledetta primavera [04:13]
-04. Gianni Bella - Non si puo morire dentro [04:04]
-05. Renato E I Profeti - Io perche', Io per chi [03:36]
-06. Raf - Inevitabile follia [02:15]
-07. Pino Daniele - Quando [03:38]
-08. Al Bano & Romina Power - Liberta' [04:23]
-09. Pierangelo Bertoli - Eppure Soffia [02:50]
-10. Johnny Dorelli - Mamy Blue [03:50](   Читать дальше...   )Жанр: Italian pop, Canzone, OldiesПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8A33D014B61370C9EE66777A30743E64D6140C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169270   (403812) от 26.09.2017
-
-Bagarre - Circus (1982) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemonsweet (6:32)
-02. Little Ladies (4:31)
-03. Circus Is Gone (4:31)
-04. Dirty Love (4:53)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980ABBF2D411F4B7FCA3B08B2B1FA35D5EE20DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146897   (403511) от 22.10.2009
-
-Stars On 45 - Дискография (1981-2005) [MP3|320]<Disco>
-
->>След.
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_403511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DiscoПродолжительность: 01:12:13
-01. Stars On (Radio Edit)
-02. Stars On Stevie Wonder (12 Inch Version)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169530   (402411) от 28.09.2017
-
-Eyes On Fire - The Best Of Eyes On Fire 1978 - 1980 (2012) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессионально сделанная и ни где не отмеченная CD компиляция всего творчества группы.01. Times Are Changing (3:48)
-02. Black Caravan (3:52)
-03. Mama Don't Know (3:00)
-04. Jumping Jack (4:13)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC42C66E233B06B57245204ACFD08F6C83807DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

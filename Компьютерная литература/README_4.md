@@ -1,3 +1,29 @@
+###  Публикация: 1856211   (1058656) от 27.02.2026
+
+Audrey Roggenkamp, Ian Rutkowsky, Nita Rutkosky | Benchmark Series, Microsoft Excel 2019 Levels 1&2 (2020) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058656.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Benchmark Series is designed for students to develop a mastery skill level in Microsoft Word, Excel, Access, and PowerPoint. Its graduated, three-level instructional approach moves students to analyse, synthesise, and evaluate information. Multi-part, projects-based exercises build skill mastery with activities that require independent problem solving, which (   Читать дальше...   )Жанр: Microsoft Excel Guides, Microsoft Office Guides, Software Suite BooksЯзык: АнглийскийИздательство: Paradigm Education SolutionsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD9C25D42392F67A870614634DB2686683BA19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856212   (1058655) от 27.02.2026
 
 Michael McDonald | 200+ Excel Formulas and Functions. The go-to-guide to master Microsoft Excel's many capabilities (English Edition) (2023) [PDF] [EN]
@@ -659,34 +685,6 @@ Distributed systems are complex—but they’re also everywhere in modern softwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB09F2BEF6C83DC18C8027AE9F2BDA8E13D4DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852858   (1056558) от 12.02.2026
-
-Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Just the Docker you need to know in 22 bite-sized lessons!
-
-In Learn Docker in a Month of Lunches, Docker expert Elton Stoneman guides through everything you need to know about Docker in 22 short lessons you can complete on your lunch break. This freshly-revised bestseller has been updated for modern tools and the latest versions of Linux, Windows, or Mac, with new (   Читать дальше...   )Жанр: Software Design & Engineering, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53E5479E5F8C5FDFC1F342F01207F70588226FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

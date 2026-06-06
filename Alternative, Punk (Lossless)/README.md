@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1870983   (1069661) от 
+###  Публикация: 1873780   (1071497) от 30.05.2026
+
+The Cure - Entreat (1991) Live [FLAC|Lossless|image + .cue] <New Wave, Alternative Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pictures of You (7:10)
+02. Closedown (4:26)
+03. Last Dance (4:43)
+04. Fascination Street (5:18)(   Читать дальше...   )Жанр: New Wave, Alternative Rock, ShoegazeПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2FC3AB68F87B453A4F3870176C083DA76F7095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870983   (1069661) от 17.05.2026
 
 Pearl Jam - Ten (1991) [FLAC|Lossless|tracks + .cue] <Grunge, Alternative Rock>
 
@@ -50,6 +79,35 @@ The Black Keys - Peaches! (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative & In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE6DCD3D6596C451D1C3530F9C2C7F6CC683598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867937   (1067123) от 28.04.2026
+
+Lantlôs - Nowhere In Between Forever (2026) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Shoegaze, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067123.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Daisies 02:45
+2. Cherries 03:23
+3. Oxygen 03:31
+4. Jeanet 03:43(   Читать дальше...   )Жанр: Post-Metal, Shoegaze, Alternative MetalПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539ACC8EFD1F627AB52CB9815EBA1E93878760C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,64 +746,6 @@ Stone Sour— американская метал-группа, образова
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21383AA6237FA1210979BC72758D80A1E2FEE1EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601273   (1046460) от 01.01.2023
-
-Darko US - Dethmask, Pt. 1-2 (2020-2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UNMASKED (feat. Matt McDougal) [00:03:51]
-02. HYBRID PROCESS (feat. Landon Tewers) [00:04:16]
-03. NUMB LOCK [00:01:26]
-04. FUTURE DOOM [00:03:54](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 2 CD, 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE0C42D19992E9046681D14C11B672D8ACEC4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602395   (1046131) от 05.01.2023
-
-Astronoid - Radiant Bloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Admin
-02. Eyes
-03. Sleep Whisper
-04. Sedative(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D70C107F730CB2C20387C571A4A583CD0D6840
 ```
 
 https://mybot314.ru/tekegram_catalog/

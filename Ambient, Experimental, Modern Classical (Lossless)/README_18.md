@@ -1,3 +1,90 @@
+###  Публикация: 1268783   (263267) от 25.11.2019
+
+VA - Pop Ambient Series (2001-2019) Kompakt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Modern Classical, Soundscape>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thore Pfeiffer - Urquell (05:54)
+ 02. Max Wurden - Diminish (04:32)
+ 03. Yui Onodera - Cromo 4 (05:42)
+ 04. Joachim Spieth - Meteor (06:32)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Acoustic/DroneПродолжительность: 23:17:13 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E403C83041036EDC76C91FB7B4148A3DD66DC5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193624   (261977) от 22.12.2017
+
+Jason Van Wyk - Opacity (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shimmer (04:05)
+ 02. Blinded (02:18)
+ 03. Until Then (01:51)
+ 04. Recollect (04:16)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ContemporaryПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A51AAFB2232A0316B9DBF2E752E5ED12E978CC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837895   (257888) от 19.11.2025
+
+Antalio - Existentia (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quest (2:49)
+02. Explosion (5:39)
+03. Existentia (2:57)
+04. Cosmic Order (3:06)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3ED2D18B4FB51EEC4103868862B6F4C55FEC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618492   (249903) от 12.03.2023
 
 Hania Rani - On Giacometti (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Neoclassical>
@@ -399,6 +486,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 58826   (233704) от 22.05.2022
+
+Vangelis - Blade Runner Trilogy, 25th Anniversary (2007) [FLAC|Lossless]<Store, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_233704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles
+02. Blush Response
+03. Wait For Me
+04. Rachel's Song(   Читать дальше...   )Жанр: Store, AmbientПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B167962EF9FF34FA1B566D7849AF6299DCE6CD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424314   (229511) от 16.11.2020
 
 Kyle Bobby Dunn - FHTE-B (2019) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Abstract, Drone, Experimental>
@@ -624,118 +740,6 @@ Lamasz - Nature Morte (2020) Past Inside The Present [FLAC 2.0|44.1/24|tracks|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4028FCB301D181ABF8936E70C611A3FEAB22E59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964998   (227768) от 13.12.2015
-
-Arno Hoddinghaus (A/R/N/O/, ARNO, Höddinghaus) - Discography (1994-2014) [FLAC|Lossless|tracks+.cue, tracks, image+.cue]<Ambient, New Age>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abbey 1 (39:05)
- 02. Abbey 2 (21:23)Тип издания: CD, WebЖанр: Ambient, New Age |Продолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B9DDC4BEA273ACF93357B48B2B6195780A366D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424633   (227669) от 17.11.2020
-
-VA - Healing Sounds: A Compilation for Hurricane Recovery (2019) Past Inside the Present [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227669.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ilm – Gaia (06:34)
-2. Saltbreaker – Leaf, Pt. 2 (04:05)
-3. Olan Mill – Nature Has Her Way (04:28)
-4. Gallery Six – The Summer Banquet (05:52)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 02:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF899A6EE1D6B497EBA7AC1B2A1C20D5255E5F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424641   (227632) от 17.11.2020
-
-VA - Healing Sounds II: A Compilation For Those In Need (2020) Past Inside the Present [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone, Post-Rock, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227632.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Polar Moon – Alone Again (01:48)
-2. From Overseas – The Silent Life (04:30)
-3. Carlos Ferreira – Still Breathing (04:02)
-4. Ausklang – Abschied (05:55)(   Читать дальше...   )Жанр: Ambient, Drone, Post-Rock, ExperimentalПродолжительность: 04:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93212A9AA4D6CA0083CDB9C9115DD375C30BC82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424702   (227615) от 17.11.2020
-
-36 & Isaac Helsen - Anon 1 (2020) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All Possible States [36] (09:48)
-2. Before The WindЖанр: AmbientПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EB39E9880F1988FBE094C5A2DBDD8625D7E2CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

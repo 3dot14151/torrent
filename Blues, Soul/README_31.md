@@ -1,3 +1,61 @@
+###  Публикация: 953867   (344761) от 06.11.2015
+
+Big Cat - Big Cat (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Now On (04:41)
+02. Under The Bridge (03:56)
+03. Thief Of Hearts (04:16)
+04. Stand Up Man (03:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FF63851E74D80E628C2180F21AE3D0E3B839DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954107   (344500) от 06.11.2015
+
+Affonsinho - Bluesing (2015) [MP3|320 кб/с]<Modern Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love To Love You
+02. Just Stay
+03. Love's Philosophy (Feat. Percy Shelley)
+04. Jimi's Vibe(   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0DABEAAEDA2CA5CF38AD9EA7B6B40CAFF6A5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257674   (343128) от 27.10.2018
 
 Bob Daisley & Friends - Moore Blues For Gary (2018) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -687,64 +745,6 @@ Rory Gallagher - Deuce (1971) 4CD, 50th Anniversary, 2022, UMC [MP3|320 Kbps] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED4C9CA241A8053A5D6D5EC214C2DFDC3E2A01F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957792   (326776) от 18.11.2015
-
-Kelly Richey - Sweet Spirit (2013) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feelin' Under (03:03)
-02. I Went Down Easy (03:22)
-03. Leavin' It All Behind (02:22)
-04. Something's Going On (03:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11C629CC8930DD897A2E908373016666504C38A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958041   (325870) от 19.11.2015
-
-Aubryn - Nothin' Civil (2015) EP [OGG|494-516 кб/с]<Blues, Folk, Americana, Cabaret>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothin' Civil
-02. Cure My Disaster
-03. Number One Fan
-04. In the Field(   Читать дальше...   )Жанр: Blues, Folk, Americana, CabaretПродолжительность: 00:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADC890BBD55EFBD4A596952BC06C9280C4DC773
 ```
 
 https://mybot314.ru/tekegram_catalog/

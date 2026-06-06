@@ -1,3 +1,61 @@
+###  Публикация: 1362764   (948504) от 24.02.2020
+
+Klangstof - Close Eyes to Exit (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doolhof (05:16)
+02. Sleaze (03:53)
+03. Close Eyes to Exit (03:01)
+04. Hostage (04:31)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD12781ACF6382F03A46D76EA2B8ECD610D7D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982197   (948329) от 03.02.2016
+
+Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rawkfist
+02. Fire It Up
+03. Phenomenon
+04. This Is A Call(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4675F74C24357898744F6D11DC40E30EF4821F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362567   (948321) от 24.02.2020
 
 Ned's Acoustic Dustbin - Ned's Acoustic Dustbin (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -687,64 +745,6 @@ Days Of The New - Days Of The New (1997)/Outpost Recordings/ [FLAC|Image+cue]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BB63D1961035120AB647BE0EF72B887A8E38659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984671   (936897) от 10.02.2016
-
-Sex Pistols - Flogging a Dead Horse (1979) Reissue, 1986, Virgin [FLAC|Lossless|tracks + .cue] <Punk rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anarchy in the UK (03:34)
-02. I Wanna Be Me (03:07)
-03. God Save the Queen (03:22)
-04. Did You No Wrong (03:15)(   Читать дальше...   )Жанр: Punk rockПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2519A7A18BFC520C4F3941CE8F36D6711095933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860854   (936856) от 18.01.2015
-
-Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC|Lossless]<Alternative Rock/Industrial Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Strangers (5:36)
-02. Deep Six (5:03)
-03. Third Day Of A Seven Day Binge (4:27)
-04. The Mephistopheles Of Los Angeles (4:57)(   Читать дальше...   )Жанр: Alternative Rock/Industrial RockПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA24421BA05E8FF1923C550B5A8F26B27E16E8FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

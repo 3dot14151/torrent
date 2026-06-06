@@ -1,3 +1,61 @@
+###  Публикация: 1411421   (427557) от 25.09.2020
+
+Hiroka Matsuda - The Black Fire Original Image Album (1987) [FLAC|Lossless|tracks + .cue] <New Age, Minimal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Fire (5:34)
+02. Market (3:49)
+03. Dim Soul (5:26)
+04. Searcher (3:50)(   Читать дальше...   )Жанр: New Age, MinimalПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC5F4D7C9F6B69D59D72C8B1AEE968E7D7A8210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946844   (424428) от 14.10.2015
+
+Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [FLAC|image+.cue]<Ambient, New age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Time Machine (feat. Boys Noize)
+02. Glory (feat. M83)
+03. Close your eyes (feat. AIR)
+04. Automatic (part 1) (feat. Vince Clarke)(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F4769D1FAB4E832FD308625DE97D0C1592D461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167334   (419436) от 19.09.2017
 
 Michel Pepe - La Foret d'Eden (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -693,64 +751,6 @@ Peter Kater - Dancing On Water (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D60AB1AA32780EBF99C30F14351A942CEF070058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253593   (381765) от 10.10.2018
-
-Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chakra #1 (07:35)
-02. Chakra #2 (06:30)
-03. Chakra #3 (05:28)
-04. Chakra #4 (05:27)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E2B4D0B6847C10BBCD3367004B2981A2C63447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253602   (381764) от 10.10.2018
-
-Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bringing Down The Silence (14:53)
-02. Strings of my Heart (06:56)
-03. Out of the Mist (03:29)
-04. Eyes in the Mirror (04:40)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8FF65AD57F7C8D71142FA8F8865F7FD7BB86B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,232 @@
+###  Публикация: 1225265   (661827) от 14.05.2018
+
+Lemongrass - Unite (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Wings (4:24)
+ 02. Joyful (6:38)
+ 03. I Miss You (4:40)
+ 04. Time to Go (4:59)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F61EC5C7097153DFFCD60D04D455205C3FB9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538853   (661284) от 22.03.2022
+
+VA - Spring Chill Mirage: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska – Message In The Bottle (04:11)
+02. Michael E – Lost In Thought (original mix) (05:18)
+03. Matej Blanusa – Beginning (Medani Pieck) (03:58)
+04. Beamy – Sea Breeze (04:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF225E7FCA3286BBB24FBB805596720D13F1D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139620   (659300) от 03.06.2017
+
+Venture - Collection 6 Releases (2012-2015) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, IDM, Minimal, Chillstep, Drum n Bass, Glitch>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As My World Falls Apart (04:03)
+ 02. Eternia (04:02)
+ 03. Method 5 (05:05)
+ 04. Fragments (05:30)(   Читать дальше...   )Тип издания: WebЖанр: Downtempo, Ambient, IDM, Minimal, Chillstep, Drum n Bass, Glitch •Продолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F4A45B8CAF0784C52A21A07FB52428C28291EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539196   (658124) от 25.03.2022
+
+Sexy Chillout Music Cafe - Chillout Piano Bar Lounge 2022 [FLAC|Lossless|WEB-DL|tracks] <Chillout, Instrumental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibiza Chillout Party (2:49)
+02. Finest Chillout Music (2:58)
+03. Deep Chill (2:59)
+04. Music for Holiday (2:34)(   Читать дальше...   )Жанр: Chillout, InstrumentalПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799D583256B04615265838F72159AA02156A8964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291807   (652728) от 26.03.2019
+
+Graham Van Pelt - Time Travel (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Abstract, Chillwave>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652728.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. New Friends
+2. Release Yourself
+3. Saving Grace
+4. Out Of This World(   Читать дальше...   )Жанр: Electronic, Abstract, ChillwaveПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91681E3C0E3AEA8A707A8FAD66305BDFC85CA884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227098   (650492) от 24.05.2018
+
+Snakestyle - Discography 10 Releases (2007-2015) Alex Tronic Records [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Dub, Psybient, IDM, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misunderstood (06:00)Тип издания: CD, WebЖанр: Downtempo/AmbientПродолжительность: 00:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084ACC185F71809324167F3128594C1788863134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292248   (646683) от 29.03.2019
+
+VA - Secret Lounge - Erotic Pleasure (2009) 3CD [FLAC|Lossless|image + .cue] <Easy Listening, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646683.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Unknown Lights feat. Franjo - En-Vol
+02. Sharion - Pleasure
+03. Without Face & Without Number - La Coccinelle(   Читать дальше...   )Жанр: Easy Listening, Chillout, LoungeПродолжительность: 03:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B932F3D2BAB017DD4914247F3E5C6ED4C1D849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292545   (645287) от 30.03.2019
+
+H1987 - ODYSSEY (2018) [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtempo, Trip Hop, Chillwave>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I (3:24)
+02. II (5:00)
+03. III (4:38)
+04. IV (4:31)(   Читать дальше...   )Жанр: Ambient, Downtempo, Trip Hop, ChillwaveПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FEF58E2C5985CC988F7294DC90A666B36B4802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 347176   (641557) от 07.06.2011
 
 DJ Silence - Driving Relax (2010) [FLAC|Lossless]<Ambient>
@@ -507,238 +736,6 @@ Jens Buchert - Exoplanet (2019) Dimension Music [FLAC|Lossless|WEB-DL|tracks] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EED06C8982471AD8E69AA470E61460E836C0F8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037998   (608715) от 27.07.2016
-
-Jens Buchert - Elevation (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevation (5:19)
-02. Aquanaut (4:39)
-03. Discworld (4:52)
-04. Luna (5:16)(   Читать дальше...   )Жанр: Chill House, Lounge, DowntempoПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79A25E75A533219059989012E1785D5CC16DFB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038450   (606825) от 28.07.2016
-
-VA - Paris Lounge Night (2016) [FLAC|Lossless|tracks] <Еаsу-Lіstеnіng>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lеmоngrаss - Bоnjоur 03:54
-02. Trіо Еlеtrісо - Wаndаnсе Раrіs 04:56
-03. Sесоnd Brеаth - Еn Рrіvе 05:11
-04. Саthаrіnа Jоsу - Аutumn Іn Раrіs 03:34(   Читать дальше...   )Жанр: Еаsу-LіstеnіngПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FF5AF2E7CE3A6C441A259296FB3CC6D7FAFCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064918   (604247) от 25.04.2022
-
-Claude Challe - Nirvana Lounge 02 (2002) 2CD Box [APE|Lossless|image + .cue] <Downtempo, Tribal, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aladdin - We Enter (Deep Forest Dub VIP Mix)
-02 Radar - Running Away
-03 Blue Planet - Latin Masala
-04 Genetic druGs & Jasmon - Lost Frequencies(   Читать дальше...   )Жанр: Downtempo, Tribal, Deep HouseПродолжительность: 02:28;56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C004073DCFE92530D72A6E98A7B0685219C048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067174   (603857) от 26.04.2022
-
-VA - Best Of Buddha (2002) 2CD [APE|Lossless|image + .cue] <Future Jazz, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitin Sawhney - Bengali Song
-02. Alex Gopher - The Child
-03. Delerium - Silence (album mix)
-04. Al-pha-X - Blue Jay (Zape Vala Sojka Pitca)(   Читать дальше...   )Жанр: Future Jazz, Downtempo, AmbientПродолжительность: 02:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A1DD4A071D67DF3FAE7C13DF8AE86BDA7CC0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547841   (602025) от 30.04.2022
-
-VA - Spring Aromas: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Marie Therese - What Can I Say (4:13)
-02. The Soul Crusaders - In My Dreams (7:31)
-03. Beamy - Hope (5:09)
-04. Peter Pearson - Fire Me Up (5:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9719EE3E67D4CA084DEA7D52D5E48C877055C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298582   (601763) от 28.04.2019
-
-Sean Hayman - Forget Time & Space (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (Dreamwave Mix)
-02. Mirage (Illusion Mix)
-03. The Night of the Sultans (Le Voyage Ethno Mix)
-04. Spiral Dynamics (New Way Mix)(   Читать дальше...   )Жанр: Lounge, Downtempo, Chill OutПродолжительность: 02:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A547DE6256551743D04651E5AF0EC859B795F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298499   (601752) от 28.04.2019
-
-Cinematic - The World In Slow Motion (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep in My Eyes (Pure Affection Mix)
-02. Only You (Del Mar Mix)
-03. In My Soul (Stretch Your Mind Cut)
-04. Noises 2017 (Your Time Mix)(   Читать дальше...   )Жанр: Lounge, Downtempo, Chill OutПродолжительность: 02:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AC15475B66F2D0C43597072EBE77D81E797EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298846   (601596) от 29.04.2019
-
-Lamb - The Secret Of Letting Go (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Dance, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phosphorous (2:28)
-02. Moonshine (2:44)
-03. Armageddon Waits (4:20)
-04. Bulletproof (3:33)(   Читать дальше...   )Жанр: Electronic, Dance, DowntempoПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204376CAB73D3D3AE17D886AE3C194AF59F5744A
 ```
 
 https://mybot314.ru/tekegram_catalog/

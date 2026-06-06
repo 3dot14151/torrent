@@ -1,3 +1,90 @@
+###  Публикация: 936944   (492231) от 13.09.2015
+
+The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
+02. When The Whip Comes Down
+03. Let s Spend The Night Together
+04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichАктеры: Mick Jagger (vocals, guitar), Keith Richards (guitars, vocals), Ronnie Wood (guitars, backing vocals), Bill Wyman (bass guitar), Charlie Watts (drums), Ian Stewart (piano), Ian McLagan (keyboards, backing vocals), Ernie Watts, Boby Keys (saxophone)Продолжительность: 02:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D8C88305F7B049FB5F8F53F98134D8C55A5E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937213   (489551) от 14.09.2015
+
+James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой концерт оркестра в Королевском Альберт-Холле, который не нуждается в особом представлении. Около двух часов прекрасной инструментальной музыки различных стилей и направлений, некоторые номера сопровождают вокал, как индивидуальный, так и ансамблевый.01. Pulstar
+02. The Way we Were
+03. Medley: Charmaine / Ja Ja Der Chiantiwien / Singing In The Rain
+04. Candle In The Wind(   Читать дальше...   )Жанр: Classical Pop, Rock, Jazz, Instrumental, Film ScoreПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17DC2837593337FD00A9B567CF209E5EE5A2658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 699272   (489127) от 12.09.2013
+
+Madonna - MDNA World Tour (2013) HDTV [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virgin Mary (Intro)
+02. Girl Gone Wild
+03. Revolver
+04. Gang Bang(   Читать дальше...   )Жанр: PopПродолжительность: 01:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3196A078B7294699932F2421306B5BF8F1090C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544671   (486411) от 09.09.2012
 
 Tarja Turunen - Act 1 (2012) BDRip [720p]
@@ -642,91 +729,6 @@ Madonna - The MDNA Tour (2013) BDRemux [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE1CB851EC213E830C5052E202310569B0BC52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701371   (473926) от 19.09.2013
-
-Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) BDRemux [1080p]
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473926.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 июля 1986 г., Queen дали крупнейший концерт из когда-либо проходивших в Будапеште, перед лицом огромной толпы ликующих фанатов. В запись вошли все самые известные треки группы, включая такие супер-хиты как «Bohemian Rhapsody», «Crazy Little Thing Called Love», «I Want To Break Free» и «We Are The Champions». Концерт в Будапеште состоялся в рамках «Magic Tour», (   Читать дальше...   )01. One Vision
-02. Tie Your Mother Down
-03. In the Lap of the Gods... Revisited
-04. Seven Seas of Rhye(   Читать дальше...   )Производство: США / Eagle Rock EntertainmentЖанр: RockРежиссер: Янош Жомбояи / János ZsombolyaiПеревод: ОтсутствуетСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (на диалоги), английский (на диалоги)Продолжительность: 01:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D170282FB2FA710BBBE53626F996743EFD5412C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160529   (473769) от 25.08.2017
-
-Graham Bonnet Band: Live...Here Comes the Night (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Грэма Боннета и его группы на Frontiers Rock Festival 2016 в Милане. Грэм Боннэт — британский рок-вокалист, автор песен. Участник групп Marbles, Rainbow, Michael Schenker Group, Impellitteri, Alcatrazz, Forcefield, Blackthorne и других. Также выпустил несколько сольных альбомов.
-Релиз от01. Eyes Of The World
-02. All Night Long
-03. S.O.S.
-04. Stand In Line(   Читать дальше...   )Производство: Frontiers RecordsЖанр: Hard RockПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0695A66CEC3428A1258D8408881EA5E83FFAE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547498   (473727) от 15.09.2012
-
-Live At Wacken Open Air 2011 (2011) [1080p] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wacken Open Air – крупнейший в мире летний фестиваль тяжелой музыки, проходящий под открытым небом. Это грандиозное трехдневное событие проходит ежегодно в первые выходные августа в местечке Вакен (Германия, район Гамбурга). Свою историю Wacken Open Air ведет с 1990 года. За время своего существования фестиваль прошел путь от любительского концерта под открытым небом до одного из самых профессиональных по организации и качественных по составу участников мероприятия среди себе подобных. Сегодня Wacken Open Air - это не просто несколько единомышленников. Это целая организация (полное название: ICS Festival Service GmbH), которая занимается исключительно фестивалем, и в которой работает весьма многочисленный штат. Главной задачей всех этих людей является создание коммерчески успешного фестиваля, и это удается последние несколько лет. В 21 веке практически все фестивали проходили с аншлагом. Организаторы фестиваля заботятся об имидже фестиваля, ежегодно создавая настоящий праздник для металлистов всего мира. Как правило (   Читать дальше...   )Kvelertak - MjodЖанр: Концерт, Heavy, power, gothic, thrash, progressive, death metalПродолжительность: 03:18:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

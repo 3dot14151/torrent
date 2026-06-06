@@ -1,3 +1,119 @@
+###  Публикация: 951870   (360584) от 30.10.2015
+
+Dschinghis Khan - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moskau (04:32)
+02. Komm doch Heim (04:19)
+03. Samurai (04:42)
+04. Rocking Son Of Dschinghis Khan (04:16)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E396A52E8EE8CCC0CB26D4B4271B9146B8A76927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328987   (358170) от 02.10.2019
+
+VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2xCD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excitations And Fred Ventura - State Of Confusion (Italoconnection Remix) (6:31)
+02. Stockholm Nightlife Feat. Helly - My Guiding Star (ZYX Extended) (7:28)
+03. Tom Hooker - You're Right (Mixtended Version) (7:04)
+04. Alex Valentini - See You Again (Extended Mix) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED114E17DC10B0EEB88BDB6C2C85ADC8526FC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952293   (358091) от 31.10.2015
+
+Silent Circle - The Original Maxi-Singles Collection (2014) [MP3|320 кб/с]<Eurodisco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hide Away - Man Is Comin! (Special Mix) (05:11)
+02. Touch In The Night (Crash Version) (05:35)
+03. Stop The Rain (12'' Version) (05:39)
+04. Love Is Just A Word (Reggae Version) (05:47)(   Читать дальше...   )Жанр: Eurodisco, SynthpopПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8372C6BE8C0BF7426D367D14F2AD17E1A8C9457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329087   (356511) от 03.10.2019
+
+The Hues Corporation - Your Place Or Mine (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up Off Your Backsides (7:23)
+02. Love Dance (3:36)
+03. Don't Forget To Woogie (4:00)
+04. Needed (3:32)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C4B8AAA573D457E71FE4616165291C0480DE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329347   (354589) от 04.10.2019
 
 Easy Going - Fear (1979) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -626,122 +742,6 @@ VA - New Italo Disco Top 25 Compilation, Vol.10 (2018) [MP3|320 Kbps] <Italo-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78999D63DF733B7D70CD09F3642E71066998F21A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180364   (340278) от 04.11.2017
-
-VA - Radio Mania Vol. 1-2 (2016) [MP3|320 Kbps] <EuroDance, EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chito - Cold as Ice (4:02)
-02. Nikita Fomin - Stranger (3:52)
-03. The Daylite - Do I Love You (80's Disco Mix) (3:16)
-04. Chito - The Long Tomorrow (4:09)(   Читать дальше...   )Жанр: EuroDance, EuroDiscoПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD061C69B33E8E87FEA641EB2012BC3FC7F7E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180405   (340142) от 04.11.2017
-
-The Universal Robot Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340142.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Universal Robot Band - американская музыкальная группа в составе: Gregory Carmichael, Patrick Adams, Leroy Burgess, Gregory Tolbert и Woody Cunningham. Сформированы Патриком Адамсом и Грегом Кармайклом в 1976, их дебютный сингл "Dance And Shake Your Tambourine" достиг максимума в топе 25 хитов в танцевальной клуб-музыке.01. Flintstone Disco (8:52)
-02. Dance And Shake Your Tambourine (6:21)
-03. You're My Music (5:05)
-04. Space Disco (11:47)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE2F4F97F563FD97BD6D0EDE201E0CC088469B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419463   (339988) от 28.10.2020
-
-Gene Farrow - Move Your Body (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move Your Body  (5:43)
-02. Woman  (3:32)
-03. One Night In New York  (3:29)
-04. Do It Again  (3:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C17A25E4D72F28B2F09C8E6002B5C15CE2308D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954738   (339711) от 08.11.2015
-
-Sabrina - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys (Summertime Love) (03:53)
-02. Hot Girl (03:38)
-03. Get Ready (Holiday Rock) (03:20)
-04. Kiss (03:37)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4A6C9DA0E76B1BB3FE1084D550B5C7699AE268
 ```
 
 https://mybot314.ru/tekegram_catalog/

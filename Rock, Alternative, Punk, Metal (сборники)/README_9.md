@@ -1,3 +1,154 @@
+###  Публикация: 1494641   (887455) от 08.09.2021
+
+VA - The Timeless Rock Classic Collection (2021) [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887455.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nazareth - Love Hurts
+002. The Stranglers - Golden Brown
+003. Uriah Heep - Free 'n' Easy
+004. Royal Blood - Out Of The Black(   Читать дальше...   )Жанр: Classic RockПродолжительность: 08:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E2CF50B3617E2A02FCE1702286057F3B8CE54B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372026   (887197) от 02.04.2020
+
+VA - Pandemic: Hardcore And Hard Rock Selection (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887197.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fists Of Time - Lifeless
+002. Elsewhere - Overwhelm
+003. No Home - Nothing Gold Can Stay
+004. Linkin Park - The Catalyst(   Читать дальше...   )Жанр: Hardcore, Hard Rock, MetalПродолжительность: 08:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1750D4A82361BDC07FDF6FD344086FEAF476320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372024   (887128) от 02.04.2020
+
+VA - Indie Night: Pop Rock Season Alternative (2020) [MP3|320 Kbps] <Indie, Pop, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887128.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Girl Ray - Show Me More
+002. Anthony Green - You're So Dead Meat Reimagined
+003. Brightness - Dallas
+004. Kate Davis - Animals(   Читать дальше...   )Жанр: Indie, Pop, RockПродолжительность: 08:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02026F43B23409171126F54BB70D9EA3B2AB845B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185777   (884850) от 23.03.2010
+
+VA - Русский Рок На Все Времена (2010) [MP3|128-256 kbps]<Русский Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_884850.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ддт - Дождь
+002. Б. Гребенщиков - Никита Рязанский
+003. Чайф - Не Спеши
+004. Аквариум - Скорбец (Radio Edit)
+005. Ундервуд - Парабеллум
+006. Тараканы! - Кто-То Из Нас Двоих
+007. Смысловые Галлюцинации - Вечно Молодой
+008. Ария - Воля И Разум 2005 (+бутусов, Кинчев, Самойловы И Шевчук)
+009. Танцы Минус - Город
+010. Мумий Тролль - Это По Любви(   Читать дальше...   )Жанр: Русский РокПродолжительность: 11:05:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373086   (881887) от 05.04.2020
+
+VA - 100% 70s Rock (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagles - Hotel California (2013 Remaster)
+02. AC/DC - Highway to Hell
+03. The Rolling Stones - Brown Sugar
+04. The Doors - Riders on the Storm(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 04:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33613EE4BA7522544A2C8EFF95AB6A0355F7889E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373180   (881812) от 05.04.2020
 
 Roger Waters - 100% Roger Waters (2020) [MP3|320 Kbps] <Rock>
@@ -597,151 +748,6 @@ VA - The Blues For Yesterday (Vol.03) (2021) [MP3|320 Kbps] <Blues, Rock Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04598ECED1AAB6FE65A847F9455434A378ECFA45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374679   (872578) от 10.04.2020
-
-VA - Acoustic Rock vol.4 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Sour - Wicked Game - Acoustic; Live (04:27)
-02. Stone Sour - Through Glass (04:42)
-03. Seether - Broken (04:17)
-04. Staind - Epiphany (04:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82ADC00BEE2BE93793DC13BC56D09E5DFABBD9AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374545   (872437) от 10.04.2020
-
-Billy Idol - 100% Billy Idol (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Sixteen (Live in Odense)
-02. Shock To The System
-03. Flesh For Fantasy (Below The Belt Mix / 2001 Digital Remaster)
-04. Sweet Sixteen (Live On VH1 Storytellers, New York City, New York/2001)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 06:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5115A17D0842F8077608BB7B2A783343024536C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374577   (872279) от 10.04.2020
-
-Joe Cocker - 100% Joe Cocker (2020) [MP3|320 Kbps] <Rock, Pop>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feels Like Forever
-02. Now That the Magic Has Gone
-03. Unchain My Heart
-04. Night Calls(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D663D90B844C1F16C559819BD6382388EBB7DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996597   (872043) от 18.03.2016
-
-Agialis - Компиляция (2016) [MP3|320 кб/с] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.10 шагов[04:05]
-02.Ghostbusters(cover)[03:20]
-03.Ангелы[03:41]
-04.Вьюга[05:02](   Читать дальше...   )Жанр: МеталлПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFE2989E5CE0AD452B86E76ABFEC4638CB6E44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375138   (868983) от 12.04.2020
-
-VA - Acoustic Rock vol.3 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America - A Horse with No Name (04:12)
-02. Bread - Everything I Own (03:07)
-03. Faces - Ooh La La (03:34)
-04. Alanis Morissette - Ironic - Acoustic Version (03:55)(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1199BDF5A56B472712B1349C871022942FB5CFBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

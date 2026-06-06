@@ -1,3 +1,61 @@
+###  Публикация: 1012251   (794283) от 30.04.2016
+
+VA - Disco 80's Maxi Club Hits Vol. 1-3 (Remixes & Rarities) (2012) [MP3|320 кб/с] <Italo Disco, Eurodisco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Albert One - Heart On Fire (Special Maxi Mix) (05:33)
+02 Baltimora - Living in the Background (Maxi Mix) (06:06)
+03 David Lyme - You Are My Desire (Maxi Mix) (05:57)
+04 Den Harrow - You Have a Way (Maxi Mix) (05:51)(   Читать дальше...   )Жанр: Italo Disco, Eurodisco, SynthpopПродолжительность: 03:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BA880E56407BB849283C38DC039BF6307AA107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386948   (793627) от 30.05.2020
+
+Hot Sauce - Baby Tenderness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Tenderness (3:06)
+02. May Be (3:43)
+03. Funky Train (3:10)
+04. Conga (2:45)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE4B690E1A98CFD50C3AED5A0481316F8231974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386911   (793389) от 30.05.2020
 
 Roberta Flack Featuring Donny Hathaway - Roberta Flack Featuring Donny Hathaway (1979) Reissue CD, 1996, Atlantic [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -685,64 +743,6 @@ The Glass Family - 2 Albums (1978,1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F407FD611D442A0C40A214494320F1AF8E6EF4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390655   (782632) от 16.06.2020
-
-Dee D. Jackson - 2 Albums (1978, 1980) LP Mint [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dee D. Jackson (рус. Ди Ди Джексон, полное имя Дейдр Элен Козьер - англ. Deirdre Elaine Cozier; род. 15 июля 1954, Оксфорд, Великобритания) - британская певица, композитор. Данные альбомы из-за былой популярности не нуждаются в своем представлении. Обложки альбомов, а так же название второго альбома в этом итальянском издании, отличаются от привычных. Спасибо  Dymokust (   Читать дальше...   )01. Automatic Lover (4:06)
-02. Red Flight (4:13)
-03. Galaxy Of Love (4:50)
-04. Meteor Man (4:45)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036C0E1081AFE28D050D575133B7A8879A7D42FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206815   (781713) от 15.02.2018
-
-VA - Disco 80's Vol.2 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blanco Y Negro Music - I Love Disco Diamonds (Hidden Track) (0:07)
-02. Bolero - I Wish (7:52)
-03. Danny Keith - Keep On Music (6:42)
-04. Grant Miller - Colder Than Ice (5:36)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9817C16FE21CB6CDC40C4C599116F088E17900AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

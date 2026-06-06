@@ -1,3 +1,61 @@
+###  Публикация: 1143038   (639221) от 16.06.2017
+
+Estimado - Escape To Heaven (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Dancing on My Own
+02. Faster
+03. Believe in Me
+04. I Want You Heaven(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843ECD339BA90048B779E5876E6C9D304AED01FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542263   (639107) от 06.04.2022
+
+Quango & Sparky - Disco (1980) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Fran Jubilee (3:16)
+02. Do The Boogaloo (3:12)
+03. Do The Boogaloo (Instrumental) (3:13)
+04. The Disco Rock (3:29)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF47EC241FB029882ECE92E9317F962B7278BC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228146   (637379) от 31.05.2018
 
 C.C. Catch - Hits & More (2017) Compilation [MP3|320 Kbps] <Euro-Disco, Synth-pop>
@@ -691,64 +749,6 @@ VA - Italo Disco: The Lost Legends Vol. 19 (2018) [MP3|320 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230324   (617382) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 17 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Via Verdi - Love Is A Dream
-02. Ryvon - Sing A Happy Song
-03. Federico L'Olandese Volante - Just Another Love Song
-04. Too Too Toy - Don't Wake Up(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F838F9B09D48919E640BD5C0138A565E4DCD53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230318   (617302) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 16 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiki Gaida - Virginal Mystery
-02. Parsifal - Carillon (English Version)
-03. Tenere - Moon Destination (Vocal English Version)
-04. Zener - New Generation(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CE1DD01FCB7DFBD2C145BBDA75008B49D5926F
 ```
 
 https://mybot314.ru/tekegram_catalog/

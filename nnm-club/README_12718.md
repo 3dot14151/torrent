@@ -1,24 +1,25 @@
-###  Публикация: 1047191   (550371) от 29.08.2016
+###  Публикация: 1306508   (555582) от 05.06.2019
 
-Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Мужчины. Спринт 10 км (27.08.2016) WEB-DL [H.264/576p-LQ]
+Elvenking - Two Tragedy Poets and a Caravan of Weird Figures (2008) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 августа 2016, суббота. 11:30 МСК
-Чемпионат мира по летнему биатлону 2016. Отепя (Эстония).
- Мужчины. Спринт 10 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин)Продолжительность: 01:05:00
+01. The Caravan Of Weird Figures
+02. Another Awful Hobs Tale
+03. From Blood To Stone
+04. Ask A Silly Question(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:45:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3139D8ADA51A8A03CB5AEE8A527D02F316695AB
+magnet:?xt=urn:btih:9DF9E0979B1F9EFDE9D1EA94072301A3A2CBB364
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,347 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047143   (550370) от 29.08.2016
+###  Публикация: 1306583   (555581) от 05.06.2019
 
-VA - Satin Lounge Vol.1 (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuco 103 - Outro Lado
-02. Five Seasons - Guapo
-03. Frank Popp Ensemble - Just Say Goodbye
-04. Chin Chillaz - Trinity(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8CF773EB4F8A4E692F5F5298E7DB08C4ECB895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047170   (550369) от 29.08.2016
-
-VA - Ibiza Dreams, Vol. 1 (Finest Island Chill Out Mix) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Blue Chest - Floating (Beach Mix) (6:04)
-02. Roberto Sol, Florito - Tomorrow (4:50)
-03. Naoki Kenji - Tsunami (6:24)
-04. Peter Pearson - Always In My Dream (5:41)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA121800D65C30B480EC1BBF7E2999E49995D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047265   (550368) от 29.08.2016
-
-Jack McDuff - The Soulful Drums (1964, 1965) 2001, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Soulful Drums [06:10]
- 02.Two Bass Hit [07:17]
- 03.Greasy Drums [05:39]
- 04.Moohah The D.J. [07:30](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA514626976B10DEED50CA202690AB7E20C4DBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047189   (550367) от 29.08.2016
-
-VA - Play Emotions Vol.2 Sweet Company Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GYSNOIZE - Same Love (04:01)
-02. Gabrielle Chiararo - Tango а Rouen (04:33)
-03. Edo - Illusion (04:01)
-04. Gabrielle Chiararo - Rien а faire pour moi (05:01)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9E32F6611DEE7923E761085019600A0B809A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047181   (550366) от 29.08.2016
-
-VA - The Sweet Lounge Vol.8 (Lounge in Capri) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koel - Emotions on the Keys (4:52)
-02. Viktor (UA) - We Are in Two (3:34)
-03. Giacomo Bondi - About a Bird Radio Edit (Full Mix) (4:13)
-04. Giacomo Bondi - Bola e samba no pe (Full Mix) (4:22)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16EA36B5D7B284E117A25BF6D26B6D752FD7167C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047415   (550365) от 29.08.2016
-
-VA - Ibiza Musica Relajante (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight74 - Full Strings (3:36)
-02. Angel Spirit - Changing Spaces (3:49)
-03. Steve Sweet Peace - Rampant Ghost (3:49)
-04. Karim Le Mec - Happy Hour (3:25)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66343D4398F1B5FAC706995D784CA209DA2A56B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047214   (550364) от 29.08.2016
-
-Steve Hunt - From Your Heart And Your Soul (1997) [WavPack|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550364.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Thing After Another (4:05)
-2. Point Of Light (6:23)
-3. Wake Up (6:24)
-4. Coming Home (8:25)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075CEDA3AD8EEEEC33220461A08BD763B74B8BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047029   (550363) от 29.08.2016
-
-Toots Thielemans - The Soul of Toots Thielemans (1959) 2010, FSR [FLAC|Lossless|tracks + .cue] <Bop, Contemporary Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are My Sunshine  05:17
-02. Nuages  05:24
-03. Five O'clock Whistle  04:37
-04. Soul  04:56(   Читать дальше...   )Жанр: Bop, Contemporary Jazz, Mainstream JazzПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D603A74ACA8FDC40D9892DB875D917B9AF2542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047188   (550362) от 29.08.2016
-
-VA - Play Emotions Vol.1 Beyond the Imagination Chill Out (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Tayla - Amazon Moon
-02. Rainbow From Rain - Deep Sea Emotions
-03. Valefim Planet - Infinity - Original Mix
-04. Valefim Planet - Morning Forest(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45FA29B77BB07D6FBCD6A5A6C316D5533F49BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046838   (550361) от 29.08.2016
-
-Sadao Watanabe - Orange Express (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Orange Express [04:39]
- 02.Ride On [04:42]
- 03.Call Me [05:08]
- 04.Good For All Night [06:36](   Читать дальше...   )Жанр: Post-Bop, Crossover JazzПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BAE24336F6E05129DE9B02F2872C87AC56F1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047190   (550360) от 29.08.2016
-
-VA - Play Emotions Vol.3 Lounge and Chill Sweet Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Strangio - Weather Watch (Underscore) (01:04)
-02. St Project - Open Wings (04:01)
-03. Giacomo Bondi - Across My Mind (05:55)
-04. Nemax - Saudade do Brazil (01:59)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41AC9D2F9341E5BC6AA79AD811110D17C5D1AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047204   (550359) от 29.08.2016
-
-VA - Ferry Corsten presents Corsten's Countdown  August (2016) [MP3|320 Kbps] <Trance>
+Black Swan - The Sentimental Drift (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Drone, Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Arty & Andrew Bayer - Follow The Light (06:46)
-02 Pierre Pienaar - Novus Vitae (Original Mix) (06:29)
-03 Rex Mundi - Skybe (Original Mix) (06:30)
-04 Sied Van Riel & Mike Sanders - Geyser (Original (07:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:33
+01. Birth (02:50)
+02. Infinite Tides (03:46)
+03. The Color of Distance (03:09)
+04. No Enemy But Time (05:49)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:54:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7DA6FBA3E7596A84B415CF23F237D03D087EA17
+magnet:?xt=urn:btih:F6D18D68120DFA3F212333533F0ED8EACE6C7A5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,27 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046678   (550358) от 29.08.2016
+###  Публикация: 1306552   (555580) от 05.06.2019
 
-С. Б. Ингулов | Политбеседы (1937) [PDF]
+Departure Chandelier - Antichrist Rise To Power (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коммунистические партии должны добиваться установления широчайшего единого фронта при помощи совместных действий рабочих организаций различных направлений для борьбы против войны, для защиты жизненных интересов трудящихся масс. Необходимо вовлечь в эту борьбу все организации, ставящие себе целью борьбу за мир.
-
-Коммунистические партии должны бороться против подготовки (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+1. Intro (Napoleon's Sword) (02:28)
+2. Life Escaping through the Candle's Smoke (04:22)
+3. Forever Faithful to the Emperor (04:54)
+4. Catacombs Beneath the Castle of the Marquis (04:58)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A9D6DE85244CB3606E9A650980FADBB9E85A1BE
+magnet:?xt=urn:btih:5015F2E150E8348B8D98DAC268EDDD75E2FD66FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +85,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047346   (550357) от 29.08.2016
+###  Публикация: 1306678   (555579) от 05.06.2019
 
-Nadiamori - Nadiamori Electro Jazz (2005) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lounge, Electro Swing>
+Anthéne (Anthene) - Orchid (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Ambient>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_555579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fauna (4:38)
+ 02. Reflected Light (6:56)
+ 03. Flora (5:52)
+ 04. Frozen Path (4:06)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306674   (555578) от 05.06.2019
+
+Gary Peacock & Ralph Towner - Oracle (1994) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nadiamori (04:30)
-02. Drum'n Blues (04:50)
-03. Money Back Guarant... (05:26)
-04. Free In Love (04:58)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Electro SwingПродолжительность: 00:40:37
+01. Gaya (5:39)
+ 02. Flutter Step (5:48)
+ 03. Empty Carrousel (5:51)
+ 04. Hat and Cane (5:15)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4A8C059F13CFCD4A66527C3ED7EEAEEEB49F8A2
+magnet:?xt=urn:btih:B590416135CBB8E85B9D726056C05CBF5C6C1F38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,27 +143,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047192   (550356) от 29.08.2016
+###  Публикация: 1306483   (555577) от 05.06.2019
 
-Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Женщины. Спринт 7,5 км (27.08.2016) WEB-DL [H.264/576p-LQ]
+Oh Shu - Big Fish (2019) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonny
+02. Lucky
+03. 0418
+04. Muzhhik(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEAB181818036E58BD3CD9584CAB597A2DAD188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306555   (555576) от 05.06.2019
+
+Charlotte Cornfield - The Shape Of Your Name (2019) [FLAC|Lossless|tracks + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555576.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. June (03:54)
+2. Storm Clouds (04:46)
+3. Balladeer (03:42)
+4. Andrew (03:31)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A91F61A9D01B5F258EC16ABC2DFCB2A25D2AC75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306551   (555575) от 05.06.2019
+
+Lou Karsh - Phantom Structures (2019) Furthur Electronix [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seep (05:48)
+ 02. Biotic Interaction (05:21)
+ 03. Opaque Acid (06:05)
+ 04. Palatial (07:49)(   Читать дальше...   )Жанр: Electro, IDM, Acid, AmbientПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983FAED322969E296AFB41EB643106347E751294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306549   (555574) от 05.06.2019
+
+Ben Platt - Sing to Me Instead (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Habit (04:22)
+02. Ease My Mind (04:36)
+03. Temporary Love (03:38)
+04. Grow As We Go (04:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8804EF58FF4937771E0ACDE8AD5FE014D30CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306600   (555573) от 05.06.2019
+
+Газета | Сезон у дачи №9 (286) (Май 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77BADD6EB9726C00BCABF70157CADECDAD335DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306498   (555570) от 05.06.2019
+
+The Hawkmen - The Hawkmen (2019) [MP3|320 Kbps] <Rhythm & Blues, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is blind (02:53)
+02. Soulful dress (02:59)
+03. Acai (02:44)
+04. Chemistry of love (03:07)(   Читать дальше...   )Жанр: Rhythm & Blues, RockabillyПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D732793FF3E283EACE467C2656FB682EC64F827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306577   (555567) от 05.06.2019
+
+Баскетбол. НБА 2018-2019. Финал. 2-й Матч. Торонто Рэпторс — Голден Стэйт Уорриорз (2019) IPTV [H.264/1080i-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 августа 2016, суббота. 14:00 МСК
-Чемпионат мира по летнему биатлону 2016. Отепя (Эстония)
-Женщины. Спринт 7,5 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин)Продолжительность: 00:57:36
+03 июня 2019, понедельник. 03:00 МСК
+Финал НБА 2019 года — заключительная стадия регулярного чемпионата НБА в сезоне 2018/19 и окончание плей-офф.
+2-й Матч.
+Торонто Рэпторс (Торонто) - Голден Стэйт Уорриорз (Окленд)(   Читать дальше...   )Телекомпания: Setanta Sport +Жанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:58:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B239AFB50208ABF9A5659418A46F2CC86A445B41
+magnet:?xt=urn:btih:35CA945AF5F04D6B9DE54C3491372FF150CDCA8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,168 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046873   (550355) от 29.08.2016
+###  Публикация: 1306581   (555565) от 05.06.2019
 
-Jim Suhler and Monkey Beat - Radio Mojo (1993) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Were You When the Lights Went Outї  02:50
-02. Doncha Hang Around My Door  04:30
-03. Radio Mojo  03:31
-04. Devil's Hand  03:40(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D59506DDF3F3745F2AFEEC43B3DF1B1863C237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309528   (550354) от 20.06.2019
-
-VA - Easy Guitar (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Castro - Learning To Fly (Acoustic Version) 4:35
-02. Alanis Morissette - Hand In My Pocket (Acoustic Version) 4:31
-03. Stone Sour - Wicked Game (Live Acoustic) 4:27
-04. Tyler Hilton - Missing You (Acoustic Version) 3:20(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 01:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB705E66E42831CF6E31444C8E2D37C881E972DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309588   (550353) от 20.06.2019
-
-VA - Night Dreams (2019) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550353.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bross (Ro) - I Hear The Drums
-002. Aava - Makes Me Cry
-003. Enduro Disco - Would Change All
-004. Djcybertsai - Expansive (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 12:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069FE67839BF16FAD1BA8230ABA68C79A19A0AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309578   (550352) от 20.06.2019
-
-Векторный клипарт - Vector Sport Collection #39 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Спорт
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0E918431B3F3F3F57AE851C1F387BAE1179629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309576   (550351) от 20.06.2019
-
-Векторный клипарт - Vector Professions #25 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Профессии
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CE9E1AB378CA493FB9650AA49AE4AE71C86342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309639   (550350) от 20.06.2019
-
-AnyMP4 Video Enhancement 7.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
+Хоккей. НХЛ. Кубок Стэнли 2019. Финал. 4-й Матч. Сент-Луис Блюз — Бостон Брюинз (2019) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AnyMP4 Video Enhancement - Видеоредактор для повышения качества. Позволяет изменить разрешение, оптимизировать яркость и контрастность, удалить шумы, а также конвертировать видео. Кроме того, позволяет вращать видео в любых направлениях, редактировать с помощью обрезки кадра, кадрирование, добавление водяных знаков, а также конвертировать видео в 4K H.265/HEVC, 4K (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+04 июня 2019, вторник. 03:00 МСК
+Финал Кубка Стэнли 2019 — решающая серия розыгрыша Кубка Стэнли НХЛ 2018–2019 годов.
+4-й Матч.
+Сент-Луис Блюз — Бостон Брюинз(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54A91FEC046ADA6A8AD59D86579EF831AD19EE7C
+magnet:?xt=urn:btih:E43392155F7FEB9953A9ADAA2E2D9C6B716691A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309521   (550349) от 20.06.2019
+###  Публикация: 1306572   (555562) от 05.06.2019
 
-VA - The Hottest Latino Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Latino Pop>
+NASCAR-2019. 14-й Этап. Поконо. Гонка / Monster Energy NASCAR Cup Series 2019. Pocono 400. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Reggaeton Latino - Travesuras (3:18)
-02.Reggaeton Latino - Mi Gente (3:05)
-03.Reggaeton Latino - Ni Tu No Yo (3:36)
-04.Reggaeton Latino - Bobo (3:31)(   Читать дальше...   )Жанр: Latino PopПродолжительность: 00:57:16
+NASCAR Cup Series 2019 - Сезон 2019 года
+Воскресенье, 02 июня 2019 года. Лонг–Понд (штат Пенсильвания, США).
+14-й Этап. Pocono 400
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:12:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:423B38B7106586E768679B631623D39B830FBD2C
+magnet:?xt=urn:btih:DFACB835496A993B99D72AA8B4510FE47DBEFE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,57 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309602   (550348) от 20.06.2019
+###  Публикация: 1306563   (555561) от 05.06.2019
 
-Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hitch Hikin' (03:37)
-02. The Wayfarer (04:18)
-03. Tucson Train (03:31)
-04. Western Stars (04:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046F6EDC81A8842B32531658963AB429F23BACDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309453   (550347) от 20.06.2019
-
-VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternative, Hard Rock>
+VA - Friendly Reminder: Punk Rock Collection (2019) [MP3|320 Kbps] <Punk, Punk Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Inglorious - Queen
-002. Ashley Cleveland - Up From The Ether
-003. Passcode - Bite The Bullet
-004. Quantum Leap - Sea(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 09:58:18
+001. Down Memory Lane - Xenophobic
+002. Sharp Sleeves - Old Soul
+003. Burn Burn Burn! - Fugue State
+004. Big Black - Pavement Saw(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 08:21:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CBFC2D7FDB795E3962D55C2B759F0D1AE4138CB
+magnet:?xt=urn:btih:B1CF4BEDBBD82C61F4CE7B26F01233D0B41C814E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,25 +430,296 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309547   (550346) от 20.06.2019
+###  Публикация: 1306570   (555559) от 05.06.2019
 
-Tipard HD Video Converter 9.2.18 RePack (& Portable) by TryRooM [Multi/Ru]
+VA - So Fresh: The Hits Of Autumn 2019 [FLAC|Lossless|tracks + .cue] <Pop, Dance, R'n'B>
 
->>Архив торрентов
->>Архив Программ
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tipard HD Video Converter - программа, видео конвертер файлов различных форматов в HD видео, поддержка HD TS, HD MTS, HD WMV, HD MPG, HD MPEG4, H.264/AVC , HD AVI, HD ASF и других видео форматов, поддержка High-Definition (HD) видео кодирования и декодирования, извлечение аудио в AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA и другие аудио форматы, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+01. Ariana Grande - 7 rings
+02. Mark Ronson - Nothing Breaks Like a Heart (feat. Miley Cyrus)
+03. Post Malone - Wow.
+04. Dean Lewis - 7 Minutes(   Читать дальше...   )Жанр: Pop, Dance, R'n'BПродолжительность: 01:14:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C183682E11AFF2F7679E4B2A598BE199BA7A1A52
+magnet:?xt=urn:btih:2732D4120EE9FE089F6E1B75D0337696B766A121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306522   (555557) от 05.06.2019
+
+Meiko - In Your Dreams (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Knows (03:50)
+02. Gimme Gimme (02:32)
+03. My Brain Is a Computer (04:28)
+04. Roses (02:57)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B355FC6BD4D07BFB823ED08D4C485681DC4EC947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306573   (555554) от 05.06.2019
+
+Google Chrome 75.0.3770.80 Portable by Cento8 [Ru/En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_555554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306616   (555551) от 05.06.2019
+
+Apeaksoft Blu-ray Player 1.0.12 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_555551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apeaksoft Blu-ray Player - программное обеспечение, которое может воспроизводить диски Blu-ray и DVD на компьютерах с Windows с лучшим качеством видео.
+Apeaksoft Blu-ray Player поможет вам воспроизводить диски Blu-ray, папку Blu-ray, DVD-диск / папку, файл ISO и видео в различных форматах, включая 1080P и 4K видео, а также аудио форматах.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306655   (555549) от 05.06.2019
+
+VueScan Pro 9.6.42 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555549.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE6721F745959004BEB8E9FFDE56E715A3C16F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306656   (555548) от 05.06.2019
+
+Вулканы: двойное разрушение / Volcanoes: Dual Destruction (2018) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 2018 года и мир потрясены двумя драматическими извержениями вулканов: Килауэа на Гавайях и Фуэго в Гватемале. Оба вызывают ужас, но по-разному.
+У вулканов издавна устрашающая репутация. И это оправдано, ведь вулканы - самая важная сила в формировании планеты такой, как мы ее видим сегодня. Путешествие по озеру лавы и тоннелям подземных пещер поможет понять, (   Читать дальше...   )Производство: Великобритания, Emporium ProductionsЖанр: Документальный, познавательныйРежиссер: Марк СтриксонПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F00ACF5D52A5BCF849FAC2FB9CC2B5370A5B03B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306356   (555547) от 05.06.2019
+
+VA - Summer Pool: European Dance Hit (2019) [MP3|320 Kbps] <Pop Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aksel - Fading Pictures
+002. Agus - Voices
+003. Factory Of Souls - Big Game (Original Mix)
+004. Fabio Gandolfo - Hьtchenspieler(   Читать дальше...   )Жанр: Pop Dance, Club, HouseПродолжительность: 09:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0A482989BFB8487CAE8AC8B61A4AF2583E73B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306641   (555546) от 05.06.2019
+
+Opera 60.0.3255.151 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0892DB6F99B9346DB131DBA2BC06C489C26E1B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306622   (555545) от 05.06.2019
+
+Женщины Ндрангеты / Lady 'Ndrangheta (2015) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помимо сицилийской мафии Коза Ностра и неаполитанской Каморры, в Италии есть еще одна – не столь известная, но не менее могущественная преступная сеть в Калабрии – Ндрангета. Женщины в этих семьях не имеют никаких прав, они должны заниматься домашними делами и уважать законы клана, гарантирующие им защиту и богатство. В фильме рассказывается о стиле жизни мафии с (   Читать дальше...   )Производство: Италия, США, Production Aesthetics, Storyville Films, WildsideЖанр: Документальный, драмаРежиссер: Уши ДжейкобиПеревод: Одноголосый закадровый, профессиональныйСубтитры: Норвежские (неотключаемые)Продолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3EA54AEA903EE67E1B844EBE3D39DA12006399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306564   (555544) от 05.06.2019
+
+SamDrivers 19.5.1 LAN [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.19 / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer 1.19.4 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45DDC93BAF3DE2BCB96EF3E1589A9D959470A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306571   (555542) от 05.06.2019
+
+Google Chrome 75.0.3770.80 Stable + Enterprise [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_555542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

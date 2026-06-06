@@ -1,3 +1,32 @@
+###  Публикация: 902621   (660231) от 29.05.2015
+
+Midnight Odyssey - Shards Of Silver Fade (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660231.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. From A Frozen Wasteland
+2. Hunter Of The Celestial Sea
+3. Son Of Phoebus
+4. A Ghost In Gleaming Stars(   Читать дальше...   )Жанр: Atmospheric Black Metal, AmbientПродолжительность: 02:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540FA5D115356B545D1115F3C713C25CD7C6EC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902731   (660214) от 29.05.2015
 
 Luca Turilli's Rhapsody - Prometheus (2015) Single [MP3|320 кб/с]<Symphonic Power Metal>
@@ -731,35 +760,6 @@ Siren - A Kingdom Aflame (2015) [MP3|320 кб/с]<Heavy Metal, Doom Metal, Black
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9E519A2D47B981B8F2EDCD8714658A63237CD77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903735   (656990) от 01.06.2015
-
-Synesthesia - Worst Case Scenario (2015) [MP3|320 кб/с]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656990.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Seventh
-2. Drop Of Mercy
-3. The Collapse
-4. Dedication(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9310C9FC97A4871E6B1532996B2A538E866CA0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

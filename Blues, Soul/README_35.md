@@ -1,3 +1,119 @@
+###  Публикация: 1084870   (219059) от 19.12.2016
+
+Bob Lanza Blues Band - From Hero to Zero (2015) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Loving You (03:55)
+02. All over Again (04:41)
+03. Love and Kindness (06:24)
+04. Hero to Zero (03:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9962BC77CBCE99F6D635F59C8D4B60EA1F2B771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966789   (218947) от 18.12.2015
+
+Fiona Boyes - Box & Dice (2015) [MP3|320 кб/с] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juke Joint On Moses Lane  (03:33)
+02. I'm A Stranger Here  (04:50)
+03. Walking Round Money  (03:42)
+04. Smokestack Lightning  (04:22)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E255FE5FFDE77A3123919FF52788C2F5E6F3D55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343418   (218180) от 06.12.2019
+
+Dalannah Gail Bowen - Looking Back (2019) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Back
+02. What the Hell is That?
+03. Down to the River
+04. I Got You(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A58C51D8F2E7D741B6FBF942631E184D3E9FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269609   (217499) от 16.12.2018
+
+Eric Mcfadden - Does ACDC (Acoustic Tribute) (2018) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hells Bells
+02. Rock’n’Roll Damnation
+03. Girls Got Rhythm
+04. Have A Drink On Me(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1CA4D1363F5E6867BEFB337F618FDAB0D291F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426199   (216101) от 23.11.2020
 
 VA - Christmas Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -623,122 +739,6 @@ Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (2023) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1744819EABF0D03578C123096B483FCB5F2A66D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593767   (179286) от 29.11.2022
-
-Catch 23 - Blues Hotel (2022) [mp3|320 kbps|tracks] <Blues, Classic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Hotel [00:04:24]
-02. Half The Man [00:03:44]
-03. If It Aint Broke [00:03:13]
-04. Nat Turner [00:03:43](   Читать дальше...   )Жанр: Blues, Classic RockПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3295B4527D28ED7C459F4FCD4C5AAE58E3A46844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666566   (178901) от 05.10.2023
-
-Zucchero - Blue's (1987) [MP3|320 Kbps] <Blues, Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue's Introduction [00:15]
-02. Con Le Mani [04:43]
-03. Pippo [04:44]
-04. Dune Mosse [05:32](   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93102286572F0EC25FF02E95F76E3AF2AB435CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428822   (178148) от 04.12.2020
-
-Henrik Freischlader Band - Missing Pieces (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening (4:03)
-02. New Beginning (7:40)
-03. Power to the Peaceful (3:39)
-04. Let the People Be Free (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE2950430C9A5D4C24A82CC0E121FE8C9C8C25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667710   (175969) от 09.10.2023
-
-Rory Gallagher - Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Start Me Talkin' (Jinx Session / 1982) [03:34]
-02. Nothin' But The Devil (Against The Grain Session / 1975) [04:58]
-03. Tore Down (Blueprint Session / 1973) [05:10]
-04. I Could've Had Religion (WNCR Cleveland Radio Session / 1973) [05:57](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8891CA974E827E4E2ACC5DF4071D5275BC735CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

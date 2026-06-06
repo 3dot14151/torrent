@@ -1,3 +1,55 @@
+###  Публикация: 609890   (991231) от 28.01.2013
+
+David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (2011) BDRip [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D87314B768A9D0EC7D959D87126E711C362ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609529   (991229) от 28.01.2013
+
+Inna - Endless (2011) HDRemux [h.264,1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95170BDD77332826199E674DEA90797EDB77641A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609943   (991157) от 28.01.2013
 
 Ke$ha / Kesha - C'Mon (2013) HDRemux [h.264,1080p]
@@ -635,60 +687,6 @@ Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61FB1CCE3992F04820547F78282B3FE1E9DCAFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436010   (982166) от 13.01.2012
-
-VA - Millenium Sexy - Сборник популярных видеоклипов (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: VariousПродолжительность: ~02:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F824C856ED3BD3B1532A7D6DE6429E78D2DA3ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435841   (982158) от 13.01.2012
-
-VA - 50 Самых сексуальных музыкальных видео всех времен - 1 Часть (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Madonna - Justify my Love
-«Justify My Love» — первый сингл американской певицы Мадонны со сборника лучших песен 1990 года «The Immaculate Collection», вышедший 6 ноября 1990 года. После выход, сингл занял высшую позицию в рейтинге Billboard Hot 100 и многих других мировых чартов, а также достиг первого места в чарте Billboard Hot Dance Music/Club Play.
-02 George (   Читать дальше...   )Жанр: VariousПродолжительность: ~01:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5812635B529BEB61577F370DBCA95AD64ECC80D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

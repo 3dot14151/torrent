@@ -1,3 +1,90 @@
+###  Публикация: 1405324   (485326) от 29.08.2020
+
+Paul van Dyk - Guiding Light (2020) [FLAC|Lossless|tracks] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Van Dyk & Vincent Corver - Deep Within (Original Mix)
+02. Paul Van Dyk & Sue McLaren - Guiding Light (Original Mix)
+03. Paul Van Dyk & Saad Ayub - You Found Me (Original Mix)
+04. Paul Van Dyk & Shedona - Exhale (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 01:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0544A04D26CC3B40C20A80F35B38193CF75D4EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159178   (483910) от 20.08.2017
+
+VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sultan + Shepard - Bloom (Intro Mix)  4:05
+02.  Joonas Hahmo & K-System - Manana (Original Mix)  3:31
+03.  Andy Moor & Ashley Wallbridge - FaceOff (Original Mix)  2:54
+04.  Rodrigo Deem - Tearsdrop (Original Mix)  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB06A5780351360FAB66D061B9D79FA280C3F046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055984   (483861) от 24.09.2016
+
+Delerium feat Phildel - Ritual (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dark Ambient, Industrial>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483861.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. - Ritual (Album Mix) 5:13
+ 2. - Ritual (Radio Edit) 4:11
+ 3. - Ritual (Matt Lange Remix) 6:37
+ 4. - Ritual (Alex Klingle Remix) 5:32(   Читать дальше...   )Жанр: Trance, Dark Ambient, IndustrialПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6A7A398B4F63A70ED73503709DC549ED36AC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405751   (481260) от 31.08.2020
 
 VA - Pure Trance Frequencies 2 (2020) [FLAC|Lossless|tracks] <Trance>
@@ -650,93 +737,6 @@ VA - Always Alive Recordings 100 (Mixed By Ferry Tayle & Dan Stone) (2015) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F5675DCB922B98D3061AD844E0510F0A748897C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248812   (439640) от 21.09.2018
-
-VA - Elles De Graaf - The Long Run - The Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance,Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elles De Graaf – Show You My World (Ferry Corsten Edit - 2014 Remastering)
-02. Armin van Buuren & Perpetuous Dreamer – The Sound of Goodbye (Armin's Tribal Feel Radio Edit)
-03. Elles De Graaf & Alan Morris – Calm The Night (Ferrin & Morris Edit)
-04. Elles De Graaf – Mind of The Wonderful 2018 (Sunset Remix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8DA754D5C3DA607AD55E8CDB0BFA05286B390A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410122   (438433) от 20.09.2020
-
-VA - Azure Ibiza (2020) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaym – Crystal
-02. Deep Movement – Looking Out
-03. E1ectron1k – Autumn's Rustle
-04. Trancenoid – Nowhere(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12EFC0F88A3A265D8F93554858F270CF37C0A18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063111   (437644) от 15.10.2016
-
-VA - Ibiza Trance 2016 Volume Two (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Tritonal, Angel Taylor - Getaway (Gareth Emery & Ashley Wallbridge Radio Edit) [04:09]
-02 Reunify, Kris Maydak, Danyka Nadeau - Worth It (Willem de Roo Radio Edit) [02:54]
-03 Noise Zoo - Spectre (Radio Edit) [03:31]
-04 Rodrigo Deem - Lux (Radio Edit) [03:39](   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8975CFA953B89D30841BA5E2E5A1FCF42E38229
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 977855   (964817) от 22.01.2016
+
+Dethrone - Incinerate All (2016) [MP3|320 кб/с] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reborn in Fire
+02. The Plague Carrier
+03. Rat King
+04. Morbid Existence(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB595EFBB62E9A8845CA9DE66E323583EF4640F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978064   (964801) от 22.01.2016
 
 Legions of Raum - Fruition (2016) [MP3|320 кб/с] <MDM>
@@ -716,35 +745,6 @@ Ost+Front - 3 альбома (2012 - 2014)  Discography [MP3|320 кб/с]<NDH, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DBD5D4E7B379C5A7C11DEA7222F16B0FF774E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088863   (955073) от 01.01.2017
-
-Mechina - As Embers Turn to Dust (2017) [MP3|320 Kbps] <Epic, Symphonic, Industrial Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godspeed, Vanguards (9:07)
-02. Creation Level Event (6:47)
-03. Impact Proxy (8:22)
-04. Aetherion Rain (3:56)(   Читать дальше...   )Жанр: Epic, Symphonic, Industrial Death MetalПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AA1A4A1EE9B8BA2BD14BCD80C26478104C484C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1277469   (157995) от 20.12.2020
+
+Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industrial Metal, Dubstep, Drum & Bass, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157995.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - Reqviem v1.0 (EP)
+2013 - Reqviem v1.5 (EP)
+2014 - Rave The Reqviem (Limited Edition)
+2015 - Remix The Reqviem(   Читать дальше...   )Жанр: Industrial Metal, Dubstep, Drum & Bass, IndustrialПродолжительность: 05:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92E2CF481115BF209B27F5E513CE3512CEDA9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434795   (148229) от 26.12.2020
 
 XXOT - Ажур (2020) [MP3|320 Kbps] <Industrial, EBM, Experimental, Female Vocal>
@@ -716,35 +745,6 @@ Insatiable Void - Nefelibata Descent (2024) 2CD [MP3|320 Kbps] <Industrial, witc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6185497D098E9DC69A1F96CAF8BE6AE0F777063F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754329   (40873) от 09.10.2024
-
-Our Graves - System Overload (2024) [MP3|320 Kbps] <EBM, Industrial, Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. System Overload (4:39)
-02. Precious Lies (3:57)
-03. We Want It All (4:37)
-04. Faceless (4:54)(   Читать дальше...   )Жанр: EBM, Industrial, Dark ElectroПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A6FF0A44BCD9A0B85A1B00575459659667FC6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

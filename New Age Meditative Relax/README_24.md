@@ -1,3 +1,61 @@
+###  Публикация: 1262473   (291079) от 17.11.2018
+
+Jean-Michel Jarre - Equinoxe Infinity (2018) [MP3|320 Kbps] <Ambient, New-Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The watchers (Movement 1)
+02. Flying totems (Movement 2)
+03. Robots don’t cry (Movement 3)
+04. All that you leave behind (Movement 4)(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609C92AB7C8FA956312A47FE860A33E09B633CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185646   (291022) от 22.11.2017
+
+Gregorian - The Platinum Collection (2017) [MP3|320 Kbps] <New Age, Medieval, Other>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brothers In Arms 05:56
+02. Scarborough Fair 04:51
+03. When A Man Loves A Woman 04:53
+04. Nothing Else Matters 06:15(   Читать дальше...   )Жанр: New Age, Medieval, OtherПродолжительность: 02:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13613067A48BB9ACB58DCBCBA1CDEA88A1F7887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185957   (289825) от 23.11.2017
 
 Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
@@ -701,64 +759,6 @@ Jeff Pearce - From the Darker Seasons (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A223761770FB7F6BA8280E62E01AB5CF3A8D2960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189854   (269508) от 07.12.2017
-
-Michael Logozar - Starlight (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise to Sunset
-02. Twilight Peace
-03. Starlight
-04. Promenade(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA28A37F698FBECCAC2096772B7920AD0A458B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189570   (269430) от 07.12.2017
-
-VA - Kamasutra Tantra Massage - Just Relax (2013) [MP3|320 Kbps] <Relax, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Touch - Indian Dawn
-02. Oriental Vibes - Chanda Day
-03. Body Massage - Bengali Wave
-04. Invisible Circle - Free Pass(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912C0286698E587BFECC6D4183EEDB896FEE1372
 ```
 
 https://mybot314.ru/tekegram_catalog/

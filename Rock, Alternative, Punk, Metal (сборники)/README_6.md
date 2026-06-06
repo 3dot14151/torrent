@@ -1,3 +1,148 @@
+###  Публикация: 855345   (960974) от 02.01.2015
+
+Accept - Heavy Ballads (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seawinds
+02 - Drifting apart
+03 - Pomp and circumstance
+04 - Just by my own(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DFAC8E80D7E9B23E03C80590BECFA2DE7A5CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747821   (960907) от 20.01.2014
+
+Александр Барыкин - Лучшие песни (4CD) (1981-2011) (2014) [MP3|320 кб/с]<Rock, Reggae, New Wave>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960907.jpg" />
+</div>
+
+
+###  Подробнее
+
+51. Осень пришла (2003)
+52. Ночь-голубая тайна (Ая!) (2003)
+53. Спасательный круг (2004)
+54. О любви (2005)(   Читать дальше...   )Жанр: Rock, Reggae, New WaveПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8390386D23705F24A0D00B8AF208FD70C695419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 855633   (959639) от 03.01.2015
+
+W.A.S.P. - All ballads (1982-2012) 2CD Bootleg [MP3|320 кб/с]<Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Free
+02. Heaven's Hung In Black
+03. Kill Your Pretty Face
+04. Chainsaw Charlie (Intro)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA97CFAECF07A57B0976B24F042FD741D50B693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980195   (955933) от 29.01.2016
+
+The Eagles - Edgy and Heavy (2016) (3CD)[MP3|210-320 кб/с] <Rock, Folk-rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955933.jpg" />
+</div>
+
+
+###  Подробнее
+
+25. You Dont Have Me
+26. Already Gone
+27. Victim of Love
+28.You Dont Know Me At All(   Читать дальше...   )Жанр: Rock, Folk-rockПродолжительность: 03:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6A0160CCBBC7BACF07EB4509AEF42800876148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361369   (955401) от 19.02.2020
+
+VA - Рок впрок 14 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стёртые Лица - Чтобы жить
+02. Deviltears – Безликие
+03. МИССИЯ - Ранняя весна
+04. Тень Звука – Город(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F6CDB29003AF474094A4F15DD82E1E09F732CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089044   (953404) от 02.01.2017
 
 Ozzy Osbourne - The Great & Powerful (2CD) (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
@@ -603,152 +748,6 @@ VA - 80s Rock Hits (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD259981E2811FEE005B38D4B5AA1C98519BA0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489335   (925167) от 16.08.2021
-
-Nazareth - The Platinum Collection (2021) 2CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alcatraz
-02. Dream On
-03. Turn On Your Receiver
-04. Woke Up This Morning(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9570FA0AFE8546713A5A0040B4F89A59DA8D6A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489734   (922262) от 18.08.2021
-
-Ringo Starr - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photograph
-02. Only YouЖанр: RockПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A8C2CCB5C01D4916A2D81C12E19FCFA0506787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489736   (922251) от 18.08.2021
-
-George Harrison - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got My Mind Set On You
-02. My Sweet Lord
-03. Give Me Love (Give Me Peace On Earth)
-04. Don't Let Me Wait Too Long(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EBAA8631163F4CB5B08CA1F879C0E7DB803E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096137   (920536) от 23.01.2017
-
-VA - Hits of My Soul Vol. 22 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Kid Rock - Bawitdaba (04:25)
-02. Aerosmith - Sweet Emotion (04:34)
-03. Saliva - Superstar (04:09)
-04. Reckless Love - Hot (03:22)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B793BE8131D2528F29EC3B5DACA520AF45E3FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096529   (919068) от 24.01.2017
-
-VA - Around The Rock (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919068.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shaman's Harvest - Dangerous
-002. Guilt Machine - Twisted Coil
-003. The Guess Who - American Woman
-004. Fates Warning - Seven Stars(   Читать дальше...   )Жанр: RockПродолжительность: 09:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A06D7A3C76354E56B6C495C5662CE41E8E56CE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

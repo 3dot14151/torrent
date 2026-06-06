@@ -1,3 +1,206 @@
+###  Публикация: 1499571   (846313) от 03.10.2021
+
+Jerro - Coming Home (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home (3:52)
+ 02. Too Weak (4:01)
+ 03. Sweeping (4:04)
+ 04. Lost for Words (feat Panama) (3:19)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E515388B9939FCA492AB9479ACE002A6281233CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378683   (843138) от 27.04.2020
+
+Booka Shade - Galvany Street (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Indie Pop, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digging a Hole (4:41)
+ 02. Numb the Pain (4:25)
+ 03. Magnolia (1:41)
+ 04. Broken Skin (4:47)(   Читать дальше...   )Жанр: Electronic, Tech House, Indie Pop, DowntempoПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E00A6E7095EA62DF48EA5441E37BBC45FCA64F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112791   (841543) от 09.03.2017
+
+lorian MSK - Le Vacarme De Diavel (2016) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L Insondable Grandeur De L Ombre (08:55)
+02. Resonances Tourmentees Du Comte De L Aube (07:43)
+03. Dissonances Letargiques (09:13)
+04. La Portail De La Coisee Des Vents (08:06)(   Читать дальше...   )Жанр: Techno, Psy-Trance, MinimalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66342B48892B4BDE1411E24229CA9AC93138FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003352   (841493) от 04.04.2016
+
+Moderat - III (Box Set, 3CD, Limited Edition) (2016) [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eating Hooks (NGHT DRPS Remix) (05:16)
+ 02. Reminder (Hodges More Amor Remix) (05:44)
+ 03. Eating Hooks (Siriusmo Remix) (04:42)
+ 04. Fondle (04:51)(   Читать дальше...   )Жанр: Techno, IDM, Electro, Experimental •Продолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC1954655DDD8D565946635488E5E54945B81BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379605   (839556) от 29.04.2020
+
+Above & Beyond - Anjunabeats Essentials (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond – Is It Love? (1001) (Grum Remix) (05:18)
+02. Boom Jinx – Phoenix From The Flames feat. Justine Suissa (Maor Levi Remix) (05:52)
+03. Gabriel & Dresden – Something Bigger (feat. Sub Teal) (04:45)
+04. Grum – Running (feat. Jinadu) (05:15)(   Читать дальше...   )Жанр: Progressive House, Tech TranceПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FD354E677374363BAD9F6C7C7C86566B7C28FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246510   (838922) от 29.04.2020
+
+Wanderwelle - Discography 7 Releases (2015-2020) Silent Season [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Decay (04:16)
+ 02. Reliquary (02:32)
+ 03. Shells (05:07)
+ 04. Vanitas (05:06)(   Читать дальше...   )Тип издания: CD, WebЖанр: AmbientПродолжительность: 04:53:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E0162F8397DF60D386EE80A47A7F075AEBEBAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112906   (838641) от 11.03.2017
+
+Marbert Rocel - In The Beginning: Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On (Deetron Dub) (6:08)
+ 02. Dawn Of The Day (Snacks Remix) (5:50)
+ 03. With Your Love (Quarion Remix) (7:05)
+ 04. Hold On (M.ono & Luvless Remix) (6:54)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8587E5545310842E1EE2D47F91FB1A9D430C7BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113364   (838543) от 11.03.2017
 
 V.A. - House Del Mar (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Electro>
@@ -538,209 +741,6 @@ Hardwell feat. Jake Reese - Mad World: The Remixes (2016) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1DA791B86A110E96CFE59ADE5F7453D803FD187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006369   (828384) от 11.04.2016
-
-U96 - Das Boot (1992) [FLAC|Lossless|image + .cue] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Boot (5:14)
-02. Come 2 Gether (3:49)
-03. Der Kommandant (3:12)
-04. No Control (4:30)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B7A7B560E523F8F6DC3AF6F09302D81D2ADAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006530   (826985) от 12.04.2016
-
-U96 - The Dark Matter EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Of The Rose [04:18]
-02. Dark Matter [04:02]
-03. Human Cosmic [04:17]
-04. Run With It [05:29](   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A3781332DA0FBD204CD791C1C8271B17181F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502660   (826512) от 15.10.2021
-
-Tiesto - Together Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oohla Oohla (2:23)
-02. Money (2:50)
-03. I’ll Take You High (2:52)
-04. Be Something (2:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5363F9D4AC462186AE0197508CB46A92135037CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006878   (825477) от 13.04.2016
-
-The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark One (4:51)
-02. Mercury Switch (7:03)
-03. Very Good Then (3:56)
-04. Eazy Lazy (6:18)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D16A552B571BBE9C4435E71ED8FD0AC36D3283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502862   (824843) от 16.10.2021
-
-Miss Monique - FGIX (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Monique - FGIX (Continuous DJ Mix) (01:04:45)
- 02. Sergey Muzarks - Eclipse (7:32)
- 03. Evegrem - Skylab (9:01)
- 04. Bulk Beat - Flaming June (8:08)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8D6A64B5DC08473D349C31B6C49CCCAEEF21FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116195   (824439) от 19.03.2017
-
-VA - Nu Disco, Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Devil In My Head (feat Irina Makosh) [06:25]
-02. Ffunk - About You [03:48]
-03. NekliFF/Mary SK - First Dot (Tosel & Hale remix) [05:58]
-04. Tunnelvision - Popping Candy (Monrabeatz & Black Birdz remix)[05:50](   Читать дальше...   )Жанр: Nu Disco, Deep HouseПродолжительность: 04:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5DFDFC7120E685318FD8112B747B6DD0F93A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196267   (824235) от 02.01.2018
-
-VA - Yoshitoshi: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoshitoshi: Best Of 2017 (continuous DJ mix 1) [57:17]
-02. Yoshitoshi: Best Of 2017 (continuous DJ mix 2) [01:02:22]
-03. Aaaron - Black Arp (original mix) [07:05]
-04. PQM Feat. Cica - The Flying Song (UNER remix) [06:29](   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 04:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330BDEAE2F416DC9271F8F76A2C2A020BBA1AE11
 ```
 
 https://mybot314.ru/tekegram_catalog/

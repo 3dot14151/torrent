@@ -1,3 +1,116 @@
+###  Публикация: 1318285   (496586) от 05.08.2019
+
+Tight Fit - The Lion Sleeps Tonight (1982) Vinyl Rip [MP3|320 Kbps] <Pop, Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lion Sleeps Tonight    [03:29]
+02. Fantasy Island    [03:36]
+03. Hearts Of Stone    [04:09]
+04. Break Hearts Of Glass    [03:21](   Читать дальше...   )Жанр: Pop, Disco, ElectronicПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E636F0F46CD90385B1875C26035B0E6FDB8CB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243095   (496002) от 25.08.2018
+
+Angie Gold - 4 Albums (1982-2012) [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя Angelina Fiorina KyteСписок альбомов:
+1982 - A Lady Of Gold
+1986 - Applause
+1988 - Angie Gold(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 03:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC9D852F7F82E843B9F5CF1629099C97D22FEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565360   (494665) от 23.07.2022
+
+Bananarama - Masquerade (2022) [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494665.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Favourite (3:07)
+2. Stay Wild (3:48)
+3. Velvet Lies (2:48)
+4. Masquerade (4:14)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8C751A4F15759B0AF8083A816910C28EA8B066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565355   (494564) от 23.07.2022
+
+Bad Boys Blue - 25-The Long Mixes (2022) [MP3|320 Kbps] <Disco, Dance, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A WomanЖанр: Disco, Dance, HouseПродолжительность: 02:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49108438C0B73AAA2A6D3C47862090D9218D7FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054189   (494209) от 19.09.2016
 
 Boris Midney - 11 Albums (1978-1999) Reissue CD (2012-2014) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
@@ -626,122 +739,6 @@ A' La Carte - 4 Albums (1980-1989) Reissue CD [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32A6A5CE4C0A99284886AEE1372D58186AAFA614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320311   (473371) от 17.08.2019
-
-Strutt - Time Moves On (1975) Reissue CD, 2001, Victor [MP3|320 Kbps] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Moves On (6:01)
-02. Said You Didn't Love Him (3:13)
-03. Front Row Romeo (Instrumental) (4:23)
-04. We've Come A Long Way Baby (4:21)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678CB22FED902D3004D5FAAFF2C5D2C24B2EF48C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058241   (470953) от 30.09.2016
-
-Southern Exposure - Headin' South (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский диско-проект от продюсеров Willi Morrison & Ian Guenther, в основном известных по THP Orchestra и др.01. Headin' South (7:50)
-02. On Our Way (9:38)
-03. Love Is (11:45)
-04. Tight Pants (6:02)Жанр: Disco, Funk-SoulПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357896C001852F37DC61AB5C4496EF36C2A612A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245796   (470070) от 07.09.2018
-
-Brenda Mitchell - Don't You Know (1978) [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Party (7:34)
-02. I'm Running (5:28)
-03. Don't You Know (4:03)
-04. Get It Together (6:37)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A9C236B5261A4B47BDF453D250865C646B1278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245756   (469970) от 07.09.2018
-
-Nation In Blue - Discography (2016-2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have You Got What It Takes (7:27)
-02. Nothing Less (6:21)
-03. Your Saviour I Will Be (6:15)
-04. I Will Do Anything (6:07)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2B6E6BAB68F21E18AA5E209639944F524DB5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

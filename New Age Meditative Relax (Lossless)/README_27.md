@@ -1,3 +1,90 @@
+###  Публикация: 1638591   (211916) от 09.06.2023
+
+Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] <Mantra>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Govindam
+02. Ishvara Lila Yitellam
+03. Charana Kamala Me
+04. Shiva Shambo(   Читать дальше...   )Жанр: MantraПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07023341DC1D5FE05F4A06D54C79FEF0AD9EE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641449   (210886) от 22.06.2023
+
+Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams (7:20)
+ 02. Calmness (6:24)
+ 03. Transformation (8:13)
+ 04. Drifting (13:49)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D091C13A1D1150C61BDED10D5B22895DAB5877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645059   (209317) от 09.07.2023
+
+VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <Instrumental, Relax, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подводный мир (1:06)
+02. Дождь в лесу (1:21)
+03. Возле маленького ручейка (6:51)
+04. Рассвет на озере (6:05)(   Читать дальше...   )Жанр: Instrumental, Relax, ClassicalПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651888   (206744) от 09.08.2023
 
 Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
@@ -657,93 +744,6 @@ Shinnobu - The Enigma IV (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Spiritua
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4484B29915FA23F8D5ABF186D299F439AEEC9662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345129   (165012) от 17.12.2019
-
-Jean Michel Jarre - Images: The Best Of Jean Michel Jarre (1991) Compilation, Reissue, 1992, Disques Dreyfus [FLAC|Lossless|image + .cue] <Ambient, New-Age, Experimental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Oxygene 4 [3:09]
- 02 - Equinoxe 5 [3:22]
- 03 - Chants Magnetiques 2 [3:57]
- 04 - Oxygene 2 [3:12](   Читать дальше...   )Жанр: Ambient, New-Age, ExperimentalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11C17AA8285C03657C6CC1FBE7C2FBCBF948968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597539   (164103) от 17.12.2022
-
-VA - Yoga Music Session 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Estación Del Mar - A La Sombra De Un Roble (4:24)
-02. Dyan Garris,Sherry Finzer - Forest Whispers (5:20)
-03. Dellasollounge - Fantasy (Original Mix) (5:23)
-04. Ann Grace - Intromotion (1:35)(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E3AFCF2F93F6220FBAC64C2C3C9FAD749FCA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597528   (164085) от 17.12.2022
-
-VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tigerforest - Bellefontaine (Original Mix) (5:33)
-02. Dharma Frequency - Floating Dreams (Original Mix) (4:00)
-03. Elmara - Northern Lights (Original Mix) (3:38)
-04. Eskadet - Te Revoir (Original Mix) (6:37)(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579333AF9AC08D38FF92CEA1BF085186E292D57D
 ```
 
 https://mybot314.ru/tekegram_catalog/

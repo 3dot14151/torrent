@@ -1,3 +1,61 @@
+###  Публикация: 1290217   (680119) от 19.03.2019
+
+Alphaville - Forever Young (2019) 3CD Super Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Synthpop, New-Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680119.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Original Album Remastered:
+01. A Victory Of Love (Remaster) (04:17)
+02. Summer In Berlin (Remaster) (04:46)
+03. Big In Japan (Remaster) (04:44)(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 03:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3F27E44C78ED13D294FF572AD2A04DA473DEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135850   (677002) от 21.05.2017
+
+Faderhead - Anima In Machina (2016) Limited Edition, Compilation [FLAC|Lossless|image + .cue] <Synthpop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escape Gravity (October Reanimation) (4:41)
+ 02. Annie Can't Read In The Dark (4:27)
+ 03. Baby Firefly (October Reanimation) (3:47)
+ 04. Shame (October Reanimation) (4:49)(   Читать дальше...   )Жанр: Synthpop, EBMПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B9E063F2E85E3E947592EFED5FC0BA1F8A7248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135666   (676730) от 21.05.2017
 
 Erasure - World Be Gone (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New-Wave>
@@ -688,64 +746,6 @@ Sally Shapiro - Sad Cities (The Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010F6B55E718AD3E739E7275EADF08821F16132A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143311   (634844) от 18.06.2017
-
-Lorde - Melodrama (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Electropop, Dreampop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Green Light (3:55)
-2. Sober (3:17)
-3. Homemade Dynamite (3:10)
-4. The Louvre (4:31)(   Читать дальше...   )Жанр: Indie Rock, Electropop, DreampopПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C7335DFE299425CC3AD82F401DFC6462588CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293697   (633738) от 05.04.2019
-
-VHS Dreams - The Bundle - Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Heat (4:41)
-02. Bodywork (12'' Extended Mix) (5:46)
-03. Downtown (12'' Extended Mix) (5:56)
-04. Miami's Finest (12'' Extended Mix) (6:18)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAEE70677815EEED705978BF821F018895B4A3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

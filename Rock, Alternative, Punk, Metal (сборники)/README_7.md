@@ -1,3 +1,149 @@
+###  Публикация: 1489335   (925167) от 16.08.2021
+
+Nazareth - The Platinum Collection (2021) 2CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alcatraz
+02. Dream On
+03. Turn On Your Receiver
+04. Woke Up This Morning(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9570FA0AFE8546713A5A0040B4F89A59DA8D6A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489734   (922262) от 18.08.2021
+
+Ringo Starr - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photograph
+02. Only YouЖанр: RockПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A8C2CCB5C01D4916A2D81C12E19FCFA0506787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489736   (922251) от 18.08.2021
+
+George Harrison - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got My Mind Set On You
+02. My Sweet Lord
+03. Give Me Love (Give Me Peace On Earth)
+04. Don't Let Me Wait Too Long(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EBAA8631163F4CB5B08CA1F879C0E7DB803E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096137   (920536) от 23.01.2017
+
+VA - Hits of My Soul Vol. 22 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Kid Rock - Bawitdaba (04:25)
+02. Aerosmith - Sweet Emotion (04:34)
+03. Saliva - Superstar (04:09)
+04. Reckless Love - Hot (03:22)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B793BE8131D2528F29EC3B5DACA520AF45E3FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096529   (919068) от 24.01.2017
+
+VA - Around The Rock (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919068.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shaman's Harvest - Dangerous
+002. Guilt Machine - Twisted Coil
+003. The Guess Who - American Woman
+004. Fates Warning - Seven Stars(   Читать дальше...   )Жанр: RockПродолжительность: 09:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A06D7A3C76354E56B6C495C5662CE41E8E56CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096901   (917732) от 25.01.2017
 
 Sedativ - Sedativ (2002) [MP3|256 Kbps] <Post Punk, Electronic>
@@ -600,151 +746,6 @@ John Lennon & Plastic Ono Band - The Ultimate Collection (2021) 8CD [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BEC893B9EC86833E6FDE284C7A523FA1AA0A6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992384   (900314) от 02.03.2016
-
-VA - Мой Любимый Русский Рок (2016) [MP3|128-320 кб/с] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900314.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Диалог - Kpacный poк
-002.Аракс - Чёрные Кони
-003.Мeтaллобoл - Звездный Кандидaт
-004.Poк-Ceнтябрь - Компpoмиcc(   Читать дальше...   )Жанр: RockПродолжительность: 19:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8823E22292D519B8CEFD9D19FA52C94888A2F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369854   (899922) от 25.03.2020
-
-Ozzy Osbourne - 100% Ozzy (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ozzy Osbourne; Elton John - Ordinary Man
-02. Ozzy Osbourne - Under the Graveyard
-03. Ozzy Osbourne - Crazy Train
-04. Black Sabbath - Paranoid(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B80F3B536BF06AE8E4854D3404CCCAD4680FC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868226   (898899) от 10.02.2015
-
-Парк Горького (Gorky Park) - Коллекция легендарных песен (2014) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stare
-02. California Promise
-03. Five Wheel Drive
-04. Ego(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1398393E7CB17BC0A6BCF56917371403CEA58903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992897   (898733) от 03.03.2016
-
-VA - Rock Hits (Remastered by KronStudioLab) [4CD] (2015) [MP3|320 кб/с] <Rock, Hard Rock, Metal Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Purple - Hush (04:26) (1968)
-02. Led Zeppelin - Whole Lotta Love (05:33) (1969)
-03. Electric Light Orchestra - Don't Bring Me Down (04:08) (1979)
-04. Scorpions - Fly People Fly (05:04) (1974)(   Читать дальше...   )Жанр: Rock, Hard Rock, Metal RockПродолжительность: 04:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C468E9EBF97F835BAE55D8EA1019CCAD8802D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369987   (898260) от 26.03.2020
-
-ZZ Top - 100% ZZ Top (2020) [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Grange (2005 Remaster)
-02. Gimme All Your Lovin'
-03. Sharp Dressed Man (2008 Remaster)
-04. Got Me Under Pressure (2008 Remaster)(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 03:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210507E6D0F47E9C5D1F2B1EF2A3B9691B9DB268
 ```
 
 https://mybot314.ru/tekegram_catalog/

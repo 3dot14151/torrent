@@ -1,5 +1,121 @@
 https://t.me/izofen
-###  Публикация: 1871965   (1070210) от 
+###  Публикация: 1873206   (1071131) от 27.05.2026
+
+VA - Solo Projects From Europe (1987-2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joey Tempest - A Place To Call Home
+02. John Norum - When Darkness Falls
+03. John Norum & Joey Tempest - We Will Be Strong
+04. Joey Tempest - The One In The Glass(   Читать дальше...   )Жанр: RockПродолжительность: 03:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB9AEF5C401D590773B7F42BDA7F74AFEFFCB86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873485   (1070983) от 28.05.2026
+
+VA - No Name Compilation Simply Listen Music Part 92 Assorted Ballads NaTural Blues Rock channel cover (2026) [MP3|320 Kbps] <Assorted Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - А.  Rimbaud - Пьяный Корабль (Ntbr Channel Cover)
+02 - В. Высоцкий - Райские Яблоки (Ntbr Channel Cover)
+03 - В. Высоцкий - Моя Цыганская (Эх, Раз, Ещё Раз) (Ntbr Channel Cover)
+04 - А. Блок - Дикий Ветер (Ntbr Channel Cover)(   Читать дальше...   )Жанр: Assorted BalladsПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7123314F7A15F5E718355BF95C3A2D2C949478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873362   (1070972) от 28.05.2026
+
+AI - No Name Compilation Simply Listen Music Part 91 Assorted Ballads (2026) [MP3|320 Kbps] <Assorted Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Best Cover Rock - Небо Моё Без Потолков
+02 - Maria Vargas - Любовь - Это Пуля
+03 - Maria Vargas - Эхо Февраля
+04 - Maria Vargas - На Пороге Я Стою(   Читать дальше...   )Жанр: Assorted BalladsПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C56F1B4E2A8693BBDB2D9C5834F6A8FA7BB31A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872480   (1070383) от 22.05.2026
+
+VA - Украинский рок Part Two (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070383.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lady Aphina - Холодно пірнати у пітьму (05:22)
+ 002. Waytaker - Це була остання спроба зробити вигляд, що все нормально (03:32)
+ 003. АВТОР - Емпатія (03:23)
+ 004. Pasta Fibonacci - Вечірка одного зросту (04:09)(   Читать дальше...   )Жанр: RockПродолжительность: 03:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100D4683DA32C28518A0ECD9BB145567D604B1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871965   (1070210) от 20.05.2026
 
 Europe - Compilation (1983-2023) [MP3|320 Kbps] <Arena rock, Hard rock, Glam metal>
 
@@ -28,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871379   (1069642) от 
+###  Публикация: 1871379   (1069642) от 17.05.2026
 
 VA - Russian Rock 2014  [MP3|320 Kbps] <rock>
 
@@ -57,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870914   (1069295) от 
+###  Публикация: 1870914   (1069295) от 15.05.2026
 
 Чичерина - Compilation (2000-2026) [MP3|320 Kbps] <Pop rock, Military song>
 
@@ -195,6 +311,35 @@ VA - Time Of Rock & Metal от ALEXnROCK Part 2 (2026) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71C1D33204EE49736204C6397251E92CCFB0BF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868044   (1067101) от 28.04.2026
+
+Смысловые Галлюцинации - Compilation (1996-2026) [MP3|320 Kbps] <Indie rock, Electronic rock, Pop rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бог-Superstar (& Бутусов В) ❂ Сердца и Моторы 2008
+02. Вечно Молодой ❂ 3000 2000
+03. Мысленный Волк ❂ Мысленный Волк. Лучшее (2000-2014) 2014
+04. (-) Полюса (+) ❂ Большие Планы 2005(   Читать дальше...   )Жанр: Indie rock, Electronic rock, Pop rockПродолжительность: 07:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BADAEBB6584D18FC09559CFA2FF00DBC9F80DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,148 +746,6 @@ VA - Rock Arena (2026) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DB9CBF265DD2B08D83023171D4CEC64BAA405AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862469   (1064004) от 31.03.2026
-
-Gotthard - Compilation (1992-2026) [MP3|320 Kbps] <Hard rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Than Love ❂ #13 2020
-02. Bang ! ❂ Bang ! 2014
-03. Liverpool ❂ Stereo Crush 2025
-04. S.O.S. ❂ Firebirth 2012(   Читать дальше...   )Жанр: Hard rock, BalladsПродолжительность: 08:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42600FD4BCB9B14B9EC10BBF4C3B6DB78691A1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862709   (1063968) от 31.03.2026
-
-VA - Hard Rock Workout (2026) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limp Bizkit - Rollin' (Air Raid Vehicle)Жанр: Hard RockПродолжительность: 04:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1690CDE32BAD6B73C83C9127E064B3F71D36E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862826   (1063821) от 01.04.2026
-
-Axel Rudi Pell - Compilation (1989-2026) [MP3|320 Kbps] <Hard rock, Melodic heavy metal, Power metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Moon Pyramid ❂ Black Moon Pyramid 1996
-02. All The Rest Of My Life ❂ Shadow Zone 2002
-03. Beautiful Day (& U2) ❂ Diamonds Unlocked 2007
-04. Before I Die ❂ Circle Of The Oath 2012(   Читать дальше...   )Жанр: Hard rock, Melodic heavy metal, Power metalПродолжительность: 10:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D798CE5E2D223D41666B51ABD1C1CE2F3EEA868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862873   (1063746) от 02.04.2026
-
-Daniele Gazzarin - Favorites Collection (2026) [MP3|320 Kbps] <Country, RootsRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hallelujah
-02 - Don’t Leave This Voice Alone
-03 - Still More Road Ahead
-04 - Stay Here(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE30270E8FD3161F8B4E2B85CED95986EBB25B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863292   (1063440) от 04.04.2026
-
-VA - REDISCOVER The ’60s Rock (2026) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063440.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Big Brother The Holding Company - Piece Of My Heart (4:15)
-002. The Rolling Stones - (I Can't Get No) Satisfaction (Mono) (3:42)
-003. Jimi Hendrix - All Along the Watchtower (4:01)
-004. Bob Dylan - Like a Rolling Stone (6:11)(   Читать дальше...   )Жанр: RockПродолжительность: 05:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA135A0C93B9F8E2A5A2BEC6DFF2CCB1431A8AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

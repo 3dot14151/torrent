@@ -1,3 +1,90 @@
+###  Публикация: 1388069   (790083) от 04.06.2020
+
+VA - Beatport Electro House: Sound Pack #97 (2020) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Emotion - Sweet Memories
+002. Ruben De Ronde - Here With Me
+003. Exportera - Carbian (Extended Mix)
+004. Edifon - Backbeat(   Читать дальше...   )Жанр: HouseПродолжительность: 12:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B774360FD701F092EF17AAB2224D8220399AF1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388070   (790071) от 04.06.2020
+
+VA - Beatport Tech House: Electro Sound Pack #98 (2020) [MP3|320 Kbps] <Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Theo Villoni - Mix It Up (Original Mix)
+002. Woshi - Bass Asylum
+003. Grieche - Untitled
+004. Matt Keyl - Where Is Jack!(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 10:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5A84C98890BDA4854EBE8EDEF6686E168E85D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275654   (789907) от 12.01.2019
+
+VA - High DuB Voltage (2019) [MP3|320 Kbps] <Dubstep, Drum and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789907.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kiite - One (Original Mix)
+002. Kung - Lifelike
+003. Aesthetics - Questions
+004. Document One - Reaching Out(   Читать дальше...   )Жанр: Dubstep, Drum and BassПродолжительность: 08:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12760CE1578FF6EA2608288FF453E5E8BD4D45E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275644   (789898) от 12.01.2019
 
 VA - Deluxe Techno Sessions (2019) [MP3|320 Kbps] <Techno, Tech House, Electronic>
@@ -655,93 +742,6 @@ VA - 150 Dance Extra Mixes (2018) [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:062FC9521CD5266EE43D5EDEAF25174A8209C1BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202958   (789056) от 31.01.2018
-
-VA - Deep House Collection vol.155 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3LND feat. William Yang - Alone (Original Mix) 4:15
-02. Adisyn - Departure (Original Mix) 6:21
-03. Adisyn - Digital Heart (Original Mix) 7:02
-04. Andreas Phazer - NO! (Original Mix) 5:38(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A9911D6EDCB5DEE4479DD5E710228D75D7C30D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203098   (788673) от 01.02.2018
-
-VA - Empire Records - Trance Apocalypsis 2 (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frainbreeze - Back To The Future (Original Mix)
-02. Ahmed Helmy - Quasar (Original Mix)
-03. Omar Diaz - Amazonas (Original Mix)
-04. NoMosk - Duel (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B72F4D8491470CFE5F6E85DA7FA0749E986255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203349   (788662) от 01.02.2018
-
-VA - 120 Progressive Trance Selections (2018) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788662.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmic Gate & Sarah Lynn - Folded Wings
-002. Kaimo K, Cold Rush & Sarah Russell - Angel Fly
-003. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
-004. Aadagio feat. Anya - Elements (John Aidan Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 10:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921EA9C7214C9E1BBFED4E73967C32091705E3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

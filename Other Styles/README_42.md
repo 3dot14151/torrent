@@ -1,3 +1,351 @@
+###  Публикация: 1119767   (805123) от 29.03.2017
+
+Clinton Shorter - The Expanse / Пространство - Season One (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Expanse (01:04)
+02. Hostage (03:13)
+03. Signal (02:10)
+04. Welwala (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D34BC278818AABA31C62F21E7D9C621222A4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119632   (805015) от 29.03.2017
+
+Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survival of the Fittest (02:24)
+02. Baby Brother (03:58)
+03. Welcome to Baby Corp (03:12)
+04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F9D3FB3C4F89AF53ECFAC62E50A92AB33754D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119978   (805013) от 29.03.2017
+
+VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundtrack) (2017) [MP3|320 кб/с]<Rock, Rock & Roll, Jazz>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chambers Brothers - Time Has Come Today (11:02)
+02. Minh Xuan & Phuong Hoang - Mat Troi Den (Black Sun) (03:03)
+03. Jefferson Airplane - White Rabbit (02:31)
+04. The Hollies - Long Cool Woman (In A Black Dress) (03:18)(   Читать дальше...   )Жанр: Rock, Rock & Roll, JazzПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36BBEDDCB291A1E6208848EDB4E2C9FB48178E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119784   (805006) от 29.03.2017
+
+Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildlands (04:05)
+02. Night Encounters (05:35)
+03. Koani Salt Flats (00:53)
+04. Hunting La Santera (03:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB40C1AF89EF560FC9072B84A1BA72631F28F15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119709   (805005) от 29.03.2017
+
+Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title Terminator 2 Theme (01:57)
+02. Sarah On The Run (02:33)
+03. Escape From The Hospital (04:36)
+04. Desert Suite (03:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599F7DA1C0FE4B50D09778150BF6ED5C8285500E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119710   (804999) от 29.03.2017
+
+Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title Terminator 2 Theme (01:57)
+02. Sarah On The Run (02:33)
+03. Escape From The Hospital (04:36)
+04. Desert Suite (03:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE23A795F013FD854A89C5998CDDFACB105042B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119688   (804922) от 29.03.2017
+
+Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nada - Senza un perchè (02:46)
+02. Andrew Bird - Logan's Loop (01:11)
+03. Jefferson Airplane - Blues from an Airplane (02:13)
+04. Lele Marchitelli - The Knowledge (01:59)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:35:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4BAC570095984EA6DA9DE30A5EEDDA6F944EB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119675   (803351) от 30.03.2017
+
+Людмила Николаева и ансамбль "Русская душа" - Нетронутая ягода (2003) [APE|Lossless|image + .cue] <Folk-Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рыжая метелица
+02. В тихую лунную ночку
+03. Нетронутая ягода
+04. Ухарь купец(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B93FCD8BBDCED06B48BD07D2BA89A201D79876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119779   (803281) от 30.03.2017
+
+Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rusalka (04:52)
+02. Portrait (02:57)
+03. Lake Ritual (01:08)
+04. Red Star (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54071F9EC1A3D68F0285239369D663A9BE0694D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119772   (803268) от 30.03.2017
+
+Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okinawa Battlefield (03:59)
+02. I could Have Killed Him (02:20)
+03. A Calling (02:42)
+04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546D0AD7B232BF85D77BF682CA8F9DEC572F56EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199039   (802813) от 14.01.2018
+
+David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breathe (10:50)
+02.  Lightdancer (10:12)
+03.  Deep Blue (9:53)
+04.  Floating (10:08)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 02:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199178   (802713) от 14.01.2018
+
+Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sa Nah Piteva (6:48)
+02. Gayatri Mantra (6:45)
+03. Om Namah Shivaya (8:48)
+04. Mandu Samanavarcasa (6:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198731   (802711) от 14.01.2018
 
 Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
@@ -397,354 +745,6 @@ LEYA - Flood Dream (2020) [FLAC|Lossless|tracks + .cue] <Avant - Folk, Chamber M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8981BF670AFDDB11217456623A52C5D5291E8C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384631   (801678) от 21.05.2020
-
-Евгений ( Zagot ) Загот - Парад планет  (2005) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro ( Ambient Dream )
-02. Париж
-03. Я тебя читаю
-04. Аквамарин(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CB53B577B0CB4B9DA73408EDF0B59F1ED27A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120288   (801195) от 01.04.2017
-
-VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Владимир Трошин - Подмосковные вечера
-02. Краснознамённый им. Александрова Ансамбль песни и пляски Советской Армии - Калинка (солист Алексей Мартынов)
-03. Тамара Синявская - Катюша
-04. Пётр Лещенко - Чубчик(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4CA21831370071CA988322FE9BA4D9EAC68BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199611   (801093) от 16.01.2018
-
-Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantasmagorical Voyage (3:40)
-02. The Anasazi (3:57)
-03. We Have Only Come to Dream... (3:37)
-04. 1492 (2:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2398322E9AC0ADF03889D79E185D9EE196D9A8DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199485   (801080) от 16.01.2018
-
-Jon Thebur - Sansula (2017) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Beginning (4:28)
-02. Finding And Founding (4:49)
-03. Long, Long Trip (4:28)
-04. Inside (4:27)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0042972EB5B3FBBEAD846A7532803E87BEBC7D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506178   (801041) от 30.10.2021
-
-Sax Project - Saxo and Movies (2011) 3CD [MP3|320 Kbps] <Easy Listening, Sax>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On (From "Titanic")
-02. Everything I Do, I Do It for You (From "Robin Hood: Prince of Thieves")
-03. Beauty and the Beast (From "Beauty and the Beast")
-04. I Will Always Love You (From "The Bodyguard")(   Читать дальше...   )Жанр: Easy Listening, SaxПродолжительность: 07:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D970678FC89FCD425B99DABC5D89154D22D22B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506245   (800976) от 30.10.2021
-
-Eguana & Qeight - The Book of Changes (2021) [MP3|320 Kbps] <Electronic, Downtempo>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peace and Love
-02. Wishmaster
-03. Genesis
-04. Deep Revelation(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5444F526FF5F7C5AC0C21A813519F71CECC04944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120969   (800615) от 02.04.2017
-
-Alex Lucas & Olan Mill - Tramuntana (2016) [MP3|320 Kbps] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tramuntana (3:35)
-2. La Riera (7:40)
-3. Carpe Diem (1:17)
-4. Ibro (2:54)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160A13A15B43FCDD1D79B95B09133433FD2DEB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273432   (800573) от 01.01.2019
-
-Mogwai - Kin (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Post Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eli's Theme (03:22)
-02. Scrap (02:50)
-03. Flee (04:56)
-04. Funeral Pyre (03:18)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A0C139755CCEBA8747434C407B4544FA8C4872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121069   (800552) от 02.04.2017
-
-Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Cave & Warren Ellis - Comancheria (02:05)
-02. Townes Van Zandt - Dollar Bill Blues (03:01)
-03. Nick Cave & Warren Ellis - Mama's Room (02:49)
-04. Ray Wylie Hubbard - Dust of the Chase (05:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6089A73942D97E7935B6E0FB370AAD026222C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120763   (800551) от 02.04.2017
-
-Людмила Николаева и ансамбль 'Русская душа' - Сирень цветёт (1997) [FLAC|Lossless|image + .cue] <Folk-Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весной Волга разольётся
-02. Гони, ямщик
-03. Это было давно
-04. Вы не вейтесь, чёрны кудри(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 00:54.38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C97F49CC7D9D89EC37415D8A18C1000FA899438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121596   (800506) от 02.04.2017
-
-Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Utopia
-02. As It Should Be
-03. Cosmopolitan Skies
-04. Magnetism(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E9901E9BA12A02E943C462313974BEF4EF18F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120726   (800503) от 02.04.2017
-
-Раймонд Паулс - Музыка из кинофильма 'Двойной капкан' (1986) [MP3|320 Kbps] <Pop, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мотто
-02. Танец в баре
-03. Танец с накидкой
-04. Вдвоём(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFBE0B6BC1923465DC191C5557EA5C02073315B
 ```
 
 https://mybot314.ru/tekegram_catalog/

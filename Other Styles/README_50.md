@@ -1,3 +1,351 @@
+###  Публикация: 1208188   (780097) от 21.02.2018
+
+Guido Negraszus - Night Cafe III (Freedom Travellers) (2012) Guido Negraszus Music [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guido Negraszus - немецкий композитор, музыкант, продюсер и аудио-инженер в одном лице, живет в красивом предместье на юго-западе города Busselton в Западной Австралии. Изначально начинал как музыкант электронной музыки, но постепенно пришел к своему собственному стилю: универсальному многожанровому звуку. С 1990 года он выпустил много студийных альбомов в жанрах (   Читать дальше...   )01. The Glory 4:27
+02. Travellers of the Skies 5:37
+03. Kiting Dreamers 4:48
+04. Young Heroes (Olympic Dreams) 3:25(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E555511FFBBBA9D81C2421CB7B477918AFD915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207995   (780078) от 21.02.2018
+
+David Wahler - Mosaic (2018) [MP3|320 Kbps] <New age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mosaic (5:56)
+02. Afterain (4:19)
+03. A Promise to Keep (5:47)
+04. Child of the Universe (5:51)(   Читать дальше...   )Жанр: New age, Relax, InstrumentalПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671D9086F190FCC92F3097B07DE42F0776A2320A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201235   (780042) от 21.02.2018
+
+Поль Мориа - Музыка хорошего настроения (2005) [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости мне этот детский каприз
+02. Мой дом и река
+03. Девушка в бикини
+04. Глупышка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13387109394679395F6965A69F09655CEC857DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208649   (779804) от 23.02.2018
+
+Greg Butler - Whispering Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raein (2:37)
+ 02. Kiss the Rain (3:59)
+ 03. Le Matin (2:10)
+ 04. I Giorni (7:00)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C0AC7219A9D2116F68EF74DEB0456D078A897C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209177   (779520) от 25.02.2018
+
+VA - Amazing Piano Music (2018) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Bern - Simple Piano
+02. Gregory Aigersson - De-Stress
+03. Daniel Philo - Life On the Line
+04. John Flame - Notice Me(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C23BB5C61E0529B0B0F13FE9EE43D94D5AB1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209286   (779288) от 27.02.2018
+
+Mathieu Age - Feminin Sacre (2018) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liberation salvatrice (3:31)
+02. Energie interne (3:43)
+03. D'ouverture a la guerison Reiki (3:26)
+04. Musique therapeutique (4:17)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9185269FDF90E6AF6E64CF4AB5C7409472888C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209402   (779281) от 27.02.2018
+
+Andrew Kinsella - Cosmic Dawn (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779281.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Dawn (10:20)
+2. Primal Seed (8:42)
+3. Convergence (5:05)
+4. Stardust (8:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B72532E34CBB01FD270CE18478C4A4FC5C06825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209354   (779273) от 27.02.2018
+
+Wychazel - Akashic Dream (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779273.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deja Vu (9:44)
+2. Akashic Dream (12:00)
+3. Alcoves and Passages (8:42)
+4. Life After Life (10:42)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4D6DF780ACCFB61DDA19B36CCD50759660DE4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209237   (779272) от 27.02.2018
+
+David Davidson - Celtic Dreams (2018) [MP3|320 Kbps] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anois Feicim Do Bhron
+ 02. Damhsa Tine
+ 03. Sally Garden
+ 04. A Feitheamh Le Do Theacht Ar Ais(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334C3FE4C2B21ADCDE5616A7BAADAE32B4AF2C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209156   (779264) от 27.02.2018
+
+Jay Stapley - Ambient Blues (1996) [MP3|320 Kbps] <New Age, Blues, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambient Blue  [12:08]
+02. Loop.E.Lou  [8:27]
+03. Delta Curve  [9:24]
+04. Sleepin'n'Slidin  [4:23](   Читать дальше...   )Жанр: New Age, Blues, WorldПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D28987696CAB0191C9EC8DC61FB2251997817A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209189   (779259) от 27.02.2018
+
+Acoustic Garden - Concept Emotional (2018) [MP3|320 Kbps] <Country, Folk, Blues>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Ready To Lose
+02. Always
+03. The Present
+04. Change The Weather(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A0CE063E76BE3FB2C67448B0444D26EE8D3D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209910   (779128) от 28.02.2018
+
+Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779128.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Those Loving Hands (10:29)
+2. The Orbs (10:11)
+3. Light and Warmth (11:50)
+4. Gentle was the Moment (6:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209214   (779125) от 28.02.2018
 
 Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Score>
@@ -397,354 +745,6 @@ Hennie Bekker - Summer Breeze (1993) Holborne [MP3|256 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A14E350DF82FC9083802EB5D5AEC69580AB8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210622   (778551) от 04.03.2018
-
-Hennie Bekker - Relaxing Pachelbel (2005) Tapestries [MP3|320 Kbps] <New Age, Tribal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Canon In D 9:23
-02. Canon In D (Reprise) 8:40
-03. Canon In D (Reprise) 9:52
-04. 18th Variation from rapsodie on a theme of Paganini 4:33(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: Tapestries - TAPCD 601
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77E172901B40E50CE730836EBFE226F1C504256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210732   (778549) от 04.03.2018
-
-Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Piano, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Reunion 5:13
-02. Jacquelyn 5:10
-03. Arctic Child 5:19
-04. Christmas Spirit 4:39(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CAAC54184BD62706A8CC77E242BC63FE1C6BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210624   (778546) от 04.03.2018
-
-Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Old Friends 3:56
-02. Spring Rain 5:57
-03. Time Out 6:02
-04. Hello Again 5:33(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18EC7007B24BF1B689F0613553E1B88FCD76296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210785   (778520) от 04.03.2018
-
-Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria (8:20)
- 02. Heart Of The Sun (4:55)
- 03. Flight In Weightlessness (7:36)
- 04. Propitiation (6:48)(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6486BDEB83926AD1728D5A7740CE2313422AF247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210692   (778474) от 04.03.2018
-
-Francis Goya - Collection 2CD,  (2005) [FLAC|Lossless|image + .cue] <Acoustic Guitar, Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Story (3:33)
-02. El Condor Pasa (3:12)
-03. Those Were The Days (3:10)
-04. Zorba's Dance (4:31)(   Читать дальше...   )Жанр: Acoustic Guitar, Instrumental, FlamencoПродолжительность: 02:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71B449632E79E20B436840030E489E74F6B818E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012703   (778361) от 02.05.2016
-
-Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagle Spirit    11:13
-02. Sacred Companion    07:46
-03. And Wings to Protect You    04:14
-04. Watcher of Heaven    07:57(   Читать дальше...   )Жанр: New Age, Celtic, InstrumentalПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE95D445FCB04063321E1FC57CA4EC0C9297559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012796   (778332) от 02.05.2016
-
-Will Brady - 3 альбома (1997-2009) [MP3|192 кб/с] <Instrumental, Blues, New-age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, Blues, New-ageПродолжительность: 00:24:55
-
-01. Mr Gibson
-02. La Llorona(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF4A207FB9F5622E5A81E28605985B5EABC0801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012754   (778285) от 02.05.2016
-
-Андрей Данилко - После тебя... (2005) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Отрываясь от земли (5:40)
-02. Весна (4:00)
-03. Собирая жёлтые листья (3:53)
-04. 22 (4:50)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B19A48762073533024599D9A7BC27FEEB39274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210916   (778166) от 05.03.2018
-
-Arthur Fieldler & The Boston Pops - Pop Concert Favorites (1992) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stars and Stripes Forever (Sousa) (3:27)
-02. The Syncopated Clock (2:21)
-03. Home On the Range (3:15)
-04. Yankee Doodle (2:33)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4944A80D033C4786762616683AD6799CAD6231DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210964   (778148) от 05.03.2018
-
-Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son of Krishna (6:50)
-02. Human Nature (7:25)
-03. In Search of the Truth (8:06)
-04. Dhamma (7:25)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EF6BD4B6D9259D011D4DC11260B5A9544DA28C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211108   (778069) от 05.03.2018
-
-ДиДюЛя & Chris Wonderful - Аквамарин (2017) [FLAC|Lossless|image + .cue] <Instrumental, Flamenco, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свадебное путешествие (4:16)
-02. Страна дураков (3:59)
-03. Белый месяц (3:41)
-04. Посох шамана (3:48)(   Читать дальше...   )Жанр: Instrumental, Flamenco, New AgeПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50895595C4F6B115FF169FE69F992B65446617D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013172   (777975) от 03.05.2016
-
-Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merlin
-02. En tu mirada
-03. Danza Medieval
-04. Evolucion(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B908D78504836CDB5B03835EA78DEE93AADC7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

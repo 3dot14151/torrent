@@ -1,3 +1,73 @@
+###  Публикация: 543711   (493435) от 06.09.2012
+
+VA - Italo Dance Club (2005) 2CD[FLAC|Lossless]<Disc, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Phaser - Touch And Go [03:44]
+02. *Miss A. - Somwhere Over The Rain [03:43]
+03. Electric Girl - Forever [04:48]
+04. A-Deejay - You Got To Let The [02:55]
+05. Smash Maker - La Cucaracha [03:34]
+06. W.N.D. - Words [03:15]
+07. Aladin feat. In Nomine Patris Rmx - Aladin [03:14]
+08. Robin A. - California Dreaming [03:10]
+09. Mc Pizzamen - Mamma Maria [03:58]
+10. DJ Albertinos - Boys [03:06](   Читать дальше...   )Жанр: Disc, PopПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543985   (493162) от 06.09.2012
+
+VA - Disco Discharge. Disco Boogie (2010) 2CD[FLAC|Lossless]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toto featCheryl Lynn - Georgy Porgy (Special 12' Disco Mix) [05:08]
+02. Terri Wells - You Make It Heaven (Original 12' Mix) [05:26]
+03. Illusion Orchestra - Autumn Leaves (Original 12' Mix) [04:27]
+04. Deodato - Night Cruiser (Original 12' Mix) [06:16]
+05. Skyy - Call Me (Original 12' Mix) [06:21]
+06. Maxine Singleton - You Can't Run From Love (Original 12' Club Mix) [06:42]
+07. Conquest - Give It To Me (If You Don't Mind) (Original 12' Mix) [06:54]
+08. DTrain - Keep On (Francois Kevorkian 12' Remix) [09:28]
+09. Nick Straker Band - Straight Ahead (Original 12' Mix) [06:43]
+10. Alisha - Baby Talk (Special 12' Remix by Shep Pettibone) [06:47]Жанр: Disco, PopПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318788   (492621) от 07.08.2019
 
 VA - Italo Made In Spain (2017) CDr, Compilation, Partially Mixed [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -696,64 +766,6 @@ Cerrone - Afro (2016) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9650FAEA95F9D41E01C5D61BDAB9309BA04C04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410782   (433874) от 22.09.2020
-
-Michael Fortunati - The Best Of Disco Covers (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Around And Count 2 Ten (5:56)
-02. Eat You Up (3:50)
-03. You Spin Me Round (Like A Record) (4:05)
-04. Never Gonna Give You Up (3:27)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C446BE57DE0B92A6C08AFF7756835DEE3D344EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945825   (431439) от 11.10.2015
-
-Genghis Khan (Dschinghis Khan) - Genghis Khan (1979) Japanese Edition /1995, Victor/ [FLAC|image +.cue]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moskau 5:58
-02. Komm Doch Heim 4:17
-03. Samyrai 4:41
-04. Rocking Son Of Dschinghis Khan 4:15(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A95617CC372459855DB1082C4C27D9161C3B621
 ```
 
 https://mybot314.ru/tekegram_catalog/

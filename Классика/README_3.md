@@ -1,3 +1,67 @@
+###  Публикация: 972033   (981719) от 06.01.2016
+
+Mozart - Requiem (Frans Bruggen & Orchestra of the Eighteen Century) (2009) [FLAC|Lossless] <Classical, Classical Period, Choral, Concerto, Requiem>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurerische Trauermusik (Masonic Funeral Music), for orchestra in C minor, K. 477 (K. 479a) (05:25)
+02. Adagio for 2 clarinets & 3 bassett horns in B flat major, K. 411 (K. 484a) (06:31)
+Requiem for soloists, chorus, and orchestra, K. 626
+03. Plainchant (Introitus) (02:04)(   Читать дальше...   )Жанр: Classical, Classical Period, Choral, Concerto, RequiemПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C22A68ADAE2D116A13FF9BDD22E511B2CAECE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614122   (981032) от 05.02.2013
+
+VA - Лунный Свет (2002) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Клод Дебюсси. Лунный свет на террасе
+Оркестр "Симфония Лондона". Дир. Ч. Герхард 
+
+02. Рихард Вагнер. Романс Вольфрама из оперы "Тангейзер"
+Филармонический оркестр Лондона. Дир. Ч. Герхард
+
+03. Клод Дебюсси. Лунный свет
+С. Канга, арфа, совместно с Национальным филармоническим оркестром. Дир. Ч. Герхард 
+
+04. Иоханн Пахельбель. Канон(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6F3438D416EBF6CC04440C554CC129BCF3D909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614154   (980872) от 05.02.2013
 
 Антонио Вивальди - Времена года (2002) [FLAC|Lossless]<Classical>
@@ -739,67 +803,6 @@ Glenn Gould - Bach - The Goldberg Variations (1955) 2015, Sony [FLAC 2.0|44/24|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44E05249F9E17BF005CEE9B8CC9F3F7C31769E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 169700   (965439) от 25.01.2010
-
-Вильгельм Рихард Вагнер - (1813-1883) [MP3|256 kbps]<Classic>
-
->>Классика
->>Камерная
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620893   (963851) от 19.02.2013
-
-Pergolesi Giovanni Battista–Stabat Mater: M. Marshall L.V. Terrani C. Abbado London Symphony Orchestra (1985)/1990, Dg Imports/ [WavPack(iso.wv)|Lossless]<Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stabat Mater per soprano, contralto, archi e continuo
-1. Duetto. Grave “Stabat Mater dolorosa” 4:38
-2. Aria (soprano). Andante amoroso “Cuius animam gementem” 3:08
-3. Duetto. Larghetto “O quam tristis et afflicta” 2:34
-4. Aria (contralto). Allegro “Quae moerebat et dolebat” 2:49
-5. Duetto. Largo-Allegro “Quis est homo, qui non fleret” 3:01
-6. Aria (soprano). A tempo giusto “Vidit suum dulcem natum” 3:32
-7. Aria (contralto). Andantino “Eia,Mater,fons amoris” 2:54
-8. Duetto.Allegro “Fac, ut ardeat cor meum” 2:40
-9. Duetto. A tempo giusto “Sancta Mater, istud agas” 5:59(   Читать дальше...   )Жанр: sacred cantata / sequenceПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146988C0F98EC56045A1EA9486B0E7FF81CC43AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

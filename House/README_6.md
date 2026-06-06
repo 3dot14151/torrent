@@ -1,3 +1,227 @@
+###  Публикация: 982858   (946710) от 04.02.2016
+
+Eric Prydz - Opus (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liam
+02. Black Dyce
+03. Collider
+04. Som Sas(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8DFD73EEB51D99924A7ECD8B02A414795035AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362753   (946631) от 25.02.2020
+
+VA - OPTICA (Mixed by Dj Бинокль) (2004) [MP3|320 Kbps] <House, Spanish Tribal, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946631.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unknown Artist - Untitled (01:09:49)Жанр: House, Spanish Tribal, Progressive HouseПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F09EBAD88BAA62656849464DA237B29CD6B97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362793   (946581) от 25.02.2020
+
+DJ Woofer - Deep & Sexy Vol.02 (2005) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946581.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Untitled (01:07:57)Жанр: House, Deep HouseПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7946CC3F6B18B7F8CA1F0C1823B4FB0EC78326E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090539   (946137) от 07.01.2017
+
+VA - Armada Deep Top 10. January (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juliette Claire - Somebody Else's Lover
+02. Cheney - All About You
+03. Tai - Paradise
+04. Richard Judge - Wide Awake(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E328B6DEA8C8F638DFD2CC467B8A41C7F7C392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090694   (946093) от 07.01.2017
+
+VA - Winter 2017: Best Of Inception (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julian Wess – Switch (Original Mix) 07:30
+02. Chriss V – Sunfall Tale (Nerutto Remix) 05:32
+03. Nistirenko – Summer in the Future (Original Mix) 05:40
+04. Niklas Grosswald – The Blueprint (Not Okay Remix) 06:47(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F5D1573D5EF97193735F58A0ED5622E23152BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983151   (945548) от 05.02.2016
+
+John Dahlback - Saga (2016) [MP3|320 кб/с] <Electro House, Progressive House, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saga Intro (01:27)
+02. Into You (03:28)
+03. Sycophant (03:42)
+04. Raven (03:13)(   Читать дальше...   )Жанр: Electro House, Progressive House, Future HouseПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3705A6A698E6155BBBEC3D750A2F7400B5C993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091441   (943133) от 09.01.2017
+
+VA - Best of Aethereal 2016 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GM Project - Great Escape (Slam Duck remix) 05:56
+02. Rogier - Introspection (Sonsez & Erman remix) 07:01
+03. Serge Landar - Quiet Night (original mix) 06:23
+04. Esthetique - The Secret (Alexey Lisin remix) 05:39(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBC2E9E1BFD00B030B3BB462FB6708A8F2ADD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362705   (942657) от 28.02.2020
+
+Dj Бинокль - Смотри В Оба - Голос Клубного Днепра 1 (1999) [MP3|320 Kbps] <House, Hard House, Euro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Happy Weekend (30:09)
+2. Get Down And Party (30:59)Жанр: House, Hard House, Euro HouseПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF916A8F6873686350366EB628C8869AE8782C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362740   (942647) от 28.02.2020
 
 VA - Dj Бинокль - Housemission II (PlayOff) (2004) [MP3|320 Kbps] <House, Progressive House>
@@ -515,238 +739,6 @@ VA - Ministry Of Sound: Chilled House Session (2016) [MP3|320 кб/с] <Afro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1C89B4CDDBA7F890815F927DF85E89BB85F6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365320   (932345) от 06.03.2020
-
-VA - Clinique Sampler, Pt. 230 (2020) [MP3|320 Kbps] <House, Progressive House, Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alejandro R - Strange Light (Original Mix) [08:27]
-02. Echo Daft - Tristezza (Alex ll Martinenko Remix) [06:27]
-03. Filter Cutz - Marina (Original Mix) [08:51]
-04. Joel Giannini - Obscure (Marcelo PM Remix) [06:47](   Читать дальше...   )Жанр: House, Progressive House, Deep House, Tech HouseПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB393A686153AF2641620906E951105731C2B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365315   (932343) от 06.03.2020
-
-VA - EDM Big Room Partytime, Vol. 7 (2020) [MP3|320 Kbps] <House, Big Room, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932343.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Asandokai - King in a Wild Side [2:54]
-2. Ashanti Khumenati - Tupin [3:05]
-3. Cobran Vasuki&Altin Tatani - Cocaine Cartel [2:58]
-4. Fake Ascii Codes - Milk Smell [2:50](   Читать дальше...   )Жанр: House, Big Room, DanceПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCABC39CB5C27AA5D9982C2BA0B0EE2B6555D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364891   (932342) от 06.03.2020
-
-VA - Future Punk, Vol. 6 (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rachel Wins - Stay with Me (Dub Mix) [04:18]
-02. TARAZ - Bass Troubles [04:03]
-03. Wandrezo - Manifest Yourself [05:27]
-04. Marcello Cavallero - Touch Me (Remix) [06:43](   Читать дальше...   )Жанр: HouseПродолжительность: 01:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D635D571EC368C6D5FB049AF49709A3359870B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365112   (932336) от 06.03.2020
-
-VA - Urban Sports Music, Vol. 2 (2019) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melbourne Bounce Project feat. Gemeni - Melbournia Superstars (Radio Edit) [03:12]
-02. Sunloverz - Summer of Love 2k13 (Edit) [03:04]
-03. Steve Cypress - Play It Loud (A2C Remix Edit) [03:50]
-04. Benjiy - Do It Yourself (Club Edit) [03:02](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEA6486B154FD9B04383006A8B55A8ACBBA5690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365105   (932249) от 06.03.2020
-
-VA - Urban Sports Music, Vol. 4 (2019) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monkey Warriors - In Your Face (Radio Edit) [03:07]
-02. SRNDR - Sandstorm (Radio Edit) [02:37]
-03. Phun and Key - System Crash (Radio Edit) [03:05]
-04. Whitemaxx - Let's Do the Sh..! (Short Mix) [02:57](   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2054F91C3D20A82DE9D0F9E3CCDFD9D1CCB6B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365324   (932244) от 06.03.2020
-
-VA - Afro Tribal House 7 (2020) [MP3|320 Kbps] <House, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christos Fourkis - Funky Feelings (Afro Mix) [06:19]
-02. Raul Soto Inaky Garcia - You Are the One (Jack n Brothas Remix) [06:50]
-03. Teejay Walton Gina Glover - Rescue Me (Nikos Diamantopoulos Remix) [06:48]
-04. Walterino Plastik Guys - Aje-Ajo (Plastik Guys Remix) [05:35](   Читать дальше...   )Жанр: House, Afro HouseПродолжительность: 01:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939AEBD77421F156D5770DDE7162546BB4CA9973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365345   (930797) от 07.03.2020
-
-VA - Urban Sports Music, Vol. 5 (2020) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Le Funk - Potato (Radio Edit) [02:39]
-02. Sl4tch feat. Nanu Nanu - Pocket Of Gold (Original Mix) [04:06]
-03. The Moonsters feat. Gemeni - Road To Ibiza (Radio Edit) [03:39]
-04. Simon Finix - Indian Vibes (Radio Cut) [02:38](   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F55DCF026B9073388360EFECA5759143F51E9CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365347   (930681) от 07.03.2020
-
-VA - Toolroom Miami 2020 [MP3|320 Kbps] <House, Tech House, Progressive House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leftwing : Kody & Camden Cox - Without You (Extended Mix) [06:11]
-02. Friend Within - Space Jam (Extended Mix) [06:43]
-03. Siege ft. Chuck Roberts - Haus (Extended Mix) [06:13]
-04. Jaded & Anabel Englund - Need Me (Extended Mix) [04:17](   Читать дальше...   )Жанр: House, Tech House, Progressive House, Deep HouseПродолжительность: 11:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A65295B354DB4B95B0CEEEBB6EBC49AF54643C
 ```
 
 https://mybot314.ru/tekegram_catalog/

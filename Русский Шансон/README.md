@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1873049   (1071394) от 29.05.2026
+
+Vayper - Песни на стихи Александра Башлачева (Часть 01) (2026) AI-generated content [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ах, до чего ж веселенькая дата (Russian Dark Rock) [00:04:10]
+02 - Ах, до чего ж веселенькая дата (Russian Dark Rock) MiX [00:04:18]
+03 - Ах, до чего ж веселенькая дата (Русский Шансон) [00:05:15]
+04 - Ах, до чего ж веселенькая дата (Русский Шансон) MiX [00:04:48](   Читать дальше...   )Жанр: Aggressive Neon Synthwave, Dark Russian Rock, Dark Russian Rock Ballad, Russian Dark Folk Rock, Russian Dark Rock, Russian Ethno Folk, Russian Folk Rock, Russian Folk Rock), Russian Indie Folk, Russian Urban Folk-Rock, Slavic Neofolk, Synthwave, Darkwave, Русский ШансонПродолжительность: 02:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E4889F5F3489BB3120ABB14B82D2CA9597FEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872868   (1071319) от 28.05.2026
+
+Vayper - Песни на стихи Некрасова Н.А. (Часть 02) (2026) AI-generated content [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Некрасов - Истина и Сущность Народника (Фет) [00:02:20]
+02 - Мужичок с ноготок (Vayper) MiX [00:02:56]
+03 - Вино (Vayper) [00:07:20]
+04 - Крёстный ход на Руси (Vayper) [00:03:49](   Читать дальше...   )Жанр: A powerful, Monolog, Neo Classic, Classical, Romantic, Neo Classic, Classical, Romantic, Clean Male Voices, Neoclassical, NeoClassic-Rock, Russian Chanson, Nostalgic Ballad, Theatrical rock, Русский шансон, Русский шансон, Guttural Gravelly screaming male vocalПродолжительность: 05:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262D8FD8FB474E8D2ADB2A584C623E38AFECE0F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866073   (1065768) от 19.04.2026
 
 Жека Птицын - Дорожный. Часть 1 (2026) Deluxe Edition [MP3|320 Kbps] <Chanson>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FEC5182E28E3D5C521D50F35BF0885772565EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848324   (1054010) от 26.01.2026
-
-Vayper - Песни на стихи Некрасова Н.А. (2026) [MP3|~190 Kbps (V2)] <Shanson, Powerful, Synthwave, Nu-metal, Theatrical rock>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-01 - Вино (Некрасов Н.А.
-02 - Внимая ужасам войны… (Некрасов Н.А.)
-03 - Генерал Топтыгин (Некрасов Н.А.)(   Читать дальше...   )Жанр: powerful, synthwave with nu-metal, Theatrical rock, Русский шансонПродолжительность: 9 CD, 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0A6A7BD1A299F7F0A20C92C731E544FD21475C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846965   (1054008) от 26.01.2026
-
-Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12 месяцев (SWH, Disco) [00:06:04]
-02. 12 месяцев (SWH, Folk Rock) [00:05:15]
-03. Анчар (А.C. Пушкин, Synth Rock) [00:04:48]
-04. Иди на свет (SWH, Synth Rock) [00:03:58](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F93F4FBD3E9D465EA704174B0A24092835B9127
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1238897   (543779) от 02.08.2018
+
+Saåad (Saaad) - Deep​/​Float (2014) Hands In The Dark [FLAC|Lossless|WEB-DL|tracks] <Experimental, Drone, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valley Of Quartz   (05:33)
+ 02. Alone In The Light (05:51)
+ 03. Giant Mouth (06:54)
+ 04. I Will Always Disappoint You (06:08)(   Читать дальше...   )Жанр: Experimental, Drone, AmbientПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E63C0F0324C15DA13F7E78C374F1AADE185072A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239034   (542515) от 03.08.2018
+
+Ryuichi Sakamoto - Async (2017) Milan [FLAC|Lossless|tracks+.cue] <Abstract, Ambient, Experimental, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andata (04:39)
+ 02. Disintegration (05:46)
+ 03. Solari (03:52)
+ 04. Zure (05:12)(   Читать дальше...   )Жанр: Abstract, Ambient, Experimental, Modern ClassicalПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53D42632BFB3620FF62B1B4A7DA68423889598F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239382   (538985) от 05.08.2018
+
+Node - Node Live (2018) DiN [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shinkansen North (14:16)
+ 02. Perpetuum Mobile 1 (13:22)
+ 03. Arrival (12:16)
+ 04. Shinkansen South (13:38)(   Читать дальше...   )Жанр: Ambient, Berlin-SchoolПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC8B35000BE06C066BEACE5DD62B023F5A1A9AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239833   (535323) от 07.08.2018
 
 Raphaël Marionneau - Le Classique Abstrait Volume 1 (2002) Abstrait Music [FLAC|Lossless|tracks+.cue] <Modern Classical>
@@ -657,91 +744,6 @@ Crystal Moon - Temple (1997) Kinetix [FLAC|Lossless|tracks+.cue] <Ambient, Psybi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:035A8017B3F852C14E06AB35B7EAF08A061E931D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405198   (485619) от 29.08.2020
-
-matt coldrick - Music* For A Busy Head Vol 2 (2020) Pan Electric [FLAC|Lossless|WEB-DL|tracks] <Ambient, World Music>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud Plateaux (13:25)
- 02. A rhythm in the seas of Titan (08:34)
- 03. The Alchemist's prayer (11:16)
- 04. Surrender Ananda (08:59)(   Читать дальше...   )Жанр: Ambient, World MusicПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE94849B25D944E02D7D3B47D28AD9E075127B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244655   (480236) от 02.09.2018
-
-Yamaneko - Afterglow (2018) Local Action [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow (04:58)
- 02. Second Encounter (04:47)
- 03. Oslo House Sunrise 4K (02:46)
- 04. Unreachable Feeling (05:03)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6077DAF00B760D6E98905F1829A0E7E4FDFBBCCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323638   (477023) от 02.09.2020
-
-Ryoji Ikeda (池田亮司) - Discography 18 Releases (1995-2018) Raster-Noton, Touch, CCI Recordings [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Minimal, Glit ...
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Staring Writing Cooking Sleeping Listening (48:26)
- 02. Tearing Polaroiding Masturbating Dancing Pissing (42:15)Тип издания: CD, WebЖанр: Experimental, Ambient, Minimal, Glitch, Sound Collage •Продолжительность: 17:08:25 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F549B606D53C225F858A65473D21EB391432FE14
 ```
 
 https://mybot314.ru/tekegram_catalog/

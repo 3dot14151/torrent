@@ -1,3 +1,150 @@
+###  Публикация: 1827686   (193383) от 22.10.2025
+
+Patrick Cowley - Hard Ware (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellfire
+02. Tech-No
+03. Spellbinding Lover (feat. Jeanie Tracy)
+04. Pajama Party Massacre(   Читать дальше...   )Жанр: Disco, Hi NRGПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75AED752DB25C0C701142C44F62A02BDFA9F6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589095   (190573) от 08.11.2022
+
+Various Artists - ZYX Italo Disco New Generation Vol. 20 (2022) [FLAC|Lossless|image + .cue] <Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190573.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Den Harrow Feat. Orlando Johnson– Shine On (Flemming Dalum Remix) 5:30
+02. Ken Laszlo– Leather Man (Swedish Remix) 5:56
+03. Flemming Dalum– Walking In The Neon (Special ZYX Remix) 6:52(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7793434535665F8A703814F5C54F916E20CA024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589454   (190270) от 09.11.2022
+
+Genghis Khan - Greatest Hits (1980) Japanese Edition, Compilation, Reissue, 1992, Victor Musical Industries [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dschinghis Khan (с нем.«Чингисхан») — западногерманская диско-группа, созданная в 1979 году музыкальным продюсером Ральфом Зигелем в ФРГ, для участия в международном песенном конкурсе «Евровидение», где заняла четвёртое место. Наиболее известна исполнением таких песен, как «Dschinghis Khan», «Moskau», «Rocking son of Dschinghis Khan».
+
+Многие песни группы посвящены (   Читать дальше...   )01. Machu Picchu
+02. Hadschi Halef Omar
+03. Madagaskar
+04. Kaspar Hauser(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECFDD5F4F096F55E4B93B66CC7DE3E93708789C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589371   (190258) от 09.11.2022
+
+Donna Summer - Donna Summer (1982) 40th Anniversary Edition 2022, Driven By The Music [FLAC 2.0|44/24|WEB-DL|tracks] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is in Control (Finger on the Trigger) (4:21)
+02. Mystery of Love (4:27)
+03. The Woman in Me (3:56)
+04. State of Independence (5:51)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F58D498A0D716AFF5826B94B8AE52590E60E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152326   (188949) от 13.11.2022
+
+Boney M. - Ten Thousand Lightyears (1984) [FLAC|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exodus (Noah's Ark 2001) (5:19)
+02. Wild Planet (4:06)
+03. Future World (3:53)
+04. Where Did You Go (4:11)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25999307F1A1C0A1A2FCADD2766343B699D2A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590660   (187717) от 16.11.2022
 
 Savage - Greatest Hits and More (1990) 1995 Reissue, Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Italo-Disco>
@@ -596,151 +743,6 @@ Passengers - Casino: The Classic Collection (1994) Compilation [APE|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B170989F79C9BE2BF09FE6486D07C2B854C8ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435299   (144160) от 28.12.2020
-
-Veronica Unlimited - The Best Of The Singles Collection 1977-1982 (2003) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144160.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gimme More (3:42)
-2. What A Lousy Party (3:18)
-3. I Wanna Dance With You (3:34)
-4. New York City (3:43)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587828C356B46E712A8279250CE4F1F24DD91A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435287   (144124) от 28.12.2020
-
-Fantastique - Fantastique (1982) 2006 [FLAC|Lossless|image + .cue] <Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Told Me 5:37
-02. Your Hand In My Hand 3:55
-03. Moi Et Toi 6:04
-04. Costa Blanca 5:26(   Читать дальше...   )Жанр: Disco, Hi-NRGПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3CD9A773846849AA0ADDBED417B22AF8CC36B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739687   (144046) от 29.12.2013
-
-Santa Claus & D'Jingle Bells - That's Eurobeat Christmas (1993) [FLAC|Lossless]<Electronic, Italo-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Думаю, что почти 50 минут непрерывных танцев в Новогоднюю Ночь Вам обеспечено под этот диск. И не смотрите, что он издан аж в 1993 году - Новый Год он и через 10 лет будет Новым Годом. Счастливо повеселиться!01. Happy Christmas (3:16)
-02. My Chica (3:33)
-03. Jingle Bells (2:45)
-04. How Many Times (2:44)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRGПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B464E021C8CA6A5CB8480CF604A631ACC6105E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435319   (143970) от 28.12.2020
-
-VA - Syndicate - The best disco with non-stop sound effects (2002) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babe - The Drunken Sailor (4:09)
-02. Theo Vaness - Bad Bad Boys (6:04)
-03. Ottawan - You're O.K. (5:18)
-04. T.H.P. - Good To Me (7:17)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C4A5F7CB3B3AC3CABD315EB371AF736BAA998D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678905   (141953) от 23.11.2023
-
-Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slaves of Love (feat. Quino)
-02. Don't Gamble with My Heart
-03. Only Love (feat. Bee Lee & AlimkhanOV A)
-04. Drama (feat. Quino)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FAB66B6DD1CBB63B390AB3C571BC3953520C898
 ```
 
 https://mybot314.ru/tekegram_catalog/

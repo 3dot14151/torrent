@@ -1,3 +1,61 @@
+###  Публикация: 1495458   (830216) от 13.10.2021
+
+VA - Serenity - Sexy Lounge & Chill out Pearls, Vol. 3 (2016) [AAC|~321 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Pearce - Don't Let the Sun Go Down on Me (Original Mix) (5:10)
+02. Mary J - Sailing (Original Mix) (4:46)
+03. Jessica Hathaway - Frozen (Original Mix) (5:39)
+04. Michael Korg - 1973 (Original Mix) (4:51)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0198D170C6246F8F6BB206F27D68C0D1064D892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498655   (830214) от 13.10.2021
+
+VA - Pink Floyd in Jazz (A Jazz Tribute to Pink Floyd) (2021) [AAC|~301 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Turtle - Money (3:40)
+02. Nguyên Lê, NDR Bigband, Micheal Gibbs, Youn Sun Nah - Breathe (2:33)
+03. Gero Koerner Trio - Another Brick in the Wall (4:44)
+04. Ulita Knaus - Have a Cigar (2:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A2E9DBDF16FC322C4C0841F958DAB47893369D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501925   (830211) от 13.10.2021
 
 Koan - Macbeth (Stainless Steel Edition) (2021) [AAC|~329 Kbps] <Downtempo, Ambient, Chillout>
@@ -659,64 +717,6 @@ VA - 0815 Lo-Fi Chill Hop, Vol. 2 (2020) [AAC|~293 Kbps] <Jazzy, Chillhop, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6CB01D3B70DA00ADF3684F385587FB42FA4517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497797   (828511) от 14.10.2021
-
-VA - 0815 Lo-Fi Chill Hop, Vol. 3 (2021) [AAC|~301 Kbps] <Jazzy, Chillhop, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CiYou - Slow Fi (3:04)
-02. Jazzy System - Networks (4:05)
-03. Nightbar Jazz - Breath of the City (Radio Mix) (3:13)
-04. Richard Bonnee - Beautiful and Magical (3:11)(   Читать дальше...   )Жанр: Jazzy, Chillhop, LoungeПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A97DA2820339DC55F5BC6D7A2DBFE5720452A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502104   (828510) от 14.10.2021
-
-VA - Playa del Lounge (2010) [AAC|~332 Kbps] <Lounge, Downtempo, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pedro Del Mar - Playa Del Lounge (Intro Mix) (1:15)
-02. Pedro Del Mar & Blue Tente - You Left (Alexei Zakharov Ambient Mix) (6:47)
-03. The Movement - Rainmaker (Chillout Mix) (4:19)
-04. System F, Armin van Buuren - Exhale (Tim Besamusica's Lounge Mix) (4:21)(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 02:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733CAD3A8D1361F67155E1257C66C81EF878A94E
 ```
 
 https://mybot314.ru/tekegram_catalog/

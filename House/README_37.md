@@ -1,3 +1,154 @@
+###  Публикация: 1293345   (635670) от 04.04.2019
+
+VA - Beat Full Tech (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slavko Blanco - Sugar Ball (Original Mix)
+02. Angelique Leroy - Rainbow In Me (Original Mix)
+03. Markus B - Alien Technology (Original Mix)
+04. Edelrost - Pizza (Extended Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 06:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BFE0FC1D6A593CD433B3CEF1D711F11349F452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293201   (635669) от 04.04.2019
+
+Siatria - Мой мир (2016) [MP3|320 Kbps] <Dance, EDM>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Закрой глаза  (3:27)
+02 - Люби меня  (3:33)
+03 - Больше не надо  (3:51)
+04 - Запомни меня  (3:18)(   Читать дальше...   )Жанр: Dance, EDMПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07500899CBA817E9C961BE90A1DA0EF68DAA8725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519115   (635626) от 07.07.2012
+
+VA - 5 Years Of Claremont 56 Compiled Edited & Mixed By The Idjut Boys (2012) [MP3|320 кб/с]<House, Disco, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635626.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: 01:09:42
+01. Bison - Way To La (Day)
+02. Fist Of Facts - Fugitive Vesco (Idjut Work Out)
+03. Mudd & Pollard - Vincent
+04. Mudd & Ahmed Fakroun - Drago (Idjut Edit)
+05. Smith & Mudd - Le Suivant
+06. Smith & Mudd - Hvala (Version Idjut)
+07. Mudd & Pollard - Scaffold
+08. Smith & Mudd - Shulme
+09. The Popes - Bastards (Idjut Edit)(   Читать дальше...   )Жанр: House, Disco, Nu DiscoПродолжительность: 03:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D82941522116EB2ED1689DFE6FD454B4B7C67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143447   (635507) от 18.06.2017
+
+VA - Drink and Beach Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJGus - Sky Passage
+02. Psychopathic - X File
+03. PhiNek - Savage
+04. Stephen Barcella - Strong(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7974AD1CE7A23B1ABC670D67A78AD67C8115DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143463   (635384) от 18.06.2017
+
+VA - Ibiza House Opening 2017 - House & Chill Music At Its Best (2017) [MP3|320 Kbps] <House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635384.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Housework - Loose My Mind (Hypnotic Slide mix) (06:20)
+2. Cachar - Don't Stop The Houseparty (The Rough cut) (07:48)
+3. Cinematic - Airflow (Chillhouse mix) (07:05)
+4. Adriatic Grooves - Zoom Zone (Ibiza Flow mix) (06:25)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 06:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B072089AA96B4693CDDB53A9D31C45B7D06308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034054   (634367) от 13.07.2016
 
 VA - A House Is Not A Home Without A Dog #01 (2016) [MP3|320 Kbps] <Deep House>
@@ -606,161 +757,6 @@ VA - Deutsche DJ Charts Vol.21 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3EA054BB7AAE9DF5196E1F7CB420952612853E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036024   (622748) от 19.07.2016
-
-VA - Melodic Progressive House Vol. 06 (2016) [MP3|320 Kbps] <House, Melodic House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregory Esayan -  Make a Wish (Original Mix) 7:33
-02. Blugazer -  Ethereal Concepts (Shingo Nakamura Remix) 5:52
-03. BXT -  White Lynx (Original Mix) 6:10
-04. LavKastor -  E3 (Terry Da Libra Remix) 6:56(   Читать дальше...   )Жанр: House, Melodic House, Progressive HouseПродолжительность: 02:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E72DF714CDA3AB6BFE51C0B6C15B9D36A57541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350932   (621873) от 17.06.2011
-
-VA - Pete Tong & Felix Da Housecat - All Gone Ibiza 11 (2011) /AGPT01D2/ [MP3|320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_621873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thugfucker - Disco Gnome (Tale of Us Remix)
-02. Guti - Wanna Be
-03. Marco Carola - Play It Loud!
-04. Sascha Breamer & Phillip Bader - Honey
-05. Stacey Pullen - Get Up
-06. Taras Van De Voorde - 1998 (2000 And One Re-Edit)
-07. Mark Fanciulli - The Tide (Joris Voorn Edit)
-08. Azari & III - Hungry For The Power (Jamie Jones Ridge Street Mix)
-09. Cajmere feat. Dajae - Brighter Days (John Made Remix)
-10. Dragosh - Warm Up(   Читать дальше...)Жанр: HouseПродолжительность: 05:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E78A7FF359ACDEFAE3A6265CD6297024E63FA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910373   (621565) от 20.06.2015
-
-VA - Ibiza Night Affairs The Very Best Of Chill House (2015) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CDPM - Kalas (05:53)
-02. The Sura Quintet - Intimacy (05:32)
-03. Soul Emphasis - Going Deeper (06:16)
-04. Chiffre 100 - Need 2 Feel (06:51)(   Читать дальше...   )Производство: StereoheavenЖанр: Deep House, Chill HouseПродолжительность: 02:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24546BBBE5D7D9671A5EDE683DE90988342122E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519896   (621151) от 14.07.2012
-
-VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621151.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Supermodels - Sumasutra (3:52)
-2. Skyline - Sky L (4:25)
-3. New Deep Room (Night mix) - Alexis Montgomery (5:39)
-4. Black Diamond (deep progression mix) - Bass O' Matik (5:39)
-5. Mexico (feat Enjoy - Da vocal mix) - Karl Van Dee (5:42)
-6. Heaven & Paradise - K & C (3:59)
-7. Improbality (feat Voiceen - Phunkadeep mix) - Black Jag (5:39)
-8. We Can Dance (feat Barra Lopez - Modell & Mercier mix) - Caesar Anthony (5:44)Жанр: Deep HouseПродолжительность: 02:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229950   (620892) от 09.06.2018
-
-Chicane - The Place You Can't Remember, The Place You Can't Forget (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running to the Sea
-02. Gorecki
-03. Serendipity
-04. A Love That’s Hard to Find(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8420A8AE022A2FB2E1E8EDFA2A8AEAFCE43FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

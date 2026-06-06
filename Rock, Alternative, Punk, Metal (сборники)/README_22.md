@@ -1,3 +1,148 @@
+###  Публикация: 1403869   (686041) от 22.08.2020
+
+VA - Women in rock (Compilation) (2020) [MP3|320 Kbps] <Rock, Hard Rock, Hard 'N' Heavy>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondie - Atomic
+02. Gossip - Heavy Cross
+03. Lita Ford - Kiss Me Deadly
+04. Hole - Celebrity Skin(   Читать дальше...   )Жанр: Rock, Hard Rock, Hard 'N' HeavyПродолжительность: 05:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B5910EE842C1118C9F5A107905CCF357E48FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795882   (685726) от 14.06.2014
+
+VA - Alterportal HITS 14 Vol. 69 - May (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Room Reunion - Storm Rages On
+02. die Apokalyptischen Reiter - Wo Es Dich Gibt
+03. Body Count - Talk Shit, Get Shot
+04. Seventh Day Slumber - Goodbye(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83042A82FC25710CD1B04A3A92DF7C4579428724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403991   (684277) от 23.08.2020
+
+VA - Concord Dawn: Hard Rock Core Anthology (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684277.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Video Nasties - Viva Death
+002. Naat - The Moth
+003. Crafter - Rupture
+004. Disembodied - Bloodshed Rain(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 09:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18208A55D9D55A3059AFA732C68E0DCBD46C3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404162   (684265) от 23.08.2020
+
+VA - Rock Songs: Essentials Collection (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Broken Field Runner - Test Everything
+002. Vulture Party - Mayday Cockerel
+003. Neufundland - Liebe (Radio Edit)
+004. Bersuit Vergarabat - Vuelos(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C958F0AECCE5A418C90F7F3546A018CAC019A115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289645   (683731) от 17.03.2019
+
+VA - Знакомые все лица...Rock 90-х (зарубежный выпуск) (1990-1999) [MP3|320 Kbps] <Hard Rock, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iron Maiden - Be Quick Or Be Dead (03:25)
+02. Helloween - Goin' Home (03:52)
+03. Accept - Rich And Famous (03:14)
+04. Gamma Ray - Lust For Life (05:19)(   Читать дальше...   )Жанр: Hard Rock, Metal, RockПродолжительность: 08:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98D702C7C48C9FA56510BEE9FE2053541BC9AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536067   (680387) от 09.03.2022
 
 Kaleo - Compilation (2022) [MP3|320 Kbps] <Rock, Post-Rock>
@@ -599,151 +744,6 @@ Zakk Wylde - The Beginning... At Last (2017) Compilation 3CD [MP3|320 Kbps] <Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8823CF044E3F1E2134750CC821942FCD968C155B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901032   (665414) от 24.05.2015
-
-VA - Dr. Metal Presents: Vol.5 (2015) [MP3|224 кб/с]<Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Heavy Metal-Hymn
-002-Blasdead-Killer Of The Skies
-003-Adastra-Get Back To The Ring
-004-Edguy-Key To My Fate(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89AF722CBAA98E2E81E948FB2B3B81073B2B61C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137877   (665132) от 28.05.2017
-
-VA - Остаться Молодым: Сборник Русского Рока (2017) [MP3|256-320 Kbps] <Рок, Альтернатива, Классика Рока>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Северный Флот - Поднимая Знамя 4:41
-002. Epolets - Нам Выбирать! 3:57
-003. Иван Курнаев - В Пульсе Сердца 4:00
-004. Annodomini - Не Надо Слов 3:28(   Читать дальше...   )Жанр: Рок, Альтернатива, Классика РокаПродолжительность: 07:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BF7F9DB7F867EABBB7C12714B8561CD153948E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224647   (664786) от 11.05.2018
-
-Procol Harum - Beyond The Pale (2CD) Compilation (2018) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Boxed
-02. Something Magic
-03. Skip Softly (My Moonbeams)
-04. As Strong As Samson(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C07C737749A4E331804A3880D5DF1AB602B319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538880   (661088) от 22.03.2022
-
-VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sueco - Loser (2:13)
-02. Е2 Знакомы - Зёрна (2:21)
-03. Ярик Бро - В Питере Дождь (2:38)
-04. The Score - Fighter (2:36)(   Читать дальше...   )Жанр: RockПродолжительность: 04:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D29728E095E0E0D57F13A015C0E1F1A118F611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902958   (659598) от 29.05.2015
-
-7Б - Лучшее (2015) [MP3|320 кб/с]<Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659598.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Молодые Ветра (04:25)
-002. Я - Любовь (03:26)
-003. Бессмертие (04:59)
-004. Руки В Небо (03:30)(   Читать дальше...   )Жанр: РокПродолжительность: 03:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E8DC26ABC73D5DBAFE0BF99B83A9D48DE03B28
 ```
 
 https://mybot314.ru/tekegram_catalog/

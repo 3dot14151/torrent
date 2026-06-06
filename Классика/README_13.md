@@ -1,3 +1,61 @@
+###  Публикация: 1001017   (855415) от 27.03.2016
+
+Victor Merzhanov - Scriabin (12 Etudes op. 8), Rachmaninov (Piano concerto No.3) 1997 [FLAC|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alexander Scriabin 12 Etudes op. 8
+01. C sharp major   01:49
+02. F sharp minor   02:15
+03. B minor   01:58(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97577AA26C15DC3FC9A48A727A5CEA061A9A9815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001200   (855413) от 27.03.2016
+
+David & Igor Oistrakh - Bach: Violinkonzerte (BWV 1041/42/43), Vivaldi: Concerto Grosso (Op.3 Nr.8) 1962 [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for violin, strings & continuo No. 1 in A minor, BWV 1041
+01. I. Allegro moderato    04:05
+02. II. Andante    07:31
+03. III. Allegro assai    04:05Жанр: Classical, ConcertoПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2D07D3C63B1C2D48BF8C6464740CAC32483622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000881   (855412) от 27.03.2016
 
 Gershwin - I Got Rhythm, Concerto in F, Rhapsody 2, Preludes, Cuban Overture (Haas, De Waart, Inbal) (2006) [FLAC|Lossless|tracks] <Classical, Concerto>
@@ -684,64 +742,6 @@ Chatham Baroque - Sol y Sombra: Baroque Music Of Latin America (1999) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDDB5015A2F400A127C891FFD98855B86F0B6A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002195   (848686) от 31.03.2016
-
-Elina Garanca - Romantique (2012) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  L'ai-je bien entendu? ... O mon Fernand! (Donizetti)  8:25
-02.  Mon coeur s'ouvre a ta voix (Saint-Saens)  6:15
-03.  Da, chas nastal! ... Prostite vi, kholmi, polya rodniye (Tchaikowsky)  6:26
-04.  Ou suis-je? ... O ma lyre immortelle (Gounod. Sapho)  7:55(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7CF47D7BAE46FE71733C85656EBE5E9D3F88C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002188   (848685) от 31.03.2016
-
-Elina Garanca - Arie Favorite (2002) [APE|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfgang Amadeus Mozart:
-01.  Non so Piu cosa Son  2:51
-02.  Voi Che Sapete  2:54
-03.  Den per questo Instante  6:22(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165CE16FFF09D8933B6E522B048DD0656B73E689
 ```
 
 https://mybot314.ru/tekegram_catalog/

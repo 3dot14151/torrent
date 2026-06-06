@@ -1,3 +1,61 @@
+###  Публикация: 1112968   (839779) от 10.03.2017
+
+Boismortier - Motets avec symphonies (1991) 2004,  Accord [FLAC|Lossless|image + .cue] <Classical sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motet a Grand Choeur
+01. Symphonie et duo de basses tailles 2:21
+02. Choeur 2:12
+03. Recit basse taille 2:15(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01616280CC5248967712BAB954494FBC1B1536AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004467   (838049) от 06.04.2016
+
+Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch - Philadelphia Orchestra) (2012) [FLAC|Lossless|tracks] <Classical, Concerto>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony no. 8 in G major, op. 88
+01 (1) Allegro con brio
+02 (2) Adagio
+03 (3) Allegretto grazioso(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F7103D323DA04A51C4B898BEF9EEE83AB7ECFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004293   (837927) от 06.04.2016
 
 Harriet Krijgh - Elegy (2015) [FLAC|Lossless|tracks] <Classical>
@@ -687,64 +745,6 @@ Antonio Nicolau (1858-1933)(   Читать дальше...   )Жанр: Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BAC67D73E83A3FB1B3FF7781633D871687511CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116535   (822236) от 20.03.2017
-
-VA - Chill Out Piano (2017) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Tipo - Goldberg Variations, BWV 988: Aria
-02. Marielle Labeque, Katia Labeque, Israel Philharmonic Orchestra and Zubin Mehta - Le carnaval des animaux, R. 125: VII. Aquarium
-03. Aldo Ciccolini - Arabesque, L. 66: I. Andantino con moto
-04. Wolfgang Sawallisch, Philharmonia Orchestra and Annie Fischer - Piano Concerto No. 21 in C Major, K. 467: II. Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD73DE2EAC6D04FE8E7A28517A8BF8926D589B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116569   (822150) от 20.03.2017
-
-2Cellos & London Symphony Orchestra - Score (2017) [FLAC|Lossless|tracks + .cue] <Neoclassical, Stage & Screen, Score>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ramin Djawadi - Medley (From Game of Thrones) (5:04)
-02. Enya, Roma Ryan, Nicky Ryan, Howard Shore - May It Be (From The Lord Of The Rings: The Fellowship Of The Ring) (3:56)
-03. James Horner - For The Love Of A Princess (From Braveheart) (5:11)
-04. Francis Lai, Carl Sigman - Love Story (From Love Story) (3:24)(   Читать дальше...   )Производство: Portrait, Sony Masterworks – 88985349122Жанр: Neoclassical, Stage & Screen, ScoreПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68BC5AE6A5F62551B597244530AAEE9DB79BA7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

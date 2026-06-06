@@ -1,3 +1,32 @@
+###  Публикация: 1221437   (695107) от 24.04.2018
+
+Niklas Paschburg - Tuur mang Welten (2016) Unperceived Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulenflucht (03:59)
+ 02. Holtnevel (03:35)
+ 03. Tuur Mang Welten (04:38)
+ 04. Dawn (03:45)(   Читать дальше...   )Жанр: Modern Classical, Downtempo, Ambient, ContemporaryПродолжительность: 00:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA96E2645A41495E2C970C622B1C310DECB262F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221913   (689676) от 27.04.2018
 
 Sven Laux - Schachmatt (2018) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
@@ -715,35 +744,6 @@ KÁRYYN (KARYYN) - The Quanta Series (2019) [FLAC|Lossless|tracks + .cue] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65AC9E3DDE5F3BA37474B81F2B18F8237F27FCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294608   (628371) от 08.04.2019
-
-Örnatorpet (Ornatorpet) - Hymner Från Snökulla (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Dungeon Synth, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preludium - Gryning (05:05)
-02. Över Frusen Mark - I (04:59)
-03. Över Frusen Mark - II (07:16)
-04. När Gnistrande Snöflingor Falla - I (04:59)(   Читать дальше...   )Жанр: Electronic, Dungeon Synth, AmbientПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B51A85F295DD30A73C0853B3B8C104C5BA9A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 1525639   (129201) от 21.01.2022
+###  Публикация: 1331378   (137085) от 31.12.2019
 
-Nocturna - Daughters Of The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+Shokugeki no Souma: Shin no Sara / Food Wars! The Fourth Plate / Кулинарные поединки Сомы [ТВ-4] [2019, TV, 12 ep] WEB-DL 1080p Rus
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spectral Ruins
-02. New Evil
-03. Daughters Of The Night
-04. The Sorrow Path(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:36:51
+Юкихира Сома возвращается на наши экраны! Ещё в школе этот парень уже распланировал свою жизнь. Он буквально спал и видел, как маленький ресторанчик, в котором работают он и его отец, переходит к нему по наследству. Но не тут то было, его папа уезжает в путешествие, а самого Юкихиру отправляет в знаменитую кулинарную академию Тоцуки. Здесь самоуверенному Соме приходится (   Читать дальше...   )Жанр: комедияРежиссер: Ёнэтани ЁситомоЯзык озвучки: Японский и РусскийСубтитры: ASS, Встроенные, НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AEDA42112A9F6D6D84B490EFCAA55684BEC2180
+magnet:?xt=urn:btih:A596E4233A82C22A19446BC58DF1E706D50FF6CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,34 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488805   (129200) от 27.04.2012
+###  Публикация: 1520807   (137084) от 31.12.2021
 
-VA - Клубные Новинки Vol.66 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+Охотники за привидениями: Наследники / Ghostbusters: Afterlife (2021)WEB-DLRip [Line, AD]
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_137084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Orjan Nilsen - Amsterdam (Original Mix)
-02. Julian Vincent feat. Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
-03. Cathy Burton & Omnia - Hearts Connected (Skytech Remix)
-04. Serge Devant feat. Rachael Starr - You & Me (Extended Mix)
-05. Tiesto & Swanky Tunes feat. Ben McInerney - Make Some Noise (Original Mix)
-06. Serge Devant & Danny Inzerillo feat. Polina - When You Came Along (Extended Mix)
-07. Solarstone feat. Clare Stagg - The Spell (Pulser Mix)
-08. Snatt & Vix feat. Neev Kennedy - At The End Of The Day (Original Mix)
-09. Paul Van Dyk feat. Michelle Leonard - Lost In Berlin
-10. Доминик Джокер - Если Ты Со Мной (DJ Stylezz Remix)2012Жанр: Club, DanceПродолжительность: 04:22:14
+Мать-одиночка с двумя детьми-подростками селится на старой ферме в Оклахоме, полученной в наследство от отца, которого она не знала. Дети пытаются больше узнать о своем деде и находят автомобиль Ecto-1, принадлежавший знаменитым охотникам за привидениями.Производство: США / Bron Studios, Columbia Pictures Corporation, Ghostcorps, Sony Pictures Entertainment (SPE), The Montecito Picture CompanyЖанр: Фантастика, комедия, боевикРежиссер: Джейсон РайтманАктеры: Финн Вулфхард, Маккенна Грейс, Кэрри Кун, Сигурни Уивер, Билл Мюррей, Дэн Эйкройд, Эрни Хадсон, Логан Ким, Селеста О’Коннор, Энни ПоттсПеревод: Дублированный (Line)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:03:45Реклама: Присутствует баннер!
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA8A4B1413DADFFB4F4D27A1FDB1F61AF71F2B1C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -62,307 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525688   (129198) от 21.01.2022
+###  Публикация: 1436432   (137083) от 31.12.2020
 
-Sketch 82.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: macOS 10.15 or laterЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8B9CD3851BADB9A5DA808A5F0BE7FF7266E3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525418   (129196) от 21.01.2022
-
-VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это те приятные мелодии, благодаря которым человек растворяется в обволакивающей его музыке и предаётся теплым объятиям спокойствия и умиротворения вспоминая приятные моменты летнего отпуска на море.001. Lafoliedamour - Lollygagging
-002. Memorio - Grace
-003. Subdream - Monsonoom
-004. Buddha Bar - Cold Phase(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488898   (129195) от 27.04.2012
-
-Журнал | Дачный сезон №4 [2012] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дачный сезон - это журнал для дачников, а также любителей сада и огорода. Тема номера: выращиваем ранний картофель.
-Также вам будут интересны советы от заядлых дачников и секреты дачных посадок.2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572DE86CA06F43C7A20322DD2A7B9BAD7FBF3658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525687   (129194) от 21.01.2022
-
-Винсент Ван Гог | Письма к друзьям (2021) [MP3, Константин Корольков]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ван Гог создал более сорока автопортретов. «Трудно познать самого себя. Однако написать самого себя не легче», – говорил он. Ван Гог оказался талантливым мастером не только кисти, но и пера. Буквально каждый вечер после работы за холстом он садился за стол и писал длинные письма родным и друзьям. После его смерти письма были найдены. Без преувеличения их можно назвать (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Зарубежная публицистикаПеревод: Полина В. МелковаПродолжительность: 04:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FD96C95829D7A0D543996BFD807ABC16F7265B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525182   (129193) от 21.01.2022
-
-Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop, Acoustic, Lo-Fi>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rumours (04:10)
- 02. Rocky Trail (03:31)
- 03. Comb My Hair (03:06)
- 04. Angel (03:16)(   Читать дальше...   )Жанр: Indie Pop, Acoustic, Lo-FiПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525578   (129192) от 21.01.2022
-
-Firefox Browser 96.0.2 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6084A08CC54620246D5FF04B7C17FF0E513352BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525376   (129191) от 21.01.2022
-
-VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
-002. Simone D Jay - Move Your Feet
-003. DJ Planet Express - Wanted U 2 Kno
-004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525545   (129190) от 21.01.2022
-
-Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris by Night (3:51)
- 02. Sourire (4:26)
- 03. Seine (3:39)
- 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525680   (129189) от 21.01.2022
-
-Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Love Lost
-02. Don't Give Up
-03. Still Not Over You
-04. The Way We Danced(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525426   (129188) от 21.01.2022
-
-VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы погружаемся в Техно туннели, собираем лучшие музыкальные работы и упаковываем их в подарочную упаковку специально для Вас. Целых сто треков техно любви доступны уже сейчас во втором релизе "The Techno Streaming Sound" от Electro Voice!001. Lorenzo Chi - Underground Chicago
-002. Theo De Tank - Make Me Feel
-003. Jürgen Degener - Rhyme
-004. Heathered Pearls - Utica(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9E694EE9CC0AEC955E15BDAEF3A4374A022889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525739   (129186) от 21.01.2022
-
-VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+BELLATRIX - Lost In Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Italo-Disco>
 
 >>Electronic
->>Trance
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Richard Durand & Susana - I Matter to You (Extended Mix) [06:14]
-02. Christian Burns - Breathing Fire (Farius Extended Remix) [05:52]
-03. Giuseppe Ottaviani - The Wind in Your Face (Extended Mix) [06:44]
-04. Eco - Let You Down (Chris Schweizer Extended Remix) [06:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:47
+01. Air Touch (6:29)
+02. Power Quality (6:05)
+03. Sky Expedition (6:47)
+04. Lost In Space (6:16)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Italo-DiscoПродолжительность: 01:07:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
+magnet:?xt=urn:btih:2B13B6CCE8692345721E63AA3682ECD1F05E0E2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,34 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488307   (129184) от 27.04.2012
+###  Публикация: 1679485   (137082) от 25.11.2023
 
-VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
+Банды Лос-Анджелеса / Maze of Fate / Live and Die in East LA (2023) WEB-DLRip [H.264/1080p] [MVO]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yolan & Kenia - На Пороге Лета (Extended Mix)
-02. Soda - Разлука (DJ Movskii & DJ Karasev Extended Remix)
-03. Батишта feat. Ульяна Глушкова - Мама
-04. MainstreaM One - Всё Пройдёт
-05. Karizma - Я Забуду (Radio Edit)
-06. Алиса - Настроение
-07. Music Hayk - Почему Не Я
-08. Bi-O-Shock - Биоробот
-09. LiLi - Lady GaGa Отдыхает!
-10. Валерий Меладзе - Потерян И Не Найден(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:01:45
+В Лос-Анджелесе вновь неспокойно. Во время будничной сделки по обмену запрещенных веществ на наличность у бандита Санчеса сдают нервы, и он намеренно сбивает на автомобиле подростка Дэниела. Мальчишка оказывается на больничной койке, а его отец — криминальный авторитет Карлос — ждет от врача хороших новостей и обдумывает план мести. Начинается новый виток войны между (   Читать дальше...   )Производство: США / Move Mountains PicturesЖанр: триллер, драма, криминалРежиссер: Attila KorosiАктеры: Роберт ЛаСардо, Ричард Кебрал, Корина Калдерон, Сесар Гарсиа Гомес, Куэто Йеска, Ли Кок, Марк Креник, Джои Абрил, Энтони Руис, Дэвид ХиллПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:23:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B33CA0AC4D3F72011627B1E5DF0DD0E7CE2DAB97
+magnet:?xt=urn:btih:F402AA4618E835E5AEDBA1C388A55A9C3999E0EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525633   (129178) от 21.01.2022
+###  Публикация: 1237052   (137081) от 31.12.2022
 
-Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Михаил Задорнов. Легко жить трудно (2018) DVB [H.264/1080i-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Not The End Of The Road
-02. What Goes Up
-03. Only The Dead
-04. Yoko Ono(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:32
+В нашей стране нет человека, который не знал бы Михаила Задорнова. Мы цитируем его остроумные фразы и шутки, даже не задумываясь, кто их автор. Его юмор был феноменально актуальным: то, что утром обсуждали в новостях, вечером Задорнов выносил к зрителям. Казалось, нам известно все о его творчестве, гастролях, фильмах и личной жизни. Но на самом деле Задорнов был (   Читать дальше...   )Телекомпания: Россия / Студия ГалаконЖанр: Документальный, Искусство, БиографияСубтитры: Русские, телетекстПродолжительность: 00:49:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13C90E85C6BDC132710B23E162A0388A200B3DC9
+magnet:?xt=urn:btih:DB2384367D27FF28C92D53DE83B90A995A462D85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,28 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525790   (129177) от 21.01.2022
+###  Публикация: 1679435   (137080) от 25.11.2023
 
-VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulful House, Tech House>
+Jenn Mishra | 100+ Best Prompts for Midjourney (2023) [PDF] [EN]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cookie Monsterz, Michelle Weeks, Qubiko - Spread Love (Unreleased Qubiko Dub) (6:41)
-02. Mata Jones - Esa Y Aqui (Unreleased Original Mix) (6:38)
-03. Dennis Ferrer, K.T. Brooks, Philip Z - How Do I Let Go (Unreleased Philip Z Dub) (6:31)
-04. Dino MFU, Alxndra Good, David Morales - Not True (Unreleased David Morales Reprise) (6:21)(   Читать дальше...   )Жанр: Deep House, Soulful House, Tech HouseПродолжительность: 03:49:25
+Эта электронная книга представляет собой сборник моих любимых подсказок, включенных в видеоролики на моем канале YouTube «Making the Photo». Это ваш личный ключ к сокровищнице творческих поисков. Эти подсказки не просто впечатляют. Они подобраны так, чтобы пробудить в вас творческий потенциал, разжечь воображение и показать удивительный потенциал, заложенный в Midjourney. (   Читать дальше...   )Жанр: ИскусствоЯзык: АнглийскийИздательство: GumroadФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D24260F18DDA2C518C201F68508AF6624314B36
+magnet:?xt=urn:btih:AB6D4B0CF7C187DD8EBBDE3228A81C4405CD5D7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,28 +157,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525540   (129175) от 21.01.2022
+###  Публикация: 1520987   (137079) от 31.12.2021
 
-VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+Тихий омут / Stillwater (2021) BDRip
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lemongrass, Jane Maximova - Deep River (6:29)
-02. SilverNight - Silence (6:55)
-03. Barclay & Cream - Surrender (Alexander Metzger Beach Mix) (3:55)
-04. Jens Jakob - Antimatter 1 (10:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:26
+Герой драматического триллера «Тихий омут» — нефтяник из Оклахомы по имени Билл, который едет во Францию к своей дочери, несправедливо осужденной за убийство. Для Билла это неизвестный мир со своими правилами, однако он берется лично доказать, что его ребенок невиновен.Производство: США / 3dot productions, Amblin Partners, Anonymous Content, DreamWorks SKG, Participant Media, Slow PonyЖанр: Триллер, драма, криминалРежиссер: Том МакКартиАктеры: Мэтт Дэймон, Камилль Коттен, Эбигейл Бреслин, Lilou Siauvaud, Дианна Данаган, Идир Азугли, Анн Ле Ни, Мусса Мааскри, Изабель Танакил, Нэйдра АйадиПеревод: Дублированный (iTunes)
+Язык озвучки: РусскийСубтитры: Русские (full) - отдельно, Английские (хардсаб) на французскую речьПродолжительность: 02:18:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09CC06264E351249CCA685E6E2B5DF1B4E2866D4
+magnet:?xt=urn:btih:47ED495DE670A8130EB68B44311D8134D602D840
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +184,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488755   (129174) от 27.04.2012
+###  Публикация: 1436503   (137078) от 31.12.2020
 
-Газета | 1000 секретов [Украина] №8 [2012] [PDF]
+С чистого листа (2020) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подходит к концу 2020 год. С особым трепетом боя курантов ждут дети. Они умнее нас, чище и прозорливее. Они ещё искренне верят в доброту, интуитивно чувствуют наше настроение. Дети любят и жалеют нас так, как умеют это делать только они. Больше других наши дети знают цену взаимопониманию, поддержке, уважению и заботе. Семья для них – центр мироздания...Производство: РоссияЖанр: Короткометражный, комедия, драмаРежиссер: Леонид ТележинскийАктеры: Сергей Епишев, Полина Некрасова, Жанна Чирва, Святослав ЖитковСубтитры: ОтсутствуютПродолжительность: 00:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2421DF118EAC361AB657C68FAB3E64DAA0DE94C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601302   (137077) от 31.12.2022
+
+Udemy, Irek Mirgaleev | Test-Driven Development Masterclass with Angular (2019) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137077.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы изучите основы разработки через тестирование при создании простого веб-приложения Angular. Это даст вам уверенность в использовании TDD для сред с большим количеством тестов, таких как разработка корпоративных веб-приложений. Вы точно будете знать, с чего начать, и получите рабочий пример создания целых функций с нуля с использованием TDD.
+На протяжении (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09FD9C9679CDA21DBEE28A0391D42A248304D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322817   (137076) от 31.12.2019
+
+Vinland Saga / Сага о Винланде [2019, TV, 24 ep] WEB-DL 1080p Rus
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«1000 секретов» - издание, которое станет полезным каждому. Оно содержит советы по различным темам: кулинария, цветоводство, ремонт, сад-огород, уход за животными, юридические вопросы, мода, здоровье, семейные отношения и многое другое.Формат: PDF
+Эта история начинается в начале XI века, когда господствовавшие в северных морях викинги начинают захват Англии. В эпоху, когда топор являлся более весомым аргументом, чем слово, маленький мальчик теряет своего отца. Став на путь воина, он жаждет честного поединка с убийцей своего отца. Юноша вступает в отряд своего врага и выполняет для него самые сложные задания, (   Читать дальше...   )Жанр: приключения, история, драмаРежиссер: Ябута СюхэйЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизодов по 25 минут
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7035D28BAFE60135468B43A72039B6347574F47
+magnet:?xt=urn:btih:03C4A17F84542879878D6CC448BF97E7F0DD9356
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +263,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525544   (129172) от 21.01.2022
+###  Публикация: 1519642   (137075) от 31.12.2021
 
-VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+Море Спокойствия / Goyoui bada / The Silent Sea (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) BaibaKo
 
->>Аудио и Видео
->>Музыка (AAC)
+>>След.
+>>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. York - Interlude (0:57)
-02. Marga Sol, Mike Vale, NDKj - Say My Name (Marga Sol's Chill Mix) (3:43)
-03. CaPa - The Way We Live (3:48)
-04. Eskadet - A Bientot (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:51
+2075 год. На Земле заканчивается вода, и группе учёных приходится отправиться на Луну, чтобы забрать важные образцы из заброшенной научной лаборатории.Производство: Корея Южная / Artist studio, NetflixЖанр: фантастика, триллерРежиссер: Чхве Хан-ёнАктеры: Кон Ю, Пэ Ду-на, Ли Джун, Хо Сон-тхэ, Ли Му-сэн, Чон Сун-вон, Ли Сон-ук, Ан Сэ-бин, Ким Сон-ён, Кан Маль-гымПеревод: Многоголосый профессиональный (BaibaKo)Язык озвучки: Русский, английский, корейскийСубтитры: Русские, английские (Forced, Full, SDH), корейские (Forced, SDH), MultiПродолжительность: ~00:50:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F96282DBE6FD68E9FA16C679521062E46F4E7D28
+magnet:?xt=urn:btih:9C75E52F6C545F1B295250ED50E9A3B3BE148DBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,34 +289,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 487394   (129171) от 27.04.2012
+###  Публикация: 1436328   (137074) от 31.12.2020
 
-VA - Drive from Mad M!nd (2012) [MP3|320 кб/с]<Dutch House>
+Federico Conti & The Modern Organ Trio - Hammond-Ology (2020) [MP3|320 Kbps] <Jazz Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alx, Jazzi Jay, Muzzyg - Letz Go! (Die Hoerer Remix)
-02. Avesta - Arena (Original Mix)
-03. Aylesbury - Surrender (Gimbal & Sinan Remix)
-04. Betatraxx feat. Krystal - Shuffling & Looking Dumb (Original Mix)
-05. Eva - Body On Mine (Mixin' Marc & Tony Svejda Peak Hour Dub)
-06. Kraymer - The Concept (Jay Robinson Remix)
-07. Laidback Lue - Do The Robot (Original Mix)
-08. Lenny Kravitz - Are You Gonna Go My Way (Christian Sims Remix)
-09. Lil Jon - Drink ft. LMFAO (Extended Clean)
-10. Mad Villains - Disk Hoez (Dirty Audio Remix)(   Читать дальше...   )2012Жанр: Dutch HouseПродолжительность: 01:48:28
+01. Captain Jack (dedicated to Jack McDuff) (05:17)
+ 02. Shirley My Dear (07:35)
+ 03. Conti - Jazzy Sunday (06:45)
+ 04. Black Nile (06:22)(   Читать дальше...   )Жанр: Jazz RockПродолжительность: 00:54:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:852E0FE49DB6B164FE6283DC31690C5182F6C358
+magnet:?xt=urn:btih:58579EC832BF17AEDC0D7DE732AA0D3354C3EFC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,28 +318,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525676   (129170) от 21.01.2022
+###  Публикация: 1679418   (137073) от 25.11.2023
 
-Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
+The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Episodes 1-6]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zanzebaar (1:47)
-02. Paul Oakenfold, Baby E - Shine On (2:33)
-03. Paul Oakenfold, Lizzy Land - Waterfall (Orchestral Mix) (2:42)
-04. White Lights (3:19)(   Читать дальше...   )Жанр: EDM, House, Drum & BassПродолжительность: 00:56:41
+Исследуйте поразительную вселенную The Expanse в уникальном приключении от Telltale под названием The Expanse: A Telltale Series. Вы можете обшаривать обломки кораблекрушения в невесомости, сражаться с пиратами или заниматься чем-то ещё, но придётся постоянно делать выбор, который повлияет на последующий ход игры. Кара Джи (Cara Gee) в роли Камины Драммер поможет (   Читать дальше...   )Тип издания: RepackРазработчик: Deck NineЖанр: Экшены, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6242D6C4261B26EF291A2FBFA44AA0EC444902CF
+magnet:?xt=urn:btih:938738DF08DE53B02AE41B68C1BEA6531418BCBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,28 +344,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525682   (129169) от 21.01.2022
+###  Публикация: 1347789   (137072) от 31.12.2019
 
-Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Семейка Аддамс / The Addams Family (2019) WEB-DL [H.264/1080p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Wanna Move (4:03)
- 02. Too Much (3:29)
- 03. First Drumset (5:18)
- 04. Teenage Sequencer (4:17)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:41
+Папа любит долгие прогулки в ненастную погоду. Мама считает, что черный цвет самый яркий. У детей кладбище - любимая площадка для игр. Бабушка выпивает пару капель яда перед сном. Вы все еще думаете, что ваши родственники странные? Знакомьтесь - семейка Аддамс.Производство: Канада, США / Metro-Goldwyn-Mayer (MGM), Cinesite AnimationЖанр: Мультфильм, ужасы, фэнтези, комедия, семейныйРежиссер: Грег Тирнан, Конрад ВернонАктеры: Оскар Айзек, Шарлиз Терон, Хлоя Грейс Морец, Финн Вулфард, Ник Кролл, Снуп Догг, Бетт Мидлер, Эллисон Джэнни, Мартин Шорт, Кэтрин О`ХараПеревод: Дублированный (Онлайн кинотеатр)Субтитры: АнглийскиеПродолжительность: 01:27:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0BA19B003A8339AEA604837718E7C386BD265BA
+magnet:?xt=urn:btih:36E2B3D2F748F0AA184B2C010F457D8DC2C35649
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +370,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525572   (129167) от 21.01.2022
+###  Публикация: 1679487   (137071) от 25.11.2023
 
-Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Сборник | «Попаданцы. Альтернативная Россия» [67 книг] (2000-2023) [FB2] [Обновляемая]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Summertime (02:57)
- 02. No Glory in the West(04:14)
- 03. Drive Me, Crazy (05:18)
- 04. Kids(03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:25:18
+Сборник в жанрах "попаданцы" и "альтернативная история", в которых история России (СССР, Российской империи и т.д.) в результате какого либо события, которое случилось но которого не было в оригинальной истории (либо наоборот не случилось событие, которое было), пошла по другому пути - не произошла октябрьская революция, не развалился СССР и т.п.Жанр: Альтернативная история, попаданцы, приключенияИздательство: Различные, СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:755D4E4F3BFEFA065CD0ADC5F1BE79CCC364A301
+magnet:?xt=urn:btih:37F46766A96DF0653BCCE850ED17E1BC69936BD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,25 +396,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488846   (129166) от 27.04.2012
+###  Публикация: 1520937   (137070) от 31.12.2021
 
-Журнал | АиФ. Спецвыпуск. Дача №6 [2012] [PDF]
+Мажоры на мели / Pourris gates (2021) WEB-DL [H.264/1080p-LQ]
 
->>Журналы
->>Домоводство (журналы)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот номер спецвыпуска посвящен самой трогательной для любого дачника теме - весенним цветам. Какие растения первыми встречают нас в саду? Как за ними ухаживать? Как спланировать цветник, который будет радовать с весны до осени? Предлагаем вашему вниманию мнения ведущих специалистов в данной области.2012Формат: PDF
+Миллиардер в Монако устал от капризов собственных детей и решает преподать им урок. Он объявляет, что стал банкротом. Теперь избалованным отпрыскам придётся делать то, что они никогда не делали: пойти работать, научиться любить и ценить жизнь.Производство: Франция / Borsalino Productions, TF1 Studio, Apollo FilmsЖанр: КомедияРежиссер: Николя КюшАктеры: Жерар Жюньо, Камиль Лу, Артюс, Лука Мелиава, Франсуа Морель, Том Либ, Элеа Клер, Франк Адриен, Жоффрей Вебрюгген, Фабьен Ара, Колетт Крафф, Жан-Батист Сагори, Эмили Ашкенсау, Виктор Сансано, Эрик Марсель, Виктор СансанПеревод: Дублированный (iTunes)Язык озвучки: Русский, французскийСубтитры: Русские (forced, full), английские, французскиеПродолжительность: 01:36:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7E54FBC332FEDD5CDD1BB6B1CB5E38145E72ED2
+magnet:?xt=urn:btih:6C90CC5D727CA03FBF30B666184EB439B7579ABF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,28 +422,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525626   (129164) от 21.01.2022
+###  Публикация: 1436348   (137069) от 31.12.2020
 
-King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Векторный клипарт - New Year and Christmas illustrations in vector 45 [AI, EPS]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Black Hot Soup (DJ Shadow “My Own Reality” Re-Write)  (03:36)
-02 - Shanghai (The Scientist Dub)  (04:00)
-03 - Shanghai (Deaton Chris Anthony Remix)  (03:32)
-04 - Dreams (Yu Su Instrumental Mix)  (05:14)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:54:23
+Векторный клипарт для дизайна.
+Новый год и рождество
+10 AI, EPS + previewФормат: AI, EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AF834F58A9C629F6D1988811957F386A17D8229
+magnet:?xt=urn:btih:A07360CACD34C20FA13EE82C53AB24DCAB8D8354
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -724,28 +450,238 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525414   (129162) от 21.01.2022
+###  Публикация: 1349188   (137068) от 31.12.2019
 
-VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal>
+Малефисента: Владычица тьмы / Maleficent: Mistress of Evil (2019) WEB-DL [H.264/1080p-LQ]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>След.
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта музыка для тех. кто максимально отрешиться от проблем и уйти в себя, или познать что-то новое и расширить границы зоны комфорта. Для многих людей лучшим способом провести это время становится путешествие и не важно большое или маленькое, но обязательно под хорошую музыку.001. DJ D Redd - Sloppy Top
-002. Plasma2097 - Wayne Train
-003. Goncalo M - Operation Friction
-004. Makaja Gonzales - Silver Bullet(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 09:13:14
+Действие происходит через несколько лет после того, как Малефисента наложила злые чары на принцессу Аврору. Фильм рассказывает про сложную взаимосвязь между тёмной феей и будущей королевой, о новых союзниках и противниках в деле защиты волшебного леса и магических существах, которые в нем обитают.Производство: США, Великобритания, Невафильм, Roth Films, Walt Disney PicturesЖанр: Фэнтези, Приключения, СемейныйРежиссер: Хоаким РоннингАктеры: Анджелина Джоли, Элль Фэннинг, Харрис Дикинсон, Мишель Пфайффер, Сэм Райли, Чиветел Эджиофор, Эд Скрейн, Роберт Линдсей, Дэвид Гяси, Дженн МюррэйПеревод: Дублированный (iTunes)Язык озвучки: Русский, Казахский, АнглийскийСубтитры: Русские (Full, SDH), Казахские (Forced), Английские (Full)Продолжительность: 01:58:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:065B4C3CD76B5A9C40BB99D449552BDB4BC0C803
+magnet:?xt=urn:btih:7EC21B0D9A509624CFC0CD084B10097B21891D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436349   (137067) от 31.12.2020
+
+Векторный клипарт - Shutterstock - New Year and Christmas illustrations in vector 46 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год и рождество
+10 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4042554C83CD0E2EC0AE17D4D05E22E6BE5B9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518074   (137066) от 31.12.2021
+
+Trash Sailors (2021) [Ru/Multi] (1.1.9) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trash Sailors это приключения мультяшных пиратов для 1-4 игроков. Сколоти свой мусорный плот, сражайся с монстрами и бросай друзей за борт. Гигантский мусорный цунами затопил весь мир. К счастью, есть и хорошие новости: теперь вокруг плавает полно бесплатного мусора. Мусор - главный ресурс в этом новом мире. Перерабатывайте его в топливо и стройматериалы, а если (   Читать дальше...   )Тип издания: LicenseРазработчик: fluckyMachineЖанр: Экшн, Open WorldЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF447797236711883DE336117FB5659C6DD36DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678777   (137065) от 25.11.2023
+
+В столичных больницах появились роботы-помощники — робокошки
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_137065.jpg" />
+</div>
+
+
+###  Подробнее
+
+В больницах в Москве начали тестировать роботизированных помощников. Об этом рассказывается на официальном портале мэра и правительства Москвы. Роботы-курьеры начали помогать врачам и пациентам в пилотном режиме в трех столичных больницах. За внешний вид с кошачьими ушами и глазами их называют робокошками.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338813   (137064) от 31.12.2019
+
+Мандалорец / The Mandalorian (2019) UHD WEB-DL [H.265/2160p-LQ] [4K, HDR, 10-bit] (сезон 1, серии 1-8 из 8) AMS [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Кайл Пацек, Брендан Уэйн, Тейт Флетчер, Бернард Баллен, Александра Гилман, Ник Нолти, Карл Уэзерс и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: английскиеПродолжительность: ~00:35:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A2FE83EF735BD4EEA3DE1AFE415BBEBFFECE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436406   (137063) от 31.12.2020
+
+Растровый клипарт - Car repair shop, tire fitting stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автосервис, шиномонтаж, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4667x7000-7000x4667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8B8C2B65612DA930DB5ED9D91BFD65C24DBDCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521148   (137062) от 31.12.2021
+
+Тихий омут / Stillwater (2021) BDRip [H.264/1080p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец едет из Оклахомы во Францию, чтобы помочь своей дочери, которая была арестована за убийство.Производство: США / 3dot productions, Amblin Partners, Anonymous ContentЖанр: Триллер, драма, криминалРежиссер: Том МакКартиАктеры: Мэтт Дэймон, Камилль Коттен, Эбигейл Бреслин, Lilou Siauvaud, Дианна Данаган, Идир Азугли, Анн Ле Ни, Мусса Мааскри, Изабель Танакил, Нэйдра АйадиПеревод: Дублированный (iTunes)Субтитры: Русские, английские (Full, SDH)Продолжительность: 02:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE031A355BEE7E8FAA16BE1D9A82751AAE4C18D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338741   (137061) от 31.12.2019
+
+Мандалорец / The Mandalorian (2019) WEB-DLRip (сезон 1, серии 1-8 из 8) Lostfilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm, Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Кайл Пацек, Брендан Уэйн, Тейт Флетчер, Бернард Баллен, Александра Гилман, Ник Нолти, Карл Уэзерс и др.Перевод: Многоголосый закадровый, профессиональный - LostfilmСубтитры: русские (forced) - серии с 1 по 3, английские - отдельноПродолжительность: ~00:38:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319EB83088F66A5D94BBF9F7E754CA7F02C1B576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436385   (137060) от 31.12.2020
+
+Чёрный детектив / Serie Noire (2014) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-12 из 12) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героем "Чёрного детектива", стиля, ставшего особенно популярным после второй мировой войны, редко бывает некий гениальный следователь. Чаще всего это обычный человек, попавший в необычную ситуацию. Поэтому многие считают, что написать произведение в стиле "чёрного детектива" совершенно несложно.
+
+Именно эту ошибку совершили два начинающих сценариста, (   Читать дальше...   )Производство: Канада / Productions CasablancaЖанр: драма, комедия, криминалРежиссер: Жан-Франсуа РиварАктеры: Франсуа Летурно, Винсан-Гийом Отис, Эдит Кокрейн, Марк Бопре, Bernard Derome, Анн-Элизабет Боссе, Charlie Laplante, Луиз Бомбардье, Ги Надон, Хьюго Дюбэ и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские, английские, французские (full, SDH)Продолжительность: ~00:45:00 серияРеклама: Присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9504D686FC0EE4592FAE133E074769419D82882C
 ```
 
 https://mybot314.ru/tekegram_catalog/

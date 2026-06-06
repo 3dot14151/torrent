@@ -1,3 +1,55 @@
+###  Публикация: 358008   (585895) от 02.07.2011
+
+Ани Лорак - Спроси (2011) HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клип Ани Лорак на песню «Спроси» сняли ещё прошлой осенью, но певица хотела презентовать его только в конце этого лета.После «утечки» Ани Лорак пришлось изменить планы и презентовать видео уже сейчас. Премьера, безусловно, порадовала её поклонников, но это вовсе не оправдывает поступок горе-хакера. Итак, смотрим новый клип Ани Лорак!Жанр: ПопРежиссер: Марина БорщевскаяАктеры: Ани ЛоракПеревод: ОтсутствуетПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B722ABF9396C6CAD6783DC7243EC07EECB97AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359778   (580788) от 07.07.2011
+
+Линкин парк / Linkin Park - What I've Done (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный клип хотелось не много улучшить, так как в клипах linkin park - what ive done, которые мне попадались в сети,  видео шло рывками, дабы исправить подобную оплошность я попробовал удвоить количество fps, по-моему получилось не плохо.Жанр: МузыкаРежиссер: Warner Bros. RecordsАктеры: группа ЛинкинаПеревод: ОтсутствуетПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0176683F59067692C8BEA5F479C2E17AB3E580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302754   (579075) от 17.05.2019
 
 Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
@@ -665,64 +717,6 @@ Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D552E5DA267DB785BAE8C7A6D36FD80A2119E9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818488   (539475) от 04.09.2014
-
-Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.I. & Lil Wayne - Wit Me
-02. Ciara Feat. Nicki Minaj - I'm Out
-03. Tinie Tempah Feat. 2 Chainz - Trampoline
-04. Jay Sean Feat. Rick Ross - Mars(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FC65D9F6E97D52CE52949A38E90E600412E1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818371   (539467) от 04.09.2014
-
-Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicki Minaj - Pound The Alarm
-02. Timbaland Feat. Ne-Yo - Hands In The Air
-03. Tulisa - Young
-04. Alexandra Burke - Let It Go(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45ACA999CED0157B17C1D13A94344CACC2A4800E
 ```
 
 https://mybot314.ru/tekegram_catalog/

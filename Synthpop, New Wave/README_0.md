@@ -1,3 +1,61 @@
+###  Публикация: 1461180   (1021933) от 09.04.2021
+
+W O L F C L U B (Wolfclub) - 6 Albums (2017-2021) [MP3|320 Kbps] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strangers Forever (feat. Kieran Scragg) (3:32)
+02. Driving Through the Night to You (feat. Indigo) (2:40)
+03. Nightwave (feat. Indigo) (3:15)
+04. Never Stop (feat. Indigo) (3:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 03:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996F3580801507344EF6425444A8265B04C80560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463807   (1020142) от 20.04.2021
+
+Electric Dark Souls - Planet 0712 (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Line (5:53)
+02. SOS from Planet 0712 (5:34)
+03. Zero Gravity (Pt.1) (0:59)
+04. Space Rangers (4:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectropopПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412C4BED5FAB38D5486197064CA11238E895694C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463811   (1020134) от 20.04.2021
 
 Electric Dark Souls - Heroes (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
@@ -693,64 +751,6 @@ Depeche Mode - Ultra (The 12 Singles) (2021) Remastered [MP3|320 Kbps] <Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D549B079C6DF1FA88E21C1F64286491884F4F564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107892   (864642) от 24.02.2017
-
-Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Manual 04:05
-02. Reader 04:05
-03. We Were Young 03:57
-04. Sun Flares 04:33(   Читать дальше...   )Жанр: Electropop, Synthwave, DreamwaveПродолжительность: 00:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376108   (862042) от 16.04.2020
-
-Pet Shop Boys - I Don't Wanna (2020) EP [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862042.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I don't wanna (radio edit) [3:20]
- 2. New boy [4:11]
- 3. I don't wanna (Mano Le Tough remix) [7:25]
- 4. I don't wanna (David Jackson remix one) [6:19](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21A5AC5F71D63F6A3E8C010FC5B6C84478CB373
 ```
 
 https://mybot314.ru/tekegram_catalog/

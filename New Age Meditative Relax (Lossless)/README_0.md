@@ -1,3 +1,32 @@
+###  Публикация: 1458607   (1023679) от 30.03.2021
+
+Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Cardall - A Blue Baby (2:51)
+02. Paul Cardall - Moths & Butterflies (5:03)
+03. Paul Cardall, Thompson Square - The Man with Half a Heart (4:19)
+04. Paul Cardall - Family (2:15)(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4E4477A05437B1C689DA6540F103C61FA138A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461373   (1021789) от 10.04.2021
 
 Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
@@ -716,35 +745,6 @@ Karunesh - Sounds of the Heart (1987) [FLAC|Lossless|tracks + .cue] <New Age, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:448EBD6B4E57E1565F2EA68C9D0F16E27DED2E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740114   (1000958) от 14.01.2020
-
-Era & Arielle Dombasle - Arielle Dombasle By Era (2013) /Special Edition/ [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria (Inspired By The Ave Maria / Gonoud) (4:02)
-02. Cold Song (From 'Cold Genius' King Arthur Opera) (3:29)
-03. Adagio For Strings (Era Version / Edit Agnus Dei) (3:57)
-04. Sins (From 'Miserere') (3:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73FAF98A4569F40464EFFD3FFA0FC0D195C90ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 977715   (965487) от 21.01.2016
+
+F.R. David - Greatest Hits (1991) [APE|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Words
+02	Music
+03	Rocker Blues
+04	Long Distance Flight(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34B4E62A22C56DC01E6FC6C38F1F95F7CC32C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359374   (963093) от 13.02.2020
+
+VA - Disco Disco Disco (1989) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buckbeats - Daydream (6:21)
+02. Den Harrow - Don't Break My Heart (8:26)
+03. Rouge - Loving Me Totally (5:23)
+04. Buckbeats - Dancing Through The Night (3:53)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C18AA5A497C796718F7D595921D7C2929B6282D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089792   (950636) от 04.01.2017
 
 JohnnyM5 - Fantasy Of Love (2008) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
@@ -695,64 +753,6 @@ VA - Disco Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BC8A840E002B52A16E22ADA2A885E8B25A25177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098305   (908392) от 30.01.2017
-
-Ken Laszlo - The Best Of (1994) [APE|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight (Original Edit) [3:57]
-02. Hey Hey Guy (Original Long Edit) [7:33]
-03. Glasses Man [4:19]
-04. Baby Call Me (Mix Edit) [7:28](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD1A9C9724A5795F30246C65773AF47CAEEAFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099220   (904871) от 01.02.2017
-
-Dead Or Alive - That's The Way I Like It: The Best Of Dead Or Alive (2010) Compilation [FLAC|Lossless|image + .cue] <Hi NRG, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  You Spin Me Round (Like A Record)  (03:16) 
-02|  That's The Way I Like It  (03:10) 
-03|  Lover Come Back To Me  (03:13) 
-04|  In Too Deep  (03:51) (   Читать дальше...   )Жанр: Hi NRG, Synth-popПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D300E778E2F716DEE346CC393F22FF04791A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

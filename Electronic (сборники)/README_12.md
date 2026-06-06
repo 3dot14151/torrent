@@ -1,3 +1,90 @@
+###  Публикация: 1480933   (1008603) от 01.07.2021
+
+VA - Beach Vibe: Deep House Summertime Sessions (2021) [MP3|320 Kbps] <Deep House, Dance, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008603.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nae-tek, Deeperwalk - Back Home
+002. Beat Rivals feat. Lifford - Stay In The Groove
+003. Dse - Horisontti
+004. Thugfucker - Bodyshaker(   Читать дальше...   )Жанр: Deep House, Dance, EDMПродолжительность: 11:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B24AF1473B372DC847923AA50F3825A2E90BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481078   (1008483) от 02.07.2021
+
+VA - Beatport Electro House: Sound Pack #309 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008483.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Exon Bacon - Sunny Days
+002. The Golden Boys - Afrobeat
+003. Eins Tiefer - Photon
+004. Fred Everything - True(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1019DAE98BA3D43409E9D3B6DEEBE13B2D8BCB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481083   (1008467) от 02.07.2021
+
+VA - Beatport Deep House: Sound Pack #310 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008467.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nopi - Coral Soul
+002. The Official Bug - Soul Food
+003. Phonika - Abandoned By Mercy
+004. Hernan Cerbello - Roasted(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4728FAB8C423B0D3440934049AD44C77CB81AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481302   (1008345) от 03.07.2021
 
 VA - Beatport Drum And Bass: Sound Pack #311 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
@@ -658,93 +745,6 @@ VA - Fantasmatic: Synthwave MPM (2021) [MP3|320 Kbps] <Synthwave, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B17EA12224B40FAF46BE80E0B745895953A479A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486931   (1004374) от 02.08.2021
-
-VA - Hard Dance Clubbing: Hardstyle Megaset (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro Clubbing Core>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004374.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Psiko & Hysta - Lockdown
-002. Teka B & G-Fresh - The Darkness
-003. Paulie - Pointing Fingers
-004. John Bounce - Tell Me(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, Electro Clubbing CoreПродолжительность: 08:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF64E4C0FDB8ADCB570A5F11F27B73CD2011387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486940   (1004371) от 02.08.2021
-
-VA - Tech Athletics Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Terriers - Octagon
-002. H! Dude - Doesn't Matter
-003. Bryan Chapman - Journey Of Conarium
-004. Mvi - 33 Knots(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 10:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3BA6F41B077AB1C421FB0D0C45F161F022EC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486932   (1004369) от 02.08.2021
-
-VA - Hardstyle Fitness Collection (2021) [MP3|320 Kbps] <Hardstyle, hard dance, electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B-Front - Thank God For Music
-002. Frequencerz - Perfect Unity
-003. Fracus & Hartshorn - Ready For Love
-004. Ophidian - The Middle Children(   Читать дальше...   )Жанр: Hardstyle, hard dance, electroПродолжительность: 09:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542A0FE96493B393476C0B323C99F1DF556BA627
 ```
 
 https://mybot314.ru/tekegram_catalog/

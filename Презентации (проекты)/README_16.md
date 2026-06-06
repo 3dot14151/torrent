@@ -1,3 +1,57 @@
+###  Публикация: 1010163   (805672) от 23.04.2016
+
+Проекты - VideoHive - Energy Wipes [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86463A401606DCF86C26D9E3D66E27925C8FDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010162   (805574) от 23.04.2016
+
+Проекты - VideoBlocks - Black Intro [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо ролика.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18601A8934439ED0239144FECC18A212161CC479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010141   (805475) от 23.04.2016
 
 Проекты - VideoHive - Great Empire Opener [AEP]
@@ -618,58 +672,6 @@ Elastic Opener Typography - Проект для создания динамич�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F49A8AB3679239CCC830EE058A7D2E67DB479B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011131   (797467) от 26.04.2016
-
-Проекты - VideoHive - Business Force [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Business Force - это потрясающий проект для создания корпоративного промо-видео ролика и бизнес-презентации компании.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE2A0FA642C17FA0CFBAB95B676E8D290DC7C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011070   (797406) от 26.04.2016
-
-Проекты - VideoHive - Corporate Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания корпоративного промо-видео, веб-сайта, бизнеса, профильной компании, фирмы, демо-версии продукта и многое другое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89B2D7F4C9A07727FF39EBE3807E35D4AAE2853
 ```
 
 https://mybot314.ru/tekegram_catalog/

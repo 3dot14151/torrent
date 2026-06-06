@@ -1,25 +1,294 @@
-###  Публикация: 1761635   (36578) от 21.11.2024
+###  Публикация: 1750069   (43172) от 18.09.2024
 
-VA - In ecstasy from metal (2024) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
+Василиск / Basilisk: Kouga Ninpou Chou (2005)  [H.265/2160p] [4K, SDR, 10-bit] BDRip (1-24 серии из 24) Mega-Anime [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два клана ниндзя Ига и Кога издревле враждовали друг с другом. И сверкали мечи, и лилась реками кровь до тех пор, пока на пути древней вражды не встал местный лорд Хаттори Ханзо. И тогда были связаны два клана договором, запрещающим вражду. Время шло, вековая лютая ненависть хоть и поугасла немного, все равно продолжала тлеть в сердцах непримиримых, когда встали (   Читать дальше...   )Производство: Япония / GonzoЖанр: аниме, мультфильм, драма, фэнтезиРежиссер: Такахаси ОкадзакиАктеры: Нана Мидзуки, Косукэ Ториуми, Ясуси Миябаяси, Сё Хаями, Миса Ватанабэ, Хатано Ватару, Риса Хаямидзу, Ёдзи Уэда, Миюки Савасиро, Кэн УоПеревод: Многоголосый профессиональный (Mega-Anime)Язык озвучки: Русский, ЯпонскийСубтитры: русские, английскиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1028B754D8C8E8879E01A95635FAE686E9C76226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750114   (43171) от 18.09.2024
+
+Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack FitGirl [Digital Deluxe Bundle]
+
+>>Win Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стремительный космический шутер для одного игрока с открытым миром, множеством добычи и элементами классической ролевой игры. Вас ждёт захватывающая история, действие которой происходит в мире, полном тайн, опасностей и незабываемых приключений. Во время прохождения сюжетной кампании Вы заведёте новых друзей. Они помогут Вам с выполнением заданий и окажут поддержку (   Читать дальше...   )Тип издания: RepackРазработчик: Rockfish GamesЖанр: Action, RPG, Simulator, Flight, SpaceЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFC4EAF2C3E196373DE55FBEDF15799ED273220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750109   (43170) от 18.09.2024
+
+Критик / The Critic (2023) TS [H.264/1080p] [MVO] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1934 год. В одном из пятизвёздочных отелей встречаются актриса Нина Лэнд и театральный критик Джимми Эрскин. Параллельно в городе орудует маньяк, жертвами которого могут стать они оба.Производство: Великобритания, США / BKStudios, Culmination Productions, Fearless MindsЖанр: триллер, драма, криминал, детективРежиссер: Ананд ТакерАктеры: Джемма Артертон, Бен Барнс, Иэн Маккеллен, Марк Стронг, Лесли Мэнвилл, Ромола Гарай, Альфред Энок, Клер Скиннер, Бо Гадсдон, Ребекка ГетингсПеревод: Многоголосый любительский (КОЛОБОК)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:34Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750107   (43169) от 18.09.2024
+
+Сеанс в 16:30 / The 4:30 Movie (2024) TS [H.264/1080p] [MVO] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое подростков в 1986 году отправляются на сеанс в местный кинотеатр и перебираются из зала в зал на разные картины.Производство: США / Three Point Capital (TPC), View Askew ProductionsЖанр: комедияРежиссер: Кевин СмитАктеры: Дженезис Родригес, Джейсон Ли, Джастин Лонг, Дидрих Бадер, Кейт Микуччи, Адам Палли, Кен Жонг, Сэм Ричардсон, Рэйчел Дрэч, Харли Куинн СмитПеревод: Многоголосый любительский (КОЛОБОК)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:15Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750101   (43168) от 18.09.2024
+
+Часы приёма / La prisonniere de Bordeaux / Visiting Hours (2024) TS [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43168.jpg" />
+</div>
+
+
+###  Подробнее
+
+У жен двух заключенных, отбывающих наказание в одной и той же тюрьме, возникает удивительное родство.Производство: Франция / Rectangle Productions, Picseyes, Arte France CinémaЖанр: драмаРежиссер: Patricia MazuyАктеры: Isabelle Huppert, Hafsia Herzi, Noor Elasri, Jean Guerre Souye, William Edimo, Magne-Håvard Brekke, Lionel Dray, Jana Bittnerová, Lamya Bouladiz, Céline ChlebowskyПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:32Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EBAB0F0B168B97A8E2165929A04BACE00DEF4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750102   (43167) от 18.09.2024
+
+Часы приёма / La prisonniere de Bordeaux / Visiting Hours (2024) TS [MVO] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43167.jpg" />
+</div>
+
+
+###  Подробнее
+
+У жен двух заключенных, отбывающих наказание в одной и той же тюрьме, возникает удивительное родство.Производство: Франция / Rectangle Productions, Picseyes, Arte France CinémaЖанр: драмаРежиссер: Patricia MazuyАктеры: Isabelle Huppert, Hafsia Herzi, Noor Elasri, Jean Guerre Souye, William Edimo, Magne-Håvard Brekke, Lionel Dray, Jana Bittnerová, Lamya Bouladiz, Céline ChlebowskyПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:32Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF3169273BDDEC54D822FFF13457E4199531FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750081   (43166) от 18.09.2024
+
+Schwarz & Funk - The Terrace Sessions, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Floating (Beach House Mix Extended Version) (feat. Melon Monkey Club)
+02. Deep Talk (Extended Version) (feat. Melon Monkey Club)
+03. Flying High (Deep House Mix) (feat. Melon Monkey Club)
+04. Lonely Waves (Extended Mix) (feat. Melon Monkey Club)(   Читать дальше...   )Жанр: Lounge, Chill HouseПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEAE6F7776BFF035E75707196C67D56EBE3FBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750137   (43165) от 18.09.2024
+
+Michael Schenker Group - My Years with UFO (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural Thing (3:58)
+02. Only You Can Rock Me (4:03)
+03. Doctor Doctor (4:33)
+04. Mother Mary (4:00)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF5778A7A3539B40873DC3C7CCC68F1F0CDEB11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749905   (43164) от 18.09.2024
+
+The Cure - Happy The Man (1984) [MP3|320 Kbps] <New Wave, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shake Dog Shake [00:04:38]
+02 - Piggy In The Mirror [00:03:28]
+03 - Wailing Wall [00:05:33]
+04 - M [00:04:01](   Читать дальше...   )Жанр: New Wave, Post-PunkПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1C0F6A7DECE3D046BEBBEDD4F21683C2626F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750186   (43163) от 18.09.2024
+
+Бьянка / Bianca (1983) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микеле Аричелла — молодой учитель математики. У него имеется большое количество комплексов и маний. Он следит за своими соседями и составляет на каждого из них досье, записывая их слова и поступки. Когда одного из соседей убивают, поведение Микеле привлекает внимание инспектора полиции. Позже Микеле Аричелла влюбляется в коллегу Бьянку, но не может продемонстрировать (   Читать дальше...   )Производство: Италия / Faso Film S.r.l.б ReteitaliaЖанр: драма, комедияРежиссер: Нанни МореттиАктеры: Нанни Моретти, Лаура Моранте, Роберто Веццози, Ремо Ремотти, Клаудио Бигальи, Энрика Мария Модуньо, Винченцо Салемме, Маргерита СеститоПеревод: любительский одноголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английские, французскиеПродолжительность: 01:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8465E3368C7D39AFF2630075DFC3DB14C7F0D2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750146   (43162) от 18.09.2024
+
+VA - TOP Non-Stop 2000-2009 - Deep House. Part 4 (2024) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
 
 >>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Accept - Humanoid [04:35]
-002. Metallica - 72 Seasons [07:39]
-003. BABYMETAL, Tom Morello - METALI!! (feat. Tom Morello) [03:29]
-004. Megadeth - We’ll Be Back [04:30](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 11:57:59
+01. The Cooccer - Sunshine (Terry Lee Brown Jr. remix, 2008) (6:05)
+02. The Cooccer - The Trip (2006) (6:01)
+03. The Timewriter - Blue Sky (2005) (4:44)
+04. Reel People - Reeltime (Dave Warrin dub, edit - accelerated, 2001) (5:51)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 08:43:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAB02427F24F99DB6987E30AD7D78C01167EE33F
+magnet:?xt=urn:btih:B562F39B428C006EF60FAD8CC9AD6993413AE00C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +296,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761521   (36577) от 21.11.2024
+###  Публикация: 1750098   (43161) от 18.09.2024
 
-Enigma - The Screen Behind the Mirror (2000) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+Анна Орлова | Главная книга владельца кошки (2024) [MP3, Лилия Власова]
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Gate (2:04)
-02. Push the Limits (6:27)
-03. Gravity of Love (3:59)
-04. Smell of Desire (4:57)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:25
+От выбора котенка до знаменитых кошачьих «тыгыдыков» – перед вами идеальный путеводитель по миру кошачьих забот!
+Аудиокнига будет полезна как для опытных кошковладельцев, так и для тех, кто только связал свою жизнь с пушистым другом!
+О кошках ходит много мифов, и самостоятельно разобраться в том, какие из них правда, а какие – нет, невероятно сложно. В этой книге (   Читать дальше...   )Жанр: Домашние животныеИздательство: АСТПродолжительность: 12:16:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31E90A1AA72E1B72BE654EF08F25843C8335AB01
+magnet:?xt=urn:btih:42932B1FD810244FB235CCA0CE222E0D2AEB5CDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,144 +324,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761596   (36576) от 21.11.2024
+###  Публикация: 1750116   (43160) от 18.09.2024
 
-Straviado - Weird (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trapped (3:49)
-02. Go Back (4:23)
-03. I'm drowning in... (4:30)
-04. The suicide of adolescence (3:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756F431B200D8CA7B1A854749BC8EB848C56B962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761712   (36575) от 21.11.2024
-
-Ludivine issambourg - Above the Laws (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bear (3:27)
-02. New Morning (3:22)
-03. Kickin' Your Ass (2:51)
-04. Manoir (3:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F142008A55DC9B067E2BC0B3AF41B5E779353500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761580   (36574) от 21.11.2024
-
-Maxwell - Embrya (1988) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Neo Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gestation: Mythos (7:32)
-02. Everwanting: To Want You to Want (6:33)
-03. I'm You: You Are Me and We Are You (Pt Me & You) (5:32)
-04. Luxury: Cococure (5:41)(   Читать дальше...   )Жанр: Funk, Soul, Neo SoulПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1588A2F7061DD170EC0FE485D53EF4A95E5B3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761603   (36573) от 21.11.2024
-
-As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36573.jpg" />
-</div>
-
-
-###  Подробнее
-
-As the Sun Falls - мелодик-дэт-метал группа, основанная в 2020 году.2020 - Memoriam (EP)
-2021 - Last Days of Light
-2022 - Far Beyond (EP)
-2024 - Kaamos(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 02:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9CAB9777C8B626EF70F75B8CD3000A359DE0CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761659   (36572) от 21.11.2024
-
-HI-LO & Space 92 - Mixmag Crane Sessions, Amsterdam Dance Event, Netherlands (2023-10-19) [MP3|320 Kbps] <Techno>
+VA - Sahara Beats (The Hottest Arab Music from the Hottest Desert) (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. HI-LO & Space 92 vs. The Prodigy - Genesis vs. Smack My Bitch Up (HI-LO Mashup)
-02. NG Rezonance & Jason Nawty - Madame (Space 92 Edit) w/Daft Punk - Technologic (Space 92 Edit)
-03. Creeds vs. Peggy Gou vs. HI-LO & Space 92 - Push Up vs. (It Goes Like) Nanana vs. Mercury (Oliver Heldens Mashup)
-04. HI-LO & Space 92 - ORION(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:27:16
+01. Rachid El Esseily - Camel Shoes (4:38)
+02. Davide Angiuli - Desert of Love (Extended Mix) (6:06)
+03. Ajram Al Jawad - Arab Toy (4:38)
+04. Nouri Fateh - Aah-W-Noss (6:30)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:39:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DB4F1D322E1873C554B3878C26456A090AB71A5
+magnet:?xt=urn:btih:391E3CA496D50BD1AC9B95A87134DF391DBD0088
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,26 +353,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761653   (36571) от 21.11.2024
+###  Публикация: 1750220   (43159) от 18.09.2024
 
-Анни Шмидт | Мурли (2011) [MP3, Ирина Воробьева]
+Выбор сердца (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Новые сказочные повести.
-Действие книги происходит в небольшом голландском городке. Кошка по имени Мурли по воле случая превращается в девушку. Она ничем не отличается от других людей, но при этом по-прежнему понимает язык кошек и удивляет сограждан своими необычными поступками, потому что в душе остаётся кошкой. Мурли постоянно попадает в курьёзные и (   Читать дальше...   )Жанр: Зарубежная литература для детей, повесть-сказкаПеревод: Екатерина ЛюбароваИздательство: Нигде не купишьПродолжительность: 04:09:08
+Катя Соколова – реаниматолог в больнице. Впереди у нее долгожданная свадьба и рождение ребенка. Но однажды ее будущее оказывается под угрозой из-за несчастного случая. Возвращаясь домой, Катя вступается за девушку, которую избивает мужчина, и сама оказывается травмирована. Она теряет ребенка, жених отменяет свадьбу и уходит. Катя подает заявление в полицию, но дело (   Читать дальше...   )Производство: Россия | «G.P. Cinema»Жанр: МелодрамаРежиссер: Павел СнисаренкоАктеры: Евгения Вайс, Виктор Михайлов, Данила Краснов, Дарья Отрошко, Татьяна Бовкалова, Сергей Широчин, Андрей Сенькин, Михаил Свито, Наталья ЖуравскаяПродолжительность: ~00:51:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCB9D679A215BC9979E72232F7A6FBCD880533EF
+magnet:?xt=urn:btih:3B996B07738BD0C2365D1CE84E6BF0334A57464B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,28 +379,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761593   (36570) от 21.11.2024
+###  Публикация: 1750149   (43158) от 18.09.2024
 
-Alexander Aruca - October Wind (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
+Heavyocity - Punish 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Breaking Free (3:20)
-02. Somebody Just Like You (3:39)
-03. Deception for All (3:40)
-04. If You Remember (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:14
+От едва заметной теплоты до экстремального драйва и компрессии, плагин мультиэффект PUNISH от Heavyocity привносит характер и остроту в любой микс или инструментальный трек. Это тот же PUNISH, который вы знаете и любите, просто больше и лучше.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82B7B4910A2DBF036FB9F44B504CAA4FCCEB83C7
+magnet:?xt=urn:btih:45673C71CE96FDAE89FD419969FFE2AA41E6C8CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,28 +405,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761610   (36569) от 21.11.2024
+###  Публикация: 1750148   (43157) от 18.09.2024
 
-Emmy Meli - Hello Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+IK Multimedia - T-RackS 6 MAX 6.0.1 STANDALONE, VST 3, AAX (x64) [En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Emmy Meli - Hello Stranger (0:35)
-02. Emmy Meli - Silence (2:15)
-03. Emmy Meli - Breakthrough (2:37)
-04. Emmy Meli - Happy Ending (2:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:49
+T-RackS 6 - это новейшее поколение известного программного обеспечения для микширования и мастеринга от IK. Благодаря новым инновационным модулям, улучшенным возможностям, более быстрому рабочему процессу и более простой организации, T-RackS 6 отличается легендарным качеством звука, скоростью и простотой использования, предлагая все необходимое музыкантам, продюсерам (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4289BAF7FC4F232BA47F6F45171C15BCB1202631
+magnet:?xt=urn:btih:7C814FBABD7344173D520ED6A09CD294FAF9DAB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,28 +431,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761677   (36568) от 21.11.2024
+###  Публикация: 1750151   (43156) от 18.09.2024
 
-Space 92 - Live @ Drumcode, Awakenings, Gashouder, ADE, Netherlands (2024-10-17) [MP3|320 Kbps] <Techno>
+VA - Ibiza Autumn 2024 (2024) Chill Out Cookies From The Heart [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Space 92 - Robot
-02. Jose Bonetto - Within
-03. Layton Giordani - New Generation (Space 92 Remix)
-04. TimiR & Franco Smith - Nasty(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:15:16
+01. Living Room - Amber (2:25)
+02. Ajuna - Miracle (Anderson Doyle Remix) (4:49)
+03. Calmabohain - Silent Ocean (Balearic Islands Remix) (3:08)
+04. Faro - Surya (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F3725B69BD73F9CE694520DE58859CF5D00FBB2
+magnet:?xt=urn:btih:4EDDD4B91DE2C965BAF48A876F6B18DC0335DA7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,26 +460,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761650   (36567) от 21.11.2024
+###  Публикация: 1750215   (43155) от 18.09.2024
 
-Анни Шмидт | Лучшие сказки народов мира. Виплала (2006) [MP3, Игорь Костолевский и др.]
+Чуть дыша / Breathless / Respira (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Лучшие сказки народов мира.
-Вы заскучали? В Вашей жизни ровным счетом ничего не происходит? А представьте, что однажды у Вас дома появится маленький человечек – добрый волшебник Виплала. Он мастер разгонять скуку! Забавные превращения, чудеса и невероятные приключения, от которых захватывает дух, перевернут всю Вашу жизнь. Сборник сказок о маленьком волшебнике (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Два Жирафа, Мост-ВПродолжительность: 01:32:09
+Биль, сотрудник государственной больницы, посвятил несколько месяцев своей жизни тому, чтобы стать врачом. Всеобщая забастовка в знак протеста против сокращения расходов на здравоохранение в Биле, и жители рассматривают возможность поддержать забастовку, которая может иметь фатальные последствия.
+Испанский больничный драматический телесериал, созданный Карлосом Монтеро.Производство: Испания / El Desorden CreaЖанр: драмаРежиссер: Давид Пинильос, Marta Font PascualАктеры: Бланка Суарес, Найва Нимри, Ману Риос, Айтана Санчес-Хихон, Абриль Замора, Альфонсо Бассаве, Борха Луна, Ксоан Форнеас, Marwa Bakhat, Ана Райо и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41915E692D21DAE0FAE0FE2C994D56995B2C95AA
+magnet:?xt=urn:btih:7B7EE2E40D679F7224F3935885602FC0ACF232C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,28 +487,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761605   (36566) от 21.11.2024
+###  Публикация: 1750207   (43154) от 18.09.2024
 
-Widespread Panic - Hailbound Queen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Rock, Alternative Rock, Blues Rock>
+VA - 20 Greatest Cello Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stockholm Chamber Duo - Le Carnaval des Animaux, R. 125 XIII. Le Cygne (2:53)
+02. Victor Yoran - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (1:47)
+03. Victor Yoran - Cello Suite No. 1 in G Major, BWV 1007 II. Allemande (6:51)
+04. Victor Yoran - Cello Suite No. 1 in G Major, BWV 1007 III. Courante (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9702436780AC3F608F502E94026684ECB6C0381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750188   (43153) от 18.09.2024
+
+VA - Kontor Top of the Clubs Vol. 100 (2024) [MP3|~245 Kbps (V0)] <Electronic, Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43153.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: Mixed By Neptunica
+01. Calvin Harris - Feel So Close 03:22
+02. Onerepublic & Alesso - If I Lose Myself 05:04
+03. Neptunica, Shockz & Rebecca Helena - Marble 02:16(   Читать дальше...   )Жанр: Electronic, Dance, Club, HouseПродолжительность: 04:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1532AD9706FB3C86DDFE8C6A03BB5E4218913F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750205   (43152) от 18.09.2024
+
+Бьянка / Bianca (1983) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микеле Аричелла — молодой учитель математики. У него имеется большое количество комплексов и маний. Он следит за своими соседями и составляет на каждого из них досье, записывая их слова и поступки. Когда одного из соседей убивают, поведение Микеле привлекает внимание инспектора полиции. Позже Микеле Аричелла влюбляется в коллегу Бьянку, но не может продемонстрировать (   Читать дальше...   )Производство: Италия / Faso Film S.r.l.б ReteitaliaЖанр: драма, комедияРежиссер: Нанни МореттиАктеры: Нанни Моретти, Лаура Моранте, Роберто Веццози, Ремо Ремотти, Клаудио Бигальи, Энрика Мария Модуньо, Винченцо Салемме, Маргерита СеститоПеревод: любительский одноголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английские, французскиеПродолжительность: 01:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF37D458A694C064A61631CF0EB19449102BBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750108   (43151) от 18.09.2024
+
+Сеанс в 16:30 / The 4:30 Movie (2024) TS [MVO] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое подростков в 1986 году отправляются на сеанс в местный кинотеатр и перебираются из зала в зал на разные картины.Производство: США / Three Point Capital (TPC), View Askew ProductionsЖанр: комедияРежиссер: Кевин СмитАктеры: Дженезис Родригес, Джейсон Ли, Джастин Лонг, Дидрих Бадер, Кейт Микуччи, Адам Палли, Кен Жонг, Сэм Ричардсон, Рэйчел Дрэч, Харли Куинн СмитПеревод: Многоголосый любительский (КОЛОБОК)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:15Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750105   (43150) от 18.09.2024
+
+Спасибо за службу / Pour la France (2022) WEB-DLRip [H.264/1080p] [Line] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время ритуала интеграции в престижном военном училище Сен-Сир 23-летний Айса погибает. В то время, как Армия отказывается признать свою вину в случившемся, Исмаэль, его старший брат, вступает в битву за правду.Производство: Франция / Mizar Films, France 2 Cinéma, Ma StudiosЖанр: драмаРежиссер: Рашид ХамиАктеры: Карим Леклу, Шейн Бумедин, Лубна Азабаль, Самир Гесми, Вивиан Сун, Лоран Лафитт, Эли Аги, Алисия Хава, Слиман Дази, Сухад ТемимиПеревод: Дублированный (Line)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:25Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682D9D2D2EC2231AB51FC7788F88C46DA5F8873E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749898   (43149) от 18.09.2024
+
+Hannah Kerr - As I Am (2024) [FLAC 16,24/44.1.48,96|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. King Baby (7:23)
-02. Blue Carousel (5:47)
-03. Keep Me in Your Heart (4:29)
-04. Trashy (9:35)(   Читать дальше...   )Жанр: Southern Rock, Alternative Rock, Blues RockПродолжительность: 00:34:51
+01. As I Am [00:03:42]
+02. Jesus Is Why [00:02:42]
+03. If I Were You [00:03:20]
+04. Changed [00:03:37](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9B855A24F3307E75E9679A761D6E7F8FED9A940
+magnet:?xt=urn:btih:BF5EB30F7CCE23FCD092811D4C854980F516360E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,287 +652,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761573   (36565) от 21.11.2024
+###  Публикация: 1750169   (43148) от 18.09.2024
 
-Conor Oberst - Conor Oberst (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cape Canaveral (4:04)
-02. Sausalito (3:10)
-03. Get‐Well‐Cards (3:34)
-04. Lenders in the Temple (4:35)(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B40910D3247A9CCB02CD266EF5DD200802A708B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761644   (36564) от 21.11.2024
-
-Wrecked - Sleeping with Knives (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Venom (04:50)
- 02 - Not Today (03:49)
- 03 - Sleeping with Knives (05:24)
- 04 - Bleed (04:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA1702D4DC6EAB925C3FBFD20D0A674BBD4AFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761524   (36563) от 21.11.2024
-
-TRUST X - На краю вечности (2011) [FLAC|Lossless|image + .cue] <Power-metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Погасшее солнце (с участием А.Беркута и А.Смирнова)
-2.Июньский вечер
-3.Up to the Skies
-4.Погасшее солнце (альбомная версия)(   Читать дальше...   )Жанр: Power-metalПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3200B251D88709B68F44E4316291F6F47AF040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761481   (36562) от 21.11.2024
-
-Saturday Night Satan - All Things Black (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5AM [00:03:26]
-02. Rule With Fire [00:04:44]
-03. Devil in Disguise [00:04:29]
-04. All Things Black [00:05:29](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353B08350C3C2D4D3A0558CB3168B8701F555919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761576   (36561) от 21.11.2024
-
-Андрей Липень | Детская оздоровительная йога (2024) [MP3, Анна Муленкова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может быть для нас важнее собственного здоровья? Наверное, только здоровье наших детей.
-Андрей Липень – профессиональный инструктор по йоге с 17-летним стажем. Желая улучшить свое физическое и психическое состояние, люди приходят к нему целыми семьями. Используя древние знания и собственный опыт, Андрей подбирает индивидуальные системы занятий для мужчин, женщин (   Читать дальше...   )Жанр: Лечебная гимнастикаИздательство: ЛитРес: чтецПродолжительность: 05:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311C58537C372311AD9D82100C7B0041905777E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761697   (36560) от 21.11.2024
-
-Xandria - Universal Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Time To Live Forever
-02. Universal
-03. 200 Years (feat. Ally Storch of Subway to Sally)
-04. Live The Tale(   Читать дальше...   )Жанр: Symphonic, Gothic MetalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FF8D9DE12DE34CFF4E478F70B800318F4BF47D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761708   (36559) от 21.11.2024
-
-Black Sheep - A Wolf in Sheep’s Clothing (1991) [FLAC|Lossless|tracks + .cue] <Hip Hop, Boom Bap, Jazzy Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:50)
-02. U Mean I’m Not (1:25)
-03. Butt in the Meantime (4:14)
-04. Have U.N.E. Pull (3:51)(   Читать дальше...   )Жанр: Hip Hop, Boom Bap, Jazzy Hip-HopПродолжительность: 01:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C344AE3F72C1FC515333AAE4128A26A815C103A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761633   (36558) от 21.11.2024
-
-Redbone - Ten songs for you (2024) [MP3|320 Kbps] <Pop Rock, Singer & Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Come and get your love [00:03:25]
-02 - The witch queen of New Orleans [00:02:42]
-03 - Chant 13th hour [00:05:35]
-04 - Clouds in my sunshine [00:03:39](   Читать дальше...   )Жанр: Pop Rock, Singer & SongwriterПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E81646ADB9036C72685D0F39953E11301195FD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761597   (36557) от 21.11.2024
-
-Opeth - The Last Will And Testament (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive death metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. §1 (5:57)
-02. §2 (5:34)
-03. §3 (5:10)
-04. §4 (7:00)(   Читать дальше...   )Жанр: Progressive death metalПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A344E777950F4FF2F5DC945236ED80E1C72893BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761453   (36556) от 21.11.2024
-
-Frank Sinatra - A Voice On Air (1935 – 1955) 4CD, 2015, Legacy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Stan Getz - Compact Jazz: Stan Getz & Friends (1988) Verve [WavPack|Lossless|image + .cue] <Cool, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Haunted Heart [2:53]
-02. Wrap Your Troubles In Dreams (Alternate) [2:46]
-03. I’m Looking Over A Four Leaf Clover [2:20]
-04. Nature Boy (Alternate Orchestral Version) [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 05:18:03
+01. It Don't Mean a Thing (If It Ain't Got That Swing) [6:40]
+02. Con Alma [8:07]
+03. Lover Man [4:40]
+04. Night and Day [6:39](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:00:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8ADDD47F88CFED213A9FAA6E3AD255344FF7FB3
+magnet:?xt=urn:btih:3562125C9B308D68611957D27B43EE5B968FEDE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,80 +681,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761602   (36555) от 21.11.2024
+###  Публикация: 1750129   (43147) от 18.09.2024
 
-The Smoothies - November Night Grooves: Velvet Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
+Earth Lux - Earth Lux (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. November (3:06)
-02. Love in November (3:03)
-03. London Dreams in November (3:02)
-04. Autumn Drive (3:16)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:44:46
+01. Shine On Me (3:50)
+02. Soul Stalker (5:28)
+03. In Your Heart (3:52)
+04. Back Stage Business (4:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A136DC09F4054AA14517BE2DDCAA22D8C9C6AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761543   (36554) от 21.11.2024
-
-Улыбка 2 / Smile 2 (2024) WEBRip [H.264/1080p] [DVO] [AD]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джоэл избавился от проклятья, передав его случайному свидетелю убийства двух наркоторговцев. Несколько дней спустя поп-звезда Скай, которая готовится к возвращению на сцену после годового перерыва, не в силах терпеть боль в спине отправляется к знакомому дилеру. Тот ведёт себя странно, сильно напуган и вдруг, дико улыбаясь, забивает себя до смерти блином от штанги. (   Читать дальше...   )Производство: США, Канада / Paramount Pictures, Paramount Players, Temple Hill EntertainmentЖанр: ужасыРежиссер: Паркер ФиннАктеры: Наоми Скотт, Дилан Гелула, Розмари ДеУитт, Майлс Гутьеррес-Райли, Лукас Гейдж, Питер Джейкобсон, Рэй Николсон, Рауль Кастильо, Кайл Галлнер, Дрю Бэрримор и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:10:00Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761544   (36553) от 21.11.2024
-
-Улыбка 2 / Smile 2 (2024) WEBRip [DVO] [AD]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джоэл избавился от проклятья, передав его случайному свидетелю убийства двух наркоторговцев. Несколько дней спустя поп-звезда Скай, которая готовится к возвращению на сцену после годового перерыва, не в силах терпеть боль в спине отправляется к знакомому дилеру. Тот ведёт себя странно, сильно напуган и вдруг, дико улыбаясь, забивает себя до смерти блином от штанги. (   Читать дальше...   )Производство: США, Канада / Paramount Pictures, Paramount Players, Temple Hill EntertainmentЖанр: ужасыРежиссер: Паркер ФиннАктеры: Наоми Скотт, Дилан Гелула, Розмари ДеУитт, Майлс Гутьеррес-Райли, Лукас Гейдж, Питер Джейкобсон, Рэй Николсон, Рауль Кастильо, Кайл Галлнер, Дрю Бэрримор и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:10:00Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:570E6C59C466A43772BF9B0CEA0A25B33B470456
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1180184   (341747) от 03.11.2017
+
+Проекты - VideoHive - Ink Slideshow - 19740122 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ink Slideshow - проект для создания элегантного слайд-шоу с красивыми и необычными переходами.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C2C3D2B27B960F19BFDD7443EF82E39FBBB360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 839476   (341710) от 09.11.2014
 
 VideoHive - Photo Gallery Smile To Life - 5864231 [AEP]
@@ -661,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB565A61D0604DE83B8B1D32ED0CDE702903BD92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956490   (330100) от 14.11.2015
-
-Проекты - VideoHive - Shiny Shatters [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания портфолио, слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51B34BC88411DE33AAD5BEAB7F06FE5D3208E05
 ```
 
 https://mybot314.ru/tekegram_catalog/

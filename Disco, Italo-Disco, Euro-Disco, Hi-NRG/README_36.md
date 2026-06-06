@@ -1,3 +1,148 @@
+###  Публикация: 1423993   (295917) от 15.11.2020
+
+Salsa Orchestra - Dazzlin Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice 'N' Naasty  (4:31)
+02. Tangerine  (4:32)
+03. Quiet Village  (2:59)
+04. Salsal Rainbow  (3:41)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EE6C5CE7B5163C16D51FBFC9CE7470ECD0BFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334438   (294876) от 29.10.2019
+
+Wolfgang Maus Soundpicture - Children Of The Universe (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Universe (6:14)
+02. Introduction To Mankind (3:00)
+03. Civilisation (3:38)
+04. Schizophrenic World (3:57)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36F99CDF5ADB917C61B8C47250AF347CC614524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079570   (294253) от 04.12.2016
+
+VA - Motown Disco Magic - Too Hot Ta Trot (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diana Ross - What You Gave Me  (3:32)
+02. Commodores - Too Hot Ta Trot  (3:11)
+03. 5th Dimension - You Are The Reason (I Feel Like Dancing)  (2:42)
+04. High Inergy - Love Is All You Need  (2:58)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8B65F10DAF3B7A24F812F97F5CF057E567C9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079673   (294184) от 04.12.2016
+
+Erotic Drum Band - The Collection (2006) 2xCD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Erotic Drum Band - Канадский студийный проект от известного диско-продюсера, композитора, аранжировщика и  мультиинструменталиста Питера Ди Майло (Peter Di Milo). В данное переиздание вошли все 3 альбома (1978-1980) и несколько синглов.01. Love Disco Style  (13:58)
+02. Plug Me To Death  (7:17)
+03. Action 78 (Edited Version)  (7:30)
+04. Jerky Rhythm  (9:13)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB1FD34C44A78E763B9E262705EA6986BE5EE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079462   (294147) от 04.12.2016
+
+VA - Italian Style Everlasting Italo Dance Compilation Vol.5 (2016) [MP3|320 Kbps] <Hi-NRG, Italo Disco, Post-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casarano - Fairy Tale (In My Heart) (feat. Elise Dean) (BCR Full Summer Reggae) 6:51
+02. Casanova - Tears of Love (BCR Extended Mega Beats Version) 7:09
+03. DJ Dr. Love - Love Explosion 6:08
+04. Roby - It's My Life (BCR Extended Milano Mix) 8:31(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Post-DiscoПродолжительность: 02:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BEFC0377ECFB9F8BC41045A2D21FA91F05C851F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080014   (292062) от 05.12.2016
 
 Ann Joy - Love Dance (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -595,151 +740,6 @@ Italian Disco Mafia - 1 Album, 2 Singles (2012, 2018) [MP3|320 Kbps] <Italo-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0217E64B87649B7D604D8E7A598B459E486B5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336928   (277527) от 08.11.2019
-
-Rudy Brass - Frog's Jump (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep Tonight (3:51)
-02. Dusty Brass (3:55)
-03. Space Future Band (3:53)
-04. Mister Grey (3:57)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484172564F053DB908F5A8313BC5DE15EB4FDAFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336710   (277433) от 08.11.2019
-
-Eine Kleine Disco Band - Disco Saturday Nacht (Feverish Sounds Of 1830) (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Concerto (4:38)
-02. Space Station Zero (4:21)
-03. (Love In) A Turkish Bath (4:21)
-04. Fancy Feet (3:45)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABC4A9BDE8D65051A5B338A0491816596752605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187861   (277297) от 30.11.2017
-
-The Pumps - Petroleum (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gasoline Dealer (4:32)
-02. The Night Is Young...Chercher La Femme (3:44)
-03. Boy, I Need Your Love (4:10)
-04. Pipe Line (5:24)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAA6601EE3E96ED1DFB22B2B33774EA77ABA1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082836   (277244) от 13.12.2016
-
-VA - Glitterbox: For Your Disco Pleasure (2016) (2016) [MP3|320 Kbps] <Disco, Nu Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon Dunmore - Glitterbox - For Your Disco Pleasure (Continuous Mix 1) 78:01
-02. Simon Dunmore - Glitterbox - For Your Disco Pleasure (Continuous Mix 2) 77:25
-03. The Salsoul Orchestra - Ooh I Love It (Love Break) (Original Mix) 07:46
-04. Loleatta Holloway - Love Sensation (Dimitri From Paris Dj Friendly Classic Re-Edit) 07:32(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 06:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB88E9838D74966A4A897AA78DECCE8C8AF6E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187883   (277147) от 30.11.2017
-
-Fern Kinney - Groove Me (1979) Remastered, Big Break Records, 2013 [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкое и приятное американское Disco.01. Groove Me (8:53)
-02. Under Fire (4:14)
-03. Angel On The Ground (3:52)
-04. Pillow Talk (3:43)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FFB0F58C274A78E8441F8506DF3797F544880A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1812530   (7755) от 15.08.2025
+
+Иконки - Adobe Icons Bundle [PNG, ICO]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор адобовских иконок из личного архива.Формат: PNG, ICO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC76985E45070984C278CF9EA7430B4F1DCF6A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812971   (7307) от 17.08.2025
+
+Иконки - Alphabet Icons Bundle [PNG, ICO]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор иконок алфавита из личного архива.Формат: PNG, ICO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E118DC91972223C9F7E2C582EBA991DD3DD44D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809585   (4473) от 04.09.2025
 
 Иконки - UI8 - Investment and Saving 3D icon set [PNG, OBJ, GLB]

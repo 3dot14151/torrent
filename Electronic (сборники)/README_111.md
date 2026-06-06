@@ -1,3 +1,90 @@
+###  Публикация: 1548182   (597583) от 03.05.2022
+
+VA - Beatport Drum And Bass: Sound Pack #518 (2022) [MP3|320 Kbps] <DnB, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к увлекательному путешествию, организованному с подачи 518-го трек-пака от Beatport, вашим надежным звуковым гидом в мире электронной музыки. Это потрясающая новая коллекция треков, предназначенная для создания завораживающих атмосферных басс-гобеленов. Внутри вы найдете мягкие биты, широкий выбор яркой и теплой перкуссии, пузырящиеся и каскадные басы, (   Читать дальше...   )001. Msdos - In Prague
+002. The Fi5th - Entropic
+003. Covert Garden - Jen
+004. Rhepuls - The Lion(   Читать дальше...   )Жанр: DnB, Electro BassПродолжительность: 11:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3884FB1F24A7925A3D1708204ABD4FEA0FA59897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039134   (596985) от 31.07.2016
+
+VA - Club Dance Ambience vol.80 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596985.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brooklyn Bounce & Fazzer vs Dj Lia ft Lil'C -  Please Don't Stop The Original Bounce (Alex2Rome BootyMix) 3:06
+002. Zerocool -  Hit Me (Original Mix) 4:01
+003. Lightning & Waveband -  Mirage (Mostfa And Mostfa Extended Remix) 6:17
+004. Bassjackers & Jay Harday vs Matthew Brown & William Tag -  El Mariachi Drop The Beat (Alex2Rome BootyMix) 4:19(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 07:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE02151D3CE903D07651D8394F127A1DD7528743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914696   (596372) от 03.07.2015
+
+VA - Summer Session 2015 (mixed by Dj V) (2015) [MP3|320 кб/с]<Disco House, Club House, Electro House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодная летняя компиляция представлена тремя дисками: 1 - легкая танцевальная коммерция для beach party, 2 - более клубная и энергичная музыка, 3 - лучшие танцевальные композиции прошлых лет (в этом году вспоминаем лето 2008)01-Flo Rida feat. Robin Thicke & Verdine White - I Don't Like It I Love It (Cutmore Club Remix)
+02-Nadia Ali vs. Plage - Our Rapture (DJ Che MashUp)
+03-Ariana Grande - Baby I (A Director's Cut Radio Edit)
+04-Mambana vs. Yogi - Libre o No (DJ Flight Secret Mash)(   Читать дальше...   )Жанр: Disco House, Club House, Electro House, DanceПродолжительность: 03:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23E2A175EBB3F8289A930F08A40109B88D02634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039447   (596081) от 01.08.2016
 
 VA - Finding Around Happiness (Energy Tech Trance) 007 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
@@ -670,93 +757,6 @@ VA - Beatport Trance Pack 02.08. (2016) [MP3|320 Kbps] <Trance, Progressive, Ene
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C16D8D273B0B882F455A5BDCB05580E95C09BA0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039928   (593652) от 03.08.2016
-
-VA - Transparent World Melodies (2016) [MP3|320 Kbps] <Trance, Progressive, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John 00 Fleming -  Altered Senses 7:06
-02. A.R.D.I -  Silicon Society (Original Mix) 7:08
-03. Richard Durand Ft. Simon -  Always The Sun (Ahmet Atasever Remix) 7:20
-04. Alex M.O.R.P.H -  Not All Superheroes Wear Capes (Radio Edit) 3:14(   Читать дальше...   )Жанр: Trance, Progressive, EnergyПродолжительность: 08:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01AB9DE14E1CC3F29757E0C916477B06A39CEC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549796   (592893) от 08.05.2022
-
-VA - The Virtual Vision (2022) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592893.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Virtual Vision - это авангард в мире электронной синтетики. В арсенале сборника представляется коллекция мягкой антиутопической электроники, в значительной степени управляемой брейкбитом, приправленного пылью иллюзий и осколками провальных идей.001. Darkmode - Jason X
-002. Odra - Harmonics
-003. Magnetron - Cold Hearted Vision
-004. Petit Astronaute - Polar(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 11:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F8A0CD0D61B4527FD332A8D36D7059B1E42371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549790   (592891) от 08.05.2022
-
-VA - Y-Zotope: Relax Synthetic Sounds Mix (2022) [MP3|320 Kbps] <Relax Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экспериментальный электронный сет предлагает подборку треков, авторы которых в своём творчестве использует аутентичные народные инструменты вместе с современными электронными средствами. Они создают психоделичные саундскейпы, позволяя слушателю окунуться в фантастические миры, глубину веков, почувствовать себя путешественниками во времени и Вселенной.001. E.Lemental - Your Love
-002. Shur-I-Kan - Ebb And Flow
-003. Yoshinori Hayashi - Make Up One’s Mind
-004. Franca - Chiron(   Читать дальше...   )Жанр: Relax Electronic, SynthwaveПродолжительность: 08:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A86784A0D92CA6B718E018943B64AF2E0D051C
 ```
 
 https://mybot314.ru/tekegram_catalog/

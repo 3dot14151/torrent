@@ -1,3 +1,32 @@
+###  Публикация: 1075567   (320990) от 22.11.2016
+
+Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) + (Orchestral Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowden Symphonic (03:30)
+02. Burden Of Truth (02:05)
+03. Opening - Secret Downloading (01:40)
+04. Troops March (01:58)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:39:24 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FC50756E8302011A8E193DF6FC8695A4AD7C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182177   (314993) от 11.11.2017
 
 Jamie Christopherson - Stranglehold (Complete Video Game Score) (2007) [MP3|192-320 Kbps] <Soundtrack>
@@ -728,35 +757,6 @@ Michael McCann, Sascha Dikiciyan, Ed Harrison - Deus Ex: Mankind Divided (Origin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6818EB1D9EFEFCC23B09CC4613B1B8AC08CB9D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079517   (293759) от 04.12.2016
-
-VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector's Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
-02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
-03. Twenty One Pilots - Heathens (03:16)
-04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BC3A1568DFAD78765FCF58CE34C328A728EE19
 ```
 
 https://mybot314.ru/tekegram_catalog/

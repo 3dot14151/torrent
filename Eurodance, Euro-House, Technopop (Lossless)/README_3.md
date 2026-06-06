@@ -1,3 +1,96 @@
+###  Публикация: 375833   (513164) от 14.08.2011
+
+Modern Talking - Romantic Dreams (1988) [FLAC|Lossless]<EuroPop, Synth-pop, Disco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: EuroPop, Synth-pop, DiscoПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537074   (512227) от 20.08.2012
+
+The Monotones - Disco Net - Wodka Da (1980) 2000 Remastered [APE|Lossless]<Pop, Synth-pop, Disco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дополненное ремастированное издание 2000 года единственного альбома пародийной группы из Голландии The Monotones выпущенного в 1980 году под названием "The Monotones". А начиналось всё с "Mono" - пародии на такие песни как "Video killed The Radio Star" The Buggles и "Popmuzik" M. Но большую популярность приобрел трек "Disco Njet - Wodka Da", что и повлияло на смену названия релиза в дальнейшем.01. Disco Net - Wodka Da :: 02:45
+02. Zero To Zero :: 05:44
+03. Yesterday I Saw An UFO :: 04:58
+04. Edison :: 03:11
+05. Mono :: 06:01
+06. Big Bang :: 08:29
+07. Monotone Music :: 02:39Жанр: Pop, Synth-pop, DiscoФормат: CD, Album, RemasteredПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541120   (501238) от 31.08.2012
+
+VA - Best Of Comeback United (2004) 2CD [FLAC|Lossless]<Europop, Pop Rock, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limahl – Can You Feel The Love Tonight [04:02]
+02. Benjamin Boyce – Mandy [03:36]
+03. Coolio – Rappers Delight [03:29]
+04. Chris Norman – The First Cut Is The Deepest [03:49]
+05. Emilia – All That She Wants [03:25]
+06. Haddaway – Sexbomb [03:33]
+07. C.C.Catch – Can’t Get You Out Of My Head [03:51]
+08. Markus – Konig Von Deutschland [02:46]
+09. Weather Girls – I’m So Excited [03:41]
+10. Jazzy – Hurra, Hurra, Die Schule Brennt [03:12](   Читать дальше...   )Жанр: Europop, Pop Rock, Euro HouseПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541980   (500331) от 01.09.2012
 
 VA - Pop Icons [The Mail On Sunday] (2003) [FLAC|Lossless]<Pop, Europop>
@@ -449,6 +542,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258072   (333101) от 18.11.2010
+
+La Bouche - Greatest Hits (2007) [FLAC|Lossless]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_333101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Dreams (03:25)
+02. Be My Lover (04:01)
+03. In Your Life (04:06)
+04. Take Me 2 Heaven 2 Night (03:21)
+05. Fallin' In Love (03:57)
+06. Say You'll Be Mine (03:33)
+07. Bolingo (Love Is In The Air) (04:29)
+08. Unexpected Lovers (03:18)
+09. A Moment Of Love (04:26)
+10. Shoo Bee Do Bee (I Like That Way) (03:27)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 260017   (331637) от 19.11.2010
 
 Bosson - The Best (2005) [FLAC|Lossless]<Pop, Eurodanse>
@@ -648,122 +776,6 @@ Army Of Lovers - Les Greatest Hits (1996) [FLAC|tracks+.cue]<Leftfield, Euro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD7576F7F59C25EEEA6B66AA2438CF564230BAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 269926   (287917) от 14.12.2010
-
-Mr. President - A Kind Of... Best! (2000) [FLAC|Lossless]<Pop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287917.jpg" />
-</div>
-
-
-###  Подробнее
-
-MR. Pesident - бременское трио в составе: Lady Danii (Daniela Haak), T Seven (Judith Hildebrandt) и Lazy Dee (Delroy Rennalds).01. Up 'N Away 2K (Radio Edit 2000)
-02. Gonna Get Along (Without Ya Now) (Radio Edit)
-03. Show Me The Way (Radio Edit)
-04. Coco Jamboo (Radio Version)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335589   (284264) от 04.11.2019
-
-S.E.X. Appeal - Sexy Boy... Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peeping Tom (3:53)
-02. Fragile Love (3:43)
-03. Hanky Spanky (3:40)
-04. Manga Maniac (3:40)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E229DF61A3CEC6BE4C8CD93C4B9BE75BB18EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335593   (284253) от 04.11.2019
-
-S.E.X. Appeal - Russian Roulette (2013) 3H Dance, 2019 [FLAC|Lossless|WEB-DL|tracks] <EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Russian Roulette (3:44)
-02. French Kiss (3:35)
-03. Scream My Name (3:32)
-04. Poison Called Love (3:42)(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8D7D3B2384B441DF5155E88F3E7ED66C8ECE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336052   (282188) от 05.11.2019
-
-VA - The Best Of Italian Style (2014) 5CD, Compilation [FLAC|Lossless|tracks + .cue] <Euro-House, Eurodance, Italodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jinny - Keep Warm (Extended Mix) (5:51)
-02. Aladino - Brothers In The Space (Grunge Happy Mix) (5:29)
-03. Dirty Mind - The Killer (Killer Mix) (6:01)
-04. Deadly Sins - We Are Going On Down (Gone With The Wind Mix) (5:54)(   Читать дальше...   )Жанр: Euro-House, Eurodance, ItalodanceПродолжительность: 04:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9694B9F8A387826C73F07504D346DF6B89AD4858
 ```
 
 https://mybot314.ru/tekegram_catalog/

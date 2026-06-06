@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1870010   (1069154) от 
+###  Публикация: 1873596   (1071290) от 29.05.2026
+
+ERA - ERA VIII (2026) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fallen King (4:02)
+02. Everything's Gonna Be Alright (3:35)
+03. Will You Call My Name (3:26)
+04. Not You Again (5:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D73B08F8B5C843EB4716E0C53D5BF625CAB9019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870010   (1069154) от 11.05.2026
 
 Govi - Cuchama (1993) [FLAC|Lossless|tracks + .cue] <Latin Jazz, New Age>
 
@@ -717,35 +746,6 @@ Sina Vodjani - Священный Будда (1998) Правительство �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48B3DA59F5DEBE29265FDC46C3D4E41FFDA297C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458607   (1023679) от 30.03.2021
-
-Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Cardall - A Blue Baby (2:51)
-02. Paul Cardall - Moths & Butterflies (5:03)
-03. Paul Cardall, Thompson Square - The Man with Half a Heart (4:19)
-04. Paul Cardall - Family (2:15)(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4E4477A05437B1C689DA6540F103C61FA138A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

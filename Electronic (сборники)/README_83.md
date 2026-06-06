@@ -1,3 +1,90 @@
+###  Публикация: 1219848   (710050) от 16.04.2018
+
+VA - Deep House Ladies Night (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710050.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Agatino Romero feat. Duncan Townsend - All I Wanna Do  (Original Mix)
+002. Zeni N - Moonlight (Original Mix)
+003. Airbas - After Hours  (Petros Odin Nightwalking Remix)
+004. Tough Art, Zukk - Homeless (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811B45DEDC84ACFAC3A2FF0F0DE19F8233525BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219827   (710044) от 16.04.2018
+
+VA - Sweet Mix 2018 Play Now (2018) [MP3|320 Kbps] <Trap, Future Bass, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Paul & DJ Rob ft Mc Hughie Babe - Lords Of The Hardschool (Dirty) (Extended)
+002. Kygo ft OneRepublic - Stranger Things (Clean) (Radio Edit)
+003. MYST - Fire And Ice (Clean) (Radio Edit)
+004. Noize Suppressor - Man On A Mission (Dirty) (Extended)(   Читать дальше...   )Жанр: Trap, Future Bass, ElectroПродолжительность: 06:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C08195AC737B257F329AD316C556CE8CB0B8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025627   (709931) от 12.06.2016
+
+VA - Bass Killer 6 (2016) [MP3|320 кб/с] <Dubstep, Drum and Bass, Electro House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sun Empire & State Of Mind — Thug (4:57)
+ 02. Borgeous & Rvssian & M.R.I feat. Sean Paul — Ride It (Original Mix) (3:44)
+ 03. Breathe Carolina & Shanahan — Stars & Moon (Xilent Remix) (3:46)
+ 04. Bro Safari — Snap (Dirty Audio Remix) (2:48)(   Читать дальше...   )Жанр: Dubstep, Drum and Bass, Electro House, TrapПродолжительность: 01:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D171D5CD9B1576686A823AFEB9B47BB5A254BF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401424   (709395) от 10.08.2020
 
 VA - Summer Magic Morning: Chillout Party (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -665,93 +752,6 @@ VA - Trip to Ibiza 2014 - House Set For V.I.P (2016) [MP3|256-320 кб/с] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2251AC19B49988F0BA82BE3CD5F51430C9EB94DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220243   (705997) от 18.04.2018
-
-VA - Vocal Trance Collection Vol.11 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond feat. Justine Suissa - Cold Feet (Extended Mix)
-02. Tribal Temptation - The Lines of Infinity (Original Mix)
-03. Somna & Cari - My Home (Extended Mix)
-04. MaRLo & Roxanne Emery - A Thousand Seas (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DE135E5136EDA1DBCB2CE22B002EE649829B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287174   (705521) от 06.03.2019
-
-VA - Red Sea Gruves (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rеd Sеа Grооvеs - Thе Futurе Is Unwrittеn
-002. Gt 55 - Rеd Cоlоr
-003. Sоul Brоthеrs - Summеr In Thе Citу
-004. Piеr 17 - Dосk (Originаl Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 08 :00 :11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D6B1EC51E938CBF79673C29BB0E7C9517726F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131639   (705080) от 07.05.2017
-
-VA - Deep House Collection Vol.119 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705080.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2owl - Time (Original Club Mix) 5:34
-002. 6oldfinch - Get Your Love (Original Mix) 3:37
-003. 7fields - But Your Love  (Nils Hoffmann Remix) 5:20
-004. Abriviatura IV - My Self (Original Mix) 6:16(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8D042C3AA0A66AC9DDD4ABF1B93B4620CA215F
 ```
 
 https://mybot314.ru/tekegram_catalog/

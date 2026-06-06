@@ -1,3 +1,32 @@
+###  Публикация: 1033878   (634299) от 13.07.2016
+
+Bluchel & Von Deylen - Bi Polar (2004) [FLAC|Lossless|image + .cue]<Electronic, Ambient, Trance>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gymnopedie No.1 6:11
+2. Etoile Polaire 7:08
+3. Budapest - Bukarest 6:18
+4. Summertime 7:20(   Читать дальше...   )Жанр: Electronic, Ambient, TranceПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AF21B29C1AABADA4D1B6E009193ADBFD67BEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143627   (633024) от 19.06.2017
 
 Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .cue] <New Age, Electronic>
@@ -716,35 +745,6 @@ Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D35B2407ED0629CA3FCF090324D4253423AD8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149150   (602518) от 09.07.2017
-
-Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Records [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Ethno>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aspiration For Awakening (04:31)
-2. Atlantis (04:23)
-3. Myth (04:24)
-4. New Capability (05:10)(   Читать дальше...   )Жанр: New Age, Ambient, EthnoПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8CFF43D0F8CA62D782B56F24FF290A87C9CF8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

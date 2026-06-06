@@ -1,3 +1,148 @@
+###  Публикация: 1204215   (784886) от 05.02.2018
+
+VA - Rock Burning Sounds (2018) [MP3|320 Kbps] <Rock, Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784886.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Moles - Out of Control
+002. NRBQ - Yes, I Have A Banana
+003. David West - Reds for the Blues
+004. Guano Apes - Open Your Eyes(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 08:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3424632F3F64263C07BA066B194C9713961CEDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389575   (784240) от 11.06.2020
+
+VA - 80s Alternative (2020) [MP3|320 Kbps] <Alternative,  Indie Rock, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784240.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Smiths - This Charming Man (Single Version; 2008 Remaster) (2:43)
+2. The Cure - Pictures Of You (Remastered) (7:28)
+3. Joy Division - Love Will Tear Us Apart (3:26)
+4. David Bowie - Let's Dance (2018 Remaster) (4:09)(   Читать дальше...   )Жанр: Alternative,  Indie Rock, RockПродолжительность: 04:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783C05C9CE2D7E4894DD8E69833FAB038053ABCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389606   (784214) от 11.06.2020
+
+VA - Music for You vol.4 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solence - 4 Good Reasons (03:17)
+ 02. Solence - Animal In Me (03:07)
+ 03. Solence - Blackout (03:20)
+ 04. Solence - Paralyzed (03:52)(   Читать дальше...   )Жанр: Rock, Metal, Progressive MetalПродолжительность: 03:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAAE3359870B0F1296738FF1F862606D5D98263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389858   (783893) от 12.06.2020
+
+Twisted Sister - The Platinum Collection (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783893.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. What You Don't Know (Sure Can Hurt You) (04:46)
+ 02. We're Not Gonna Take It (03:41)
+ 03. Love Is For Suckers (03:26)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78F087FDA03DB3350E0A46C6B682A18FF398C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389869   (783867) от 12.06.2020
+
+Led Zeppelin - 100% Live albums (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Shook Me (23/3/69 Top Gear; 2016 Remaster)
+02. Communication Breakdown (Live on Tasty Pop Sundae from BBC Sessions; 2016 Remaster)
+03. No Quarter (2007 Remastered Live Version From The Song Remains The Same)
+04. Dazed and Confused (3/23/69 Top Gear; 2016 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 09:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6873933DD31D960AE142071294A8B67B158B456D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390043   (783671) от 13.06.2020
 
 VA - Music for You vol.5 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
@@ -606,150 +751,6 @@ VA - Новая Волна: Сборник Русского Рока (2018) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BBC5E02182A67F301978B310BAE5B7CA96202C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278078   (774034) от 23.01.2019
-
-Nirvana - This Is Nirvana (2019) [MP3|320 Kbps] <Rock, Grunge>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Smells Like Teen Spirit
-02 – Come as You Are
-03 – Heart-Shaped Box
-04 – Lithium(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 02:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9AE45F40FC06F27118B10684D540046749B0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015566   (773930) от 11.05.2016
-
-Ozzy Osbourne - The Best Hits (2016) [MP3|320 кб/с] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Don't Wanna Stop
-02 - Perry Mason
-03 - Can't Save You
-04 - Dreamer(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC812E0E420486D90BB07CFBE277D852731D3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015598   (773922) от 11.05.2016
-
-VA - Let's Rock !!! (2016) [MP3|160-320 кб/с] <Hard, Heavy, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01:
-001 Queen - We will rock You
-002 AC-DC - What do you do for money honeyЖанр: Hard, Heavy, AlternativeПродолжительность: 26:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A5713BA8D0B3F927527AC52D801A6765A91CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391707   (773114) от 21.06.2020
-
-VA - National Rock Day (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773114.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Grand Slam - Gone Are The Days
-002. The Edge Of Reason - Paradox
-003. Beneath My Sins - I Decide
-004. Doppler Us - Amor Atуmico(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9D9BB1718B11C88DB613938846EB207EA9FFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213099   (773085) от 15.03.2018
-
-VA - Hard Rock Anthems Car Hits (2018) [MP3|320 Kbps] <Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773085.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jasta - This Is Your Life
-002. Great White - I'm Alright
-003. Black Veil Brides - Wake Up
-004. Emerald - Blind(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 08:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD0F44DA9930676A3550E828523B063D8F070CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

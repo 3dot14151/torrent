@@ -1,3 +1,61 @@
+###  Публикация: 1320033   (475192) от 16.08.2019
+
+Shadow of Intent - Melancholy (2019) [MP3|320 Kbps] <Symphonic Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melancholy
+02. Gravesinger
+03. Barren and Breathless Macrocosm (feat. Trevor Strnad)
+04. Underneath a Sullen Moon(   Читать дальше...   )Жанр: Symphonic DeathcoreПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C238E64B921C9BB9C9E98A1634DE5D9DE62A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527727   (475180) от 21.09.2015
+
+Tesseract - 5 альбомов, 2 Ep и 7 прочих релизов (2003-2015) [MP3|128-320 кб/с]<ambient/math/progressive metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475180.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010 - Concealing Fate (ep)
+2011a - One (CD, DVD)
+2011b - One (instrumental)
+2012 - Perspective (ep)(   Читать дальше...   )Жанр: Progressive metal, Djent, Math, AmbientПродолжительность: 00:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BD87B70B8DCBC5DA678D3A79DA8F8D309BFBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160424   (474137) от 25.08.2017
 
 Dagoba - 7 Альбомов (2003-2017) [MP3|320 кб/с]<Groove Metal, Industrial Death Metal>
@@ -687,64 +745,6 @@ Messiah - Fracmont (2020) [MP3|320 Kbps] <Death Metal, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61401F0060D7D4685C624F2395C5DAA328E0933F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407986   (458301) от 11.09.2020
-
-Skeletal Remains - The Entombment Of Chaos (2020) [MP3|320 Kbps] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Chasm (Intro) (01:41)
- 02. Illusive Divinity (04:09)
- 03. Congregation of Flesh (04:53)
- 04. Synthetic Impulse (04:45)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEE02843E9A21213644780EBB7AF4CA2DEB7E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942138   (458099) от 29.09.2015
-
-Red Rum - Booze And Glory (2015) [MP3|320 кб/с]<Epic Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458099.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Rising
-2. Booze And Glory
-3. Sunken Treasure Hoard
-4. The Sword Bearer(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9256617DE57D65DC259190B11B6C96CE465CDCC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

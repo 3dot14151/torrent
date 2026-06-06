@@ -1,3 +1,177 @@
+###  Публикация: 1394477   (763750) от 05.07.2020
+
+The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FOMO (05:06)
+02. Angel Of My Life (04:00)
+03. So Did I (04:12)
+04. Something Good (03:42)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279937   (763524) от 01.02.2019
+
+Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony (feat. Zara Larsson) (03:32)
+02. Baby (feat. Marina & Luis Fonsi) (03:25)
+03. Solo (feat. Demi Lovato) (03:43)
+04. Rockabye (feat. Sean Paul & Anne‐Marie) (04:10)(   Читать дальше...   )Жанр: Indie Pop, Dance-pop, ElectroПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280090   (763522) от 01.02.2019
+
+The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, House, 80s, 90s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving Feeling (3:44)
+02. Satellite (4:15)
+03. Ease the Pressure (4:20)
+04. Scarlet Beautiful (4:40)(   Читать дальше...   )Жанр: Pop, Synthpop, House, 80s, 90s |Продолжительность: 02:38:59 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279973   (763520) от 01.02.2019
+
+Bananarama - The Greatest Hits Collection (Collector Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763520.jpg" />
+</div>
+
+
+###  Подробнее
+
+VOLUME 1:
+01. Venus (3:49)
+02. I Heard a Rumour (3:24)
+03. Love in the First Degree (3:31)(   Читать дальше...   )Жанр: Dance-pop, New WaveПродолжительность: 02:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E304EB086CAEE16657C5C4D4E131333D381881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214660   (763295) от 23.03.2018
+
+Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Love (3:35)
+02. You Opened My Eyes (3:41)
+03. One Of A Kind (3:55)
+04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8537E2BE63DCC3877AD03E86B54EE10EA675448E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016397   (762943) от 16.05.2016
+
+Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musicology
+02. Illusion, Coma, Pimp & Circumstance
+03. A Million Days
+04. Life 'O' The Party(   Читать дальше...   )Жанр: Pop, Soul, Funk, DiscoПродолжительность: 03:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A357F012AEF9B9AB3EDC0F052E3CC1243FFF852B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 162431   (762544) от 25.05.2010
 
 Dusty Springfield - 7 альбомов (1963-2000) [FLAC|Lossless]<Pop, Soul>
@@ -569,180 +743,6 @@ The Dip - The Dip Delivers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0989A55AFA39B31B353513864933B9072A837BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281988   (748419) от 10.02.2019
-
-Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Blue-Eyed Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALL THE WAYS (02:55)
-02. MARRY ME (03:35)
-03. I'M DOWN (03:16)
-04. AFTER YOU (03:26)(   Читать дальше...   )Жанр: Pop, Dance, Blue-Eyed SoulПродолжительность: 00:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C73163427E66BCBC0BF6ADFC34E1C07D913A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282002   (746407) от 11.02.2019
-
-VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Bano & Romina Power - Liberta
-02. Collage - Donna Musica
-03. Pupo - La Notte
-04. Ricchi e Poveri - Comme Vorrel(   Читать дальше...   )Жанр: Italo PopПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17974C851813E39D7997D22ADA9301266FDB76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396637   (745501) от 16.07.2020
-
-Тина Кароль - 4 Альбома (2006 - 2017)  [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дикая вода
-02. Мужчина моей мечты
-03. Тобi здається
-04. Космiчнi почуття(   Читать дальше...   )Жанр: РорПродолжительность: 02:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCDEB010579D4F22BAC7DE01A5E999EE7E4298C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282455   (745322) от 12.02.2019
-
-Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] <Disco, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon A Time (03:03)
-02. Fairy Tale High (02:20)
-03. Faster And Faster To Nowhere (02:09)
-04. Spring Affair (02:34)(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282409   (745313) от 12.02.2019
-
-Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Like A Bird (4:04)
- 02. Turn Off The Light (4:36)
- 03. Shit On The Radio (Remember The Days) (3:55)
- 04. Fotografia (Duet with Juanes) (4:01)(   Читать дальше...   )Жанр: Electronic, Pop, RnB, LatinПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282494   (745255) от 12.02.2019
-
-Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Souvenirs to Souvenirs
-02. Goodbye My Love Goodbye
-03. My Friend the Wind
-04. Rain and Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

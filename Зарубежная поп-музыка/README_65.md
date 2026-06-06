@@ -1,3 +1,91 @@
+###  Публикация: 1265281   (275187) от 27.11.2018
+
+VA - 90'S The Collection 2018 (2018) 2CD [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275187.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. MC Sar & The Real McCoy - It's On You (The Ultimate Freshline Allstars Remix)
+02. Corona - Try Me Out (Lee Marrow Eurobeat Mix)
+03. DJ Space'C - Forever Young (International Club Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A5984F58788898A34186C78BD20BED16425751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850965   (275120) от 17.12.2014
+
+VA - Absolute Dance Winter 2015 (2014) 2CD [MP3|320 кб/с]<Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Absolute Dance - более 23 лет является ведущим брендом для современной танцевальной музыки. На сегодняшний день продано более 3 миллионов копий!
+Вот это, наверное, последняя коллекция в этой популярнейшей серии. Встречайте Новый 2015 Год с Absolute Dance Winter.CD1:
+01. OMI - Cheerleader (Felix Jaehn remix)  (3:02)
+02. Calvin Harris feat. John Newman - Blame  (3:31)
+03. Avicii - The Days  (3:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6A5D019EF713B8CB4D257D5D60354C8A9B0A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188152   (274570) от 02.12.2017
+
+Mireille Mathieu - Made in France (2017) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est si bon
+02. J'aime Paris
+03. L'hyme a l'amour
+04. La mer(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 02:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CCCA3C1CE0B311B2B4DB1013DA4FEFEEE8E632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265487   (274127) от 28.11.2018
 
 VA - Future Trance - Return to the Millennium 2000er (2018) 3CD [MP3|320 Kbps] <Italo Dance, Hardstyle, Hard Trance>
@@ -658,93 +746,6 @@ VA - Pop Dance Power Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD0CCE0F89C84266848466CDB2A5A5CB90FA70E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190233   (268032) от 09.12.2017
-
-Shanghai - 2 Albums (1985, 1986) LP [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редкие (у нас) представители синти и европопа из плодовитой Швеции. Выпустили только эти предлагаемые альбомы.01. Intro (1:28)
-02. Toner Av En Melodi (3:44)
-03. Vild Natt (4:23)
-04. Rosalina (3:48)(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195E420D53203E2BACDF5F1EAA64C4AFA7D91691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267268   (267806) от 05.12.2018
-
-YUKO - Коллекция (2017-2018) [MP3|320 Kbps] <Electro, Folk, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kachky (2:54)
-02. Liuli Liuli (5:09)
-03. Mak (3:07)
-04. Hreblia (3:39)(   Читать дальше...   )Жанр: Electro, Folk, DanceПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F933FB84EB0B0711825EDC9C5EA44136B9A45E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190505   (267764) от 09.12.2017
-
-Inna - Nirvana (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruleta (feat. Erick)
-02. Gimme Gimme
-03. My Dreams
-04. Tropical(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFDC2F4798B799116DF2E9E2DAAE86187ACFA0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,348 @@
+###  Публикация: 49378   (799510) от 03.04.2017
+
+G.E.N.E. [Полная дискография] [1991-2000] [MP3|160 CBR] <New Age, Ethnic, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_799510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, Ethnic, MeditativeФормат: MP3Продолжительность: 59:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273797   (799396) от 03.01.2019
+
+Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down to the Moon 02:27
+02. Moon Dance 04:10
+03. Steam Forest 04:59
+04. Water Moon 02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272439   (799394) от 03.01.2019
+
+Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|tracks] <Soundtrack, Epic, Battle>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Main Theme. 2,13
+03. Narrative 02.    9,27
+04. Schindelgeist. 14,5
+05. Campaign 01. 	14,19(   Читать дальше...   )Жанр: Soundtrack, Epic, BattleПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121803   (799220) от 04.04.2017
+
+Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holly Jolly Christmas
+02. So This Is Christmas
+03. We Wish You A Merry Christmas/Feliz Navidad
+04. Jingle Bell Rock(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4007DB576F91C49C97336FCE1F375674FDAAB55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121908   (799197) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (02:18)
+02. We Are the Division (03:45)
+03. Precinct Siege (04:40)
+04. The Garden (05:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DACCD869CE9C7D00ECEA4F36D087564F3538D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121913   (799196) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (01:59)
+02. Heatseeker (03:32)
+03. Alone in the White (03:31)
+04. Welcome to the Village (03:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16436D53A904EA6F1F023239F5ABA9B24B40EFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121905   (799183) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (02:18)
+02. We Are the Division (03:45)
+03. Precinct Siege (04:40)
+04. The Garden (05:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B338AC4AF168703D6B69D81E634F17DC7159A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121914   (799118) от 04.04.2017
+
+Ola Strandh - Tom Clancy's The Division Survival (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (01:59)
+02. Heatseeker (03:32)
+03. Alone in the White (03:31)
+04. Welcome to the Village (03:43)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE36B725F3207A4C1B3965DC411A4C9F0ECE8DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122372   (798852) от 05.04.2017
+
+Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
+02. Beverley Knight - Marvellous Party (03:46)
+03. Jamie Cullum - Forever (02:57)
+04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A10050EC48927144818811B74EA3498EAC786BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122501   (798844) от 05.04.2017
+
+VA - Celtic Voyage (2016) [MP3|320 Kbps] <New Age, Celtic, Folk, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midori - The Rivers Of Home
+02. Medwyn Goodall - The Fire Dance
+03. Florie Brown - Garrai Na Bhfeileoig/The Hunters Purse/June Apple/Silver Spire
+04. Saor Patrol - Toomtabard(   Читать дальше...   )Жанр: New Age, Celtic, Folk, WorldПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71DCB04F7BA328304D9E1DDD9FC78729B1134D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122513   (798824) от 05.04.2017
+
+VA - Deep Ocean Escapes: Calming Waters, Blissful Sea, Ambient Relaxing, Ocean Waves (2017) [MP3|320 Kbps] <New Age, Chillout, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Crystal Sounds Divine - Relaxing Ocean Waves
+02. Calming Water Cosort - Energy Flow of Nature
+03. Tropical Ocean Waves Oasis - Beautiful Ocean Waves
+04. Relaxing Nature Sounds Collection - Chakra Alignment(   Читать дальше...   )Жанр: New Age, Chillout, AmbientПродолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C532655918DE3081E0E54B9CFD6FB11268E68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122371   (798814) от 05.04.2017
+
+Samuel Sim, VA - The Halcyon / Алкион (Original Music from the Television Series) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samuel Sim - Hourglass (The Halcyon Main Title Theme) (03:17)
+02. Beverley Knight - Marvellous Party (03:46)
+03. Jamie Cullum - Forever (02:57)
+04. Kara Tointon / Chris Egan & The Sonny Sullivan Band - Mr. Heartache (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD4C6087B1DFB671FD77D3C3149DCF68C102555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507287   (798447) от 04.11.2021
 
 David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
@@ -400,354 +745,6 @@ Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6E87871642FD6051D41BFAC0C936C1EED669BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509062   (795486) от 11.11.2021
-
-VA - The Best Christmas Album In The World...Ever! 2021 (2021) [MP3|320 Kbps] <Christmas, Pop, Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas
-02. Band Aid 30 - Do They Know It's Christmas?
-03. Sam Smith - Have Yourself A Merry Little Christmas
-04. Justin Bieber - Mistletoe(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 03:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67DB638690343CEC5544BCAB38C4B3FA7FD34EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011672   (795451) от 29.04.2016
-
-Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, Celtic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelpie / The Cliffs Of Moher 03:33
-02. The Wind That Shakes The Barley 03:11
-03. Jovano Jovanke / Ciuleandra 05:25
-04. Dimna Juda 02:22(   Читать дальше...   )Жанр: Folk, World, Country, CelticПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C129CE82B254DC37528CC016CBC9723F6193A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011032   (795447) от 29.04.2016
-
-Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The White Winds - The White Boat (First View)  1:51
-02.  Hall of the Stairs - Hall of the Mosaics (Meeting You)  5:04
-03.  The Glass Hall (Choose the Crystal) - The Play of the Five Balls - The Five P...  7:36
-04.  The Woman and the Stone  4:25(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4378BF5DBAD56BFC72695CFDC8CB2A08141A7C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200853   (794919) от 22.01.2018
-
-Liquid Mind - Liquid Mind XII: Peace (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. At the Center Is Love (6:08)
-2. Communication (12:17)
-3. Person to Person (4:31)
-4. Shared Values (9:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250A529EA8D34DC73A89B3D1423FBAED3A60CDE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274100   (794859) от 05.01.2019
-
-Richard Clayderman - Hi-Res Best (2016) [FLAC|24/192|Lossless|WEB-DL|tracks] <Easy Listening, Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade Pour Adeline
-02. Lyphard Melodie
-03. Ping Pong Sous Les Arbres
-04. L'Echoppe Aux Souvenirs(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A25A56DE10746453B212C884667FBCE03CC2CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011637   (794570) от 30.04.2016
-
-SunSquabi - Odyssey (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic Hydro Funk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SquabCat
-02. Odyssey (feat. GRiZ)
-03. Pablito
-04. After The Rain(   Читать дальше...   )Жанр: Electronic Hydro FunkПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3D8F6E77A360017A1B86FA38D0B71834C739CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386302   (794470) от 29.05.2020
-
-Sungha Jung - Monologue (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acoustic, Fingerstyle Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Step (3:11)
-02. The Milky Way (4:40)
-03. Sunset in Paris (3:51)
-04. Lost in Memories (4:50)(   Читать дальше...   )Жанр: Instrumental, Acoustic, Fingerstyle GuitarПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3305034946685D2A44C82AA2AA7590E09B21C52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386306   (794467) от 29.05.2020
-
-Sungha Jung - Two Of Me (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acoustic, Fingerstyle Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude/April (1:45)
-02. Riding a Bicycle (3:43)
-03. Backpacking (3:52)
-04. Waiting (4:51)(   Читать дальше...   )Жанр: Instrumental, Acoustic, Fingerstyle GuitarПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F96DD773EFA4E4D6C1C093761CB4DB331B73FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386309   (794442) от 29.05.2020
-
-Sungha Jung - Mixtape (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acoustic, Fingerstyle Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isn't She Lovely (3:10)
-02. Don't Know Why (3:23)
-03. (They Long to Be) Close to You (3:48)
-04. Sunny (3:47)(   Читать дальше...   )Жанр: Instrumental, Acoustic, Fingerstyle GuitarПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671B59FD91DCCD9563E6C83CE48580782A4FD751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200894   (793960) от 23.01.2018
-
-Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandre Desplat - The Shape of Water (03:44)
-02. Renee Fleming - You'll Never Know (04:40)
-03. Alexandre Desplat - The Creature (01:48)
-04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC86A91D3D6EC9A2258455AF7C8CA6A502C86ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201085   (793954) от 23.01.2018
-
-VA - Quiet Nights Of Quiet Stars (The World's Most Beautiful Melodies) (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening, Vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jo Stafford - Quiet Nights of Quiet Stars (3:16)
-02. Vic Damone - It's Impossible (4:32)
-03. Frank DeVol - The Tender Trap (3:41)
-04. Margaret Whiting - I Only Have Eyes for You (3:40)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, VocalПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886C4DBE4EABA0FF502CFBA80FF42035D80F0BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200898   (793899) от 23.01.2018
-
-Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|CD|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandre Desplat - The Shape of Water (03:44)
-02. Renee Fleming - You'll Never Know (04:40)
-03. Alexandre Desplat - The Creature (01:48)
-04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF56C8910A627DE46B52FCC75451AB4C2CE840A
 ```
 
 https://mybot314.ru/tekegram_catalog/

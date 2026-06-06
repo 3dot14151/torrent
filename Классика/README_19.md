@@ -1,3 +1,61 @@
+###  Публикация: 1016357   (770156) от 14.05.2016
+
+N. Rimsky-Korsakov / Н.Римский-Корсаков - The Snow Maiden / Снегурочка (2008) [APE|Lossless|image + .cue] <Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770156.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Пролог. Вcтупление и сцена Весны с птицами.
+02. Пролог. Речитатив и ария Весны.
+03. Пролог. Речитатив.(   Читать дальше...   )Жанр: OperaПродолжительность: 02:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661A597A8DC5140B0AB04A96EC591573E06BAECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016451   (770074) от 14.05.2016
+
+VA - Simply Piano Moods (2011) 2CD, Boxset[FLAC|Lossless|tracks + .cue] <Piano,  Easy Listening, Pop-Rock>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из очередной командировки привез музыку для отдохновения из сери Simply (остальные публикации из этой серии найдете по ссылке внизу). У этого двухдискового сета есть две особенности. Первое, это сокращенное переиздание четырехдискового сета, вышедшего в 2008 году. Так что здесь собраны самые сливки. И второе, каждая сливка на этом сете с одной стороны очень узнаваема, (   Читать дальше...   )CD1:
+01. The Chris Ingham Orchestra - Come Away With Me  (3:11)
+02. The Chris Ingham Orchestra - You're Beautiful  (3:12)
+03. The Chris Ingham Orchestra - Moon River  (3:36)(   Читать дальше...   )Жанр: Piano,  Easy Listening, Pop-RockПродолжительность: 02:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB486EA7B821DAF8AF8EDA6335D2A88FE41AEE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392052   (769798) от 24.06.2020
 
 Jef Martens - Evenings on Instagram, Pt. I-III (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
@@ -679,64 +737,6 @@ Sergey Cheremisinov - The Signals (2017) [MP3|320 Kbps] <Neoclassical, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DB4EC2710BD1351EFC999CD1340DA5573E4883F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663576   (742822) от 07.06.2013
-
-Webern - Complete Webern: Boulez (2000) [FLAC|Lossless]<Classical, Modern, Avant-garde, Symphony, Chamber>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестидисковое собрание произведений Веберна в исполнении Пьера Булеза и Берлинской филармонии.·2 Pieces for Cello and Piano (1899)
-01 (1) Langsam
-02 (2) Langsam·Slow Movement for String Orchestra (1905)
-01 - Langsam, mit bewegtem AusdruckЖанр: Classical, Modern, Avant-garde, Symphony, ChamberПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA6C36048A025DAD57E095AB9FF606FD9CE3AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282910   (742224) от 14.02.2019
-
-Yann Tiersen - All (2019) [MP3|320 Kbps] <Neo-classical, Contemporary>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tempelhof
-2. Koad
-3. Erc’h
-4. Usal Road(   Читать дальше...   )Жанр: Neo-classical, ContemporaryПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EAB42500168E3871FA4533ED53565329D7011A
 ```
 
 https://mybot314.ru/tekegram_catalog/

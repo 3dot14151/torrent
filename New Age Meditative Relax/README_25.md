@@ -1,3 +1,61 @@
+###  Публикация: 1189854   (269508) от 07.12.2017
+
+Michael Logozar - Starlight (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise to Sunset
+02. Twilight Peace
+03. Starlight
+04. Promenade(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA28A37F698FBECCAC2096772B7920AD0A458B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189570   (269430) от 07.12.2017
+
+VA - Kamasutra Tantra Massage - Just Relax (2013) [MP3|320 Kbps] <Relax, Chillout, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Touch - Indian Dawn
+02. Oriental Vibes - Chanda Day
+03. Body Massage - Bengali Wave
+04. Invisible Circle - Free Pass(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912C0286698E587BFECC6D4183EEDB896FEE1372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190021   (268868) от 08.12.2017
 
 Ashaneen - Dancing on the Edge of Infinity (2017) [MP3|320 Kbps] <New Age>
@@ -709,64 +767,6 @@ VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C632DC29577637C54C0E28697A9114E1B11B18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120749   (241061) от 02.04.2017
-
-Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gates Are Open [00:03:14]
-02. Changing Skies [00:03:00]
-03. Parting Ways [00:02:04]
-04. No Way Out [00:03:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570DB04974A57FF3C9EBA5C66EFE08C25AB27E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626131   (239826) от 19.04.2023
-
-Buddha Room - 2 + Hours of World Music (2018) [MP3|320 Kbps] <Ethnic, World Music, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Music [04:09]
-02. Stop Overthinking [06:47]
-03. Inner Silence [06:35]
-04. Tribal Atmosphere [06:41](   Читать дальше...   )Жанр: Ethnic, World Music, LoungeПродолжительность: 02:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D415C8F7F951BA715144245E807F74277CF1EFEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

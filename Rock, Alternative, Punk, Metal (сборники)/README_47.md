@@ -1,3 +1,148 @@
+###  Публикация: 1736350   (49828) от 16.07.2024
+
+VA - Instrumental guitar (2024) [MP3|320 Kbps] <Rock, Instrumental, Flamenco>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jay Price - Shooting Star [02:08]
+002. Guitar Instrumentals - Back in Black (as made famous by AC/DC) [04:21]
+003. Flamenco Guitar Masters - Song For A Guy [05:19]
+004. Guitar Instrumentals - Sin City (as made famous by AC/DC) [04:46](   Читать дальше...   )Жанр: Rock, Instrumental, FlamencoПродолжительность: 08:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FD9A26BA597CA463A8661C4A6AB6429AE152CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737357   (49107) от 23.07.2024
+
+VA - Music of Vikings, Scandinavians, Pagans, Celts and the Middle Ages (2024) 2CD [MP3|320 Kbps] <Celtic, Folk, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heldom - Vaknan [03:31]
+02. Vikings Main Title - If I Had a Heart ("Vikings" Main Title) [03:49]
+03. Danheim, Heldom - Blodfest [03:32]
+04. Gealdyr - Voluspa [03:37](   Читать дальше...   )Жанр: Celtic, Folk, RockПродолжительность: 09:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1CC3C926BF102B43CB17541D8CB761127864A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742527   (46327) от 19.08.2024
+
+VA - Fantasy Medieval Celtic Music (2024) [MP3|320 Kbps] <Celtic, Folk, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46327.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Corvus Corax, Sami Yli-Sirnio - Sverker (Era Metallum - Single Edit) [03:46]
+002. Perly i Lotry - Song of the Vikings (My Mother Told Me) [02:08]
+003. Lorne Balfe, Assassin's Creed - Assassin's Creed III Main Theme [03:07]
+004. Enigma - Return To Innocence [04:16](   Читать дальше...   )Жанр: Celtic, Folk, RockПродолжительность: 08:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A937FA072782BE80835F70ADD36F05A79D9D8661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748997   (43797) от 12.09.2024
+
+VA - The Open Hearts. Compilation (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43797.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chanel Beads - Unifying Thought
+002. Coldplay - Speed Of Sound
+003. Harrison Storm - Better With You
+004. Zach John King - The Way I See You(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 09:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27E39C6FD771EE5845A2BCD8EAC40FDF3D787B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748672   (43623) от 14.09.2024
+
+Pink Floyd - Gilmour Age Compilation (2024) [MP3|320 Kbps] <Progresive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43623.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pink Floyd - Cluster One [05:56]
+002. Pink Floyd - What Do You Want from Me [04:22]
+003. Pink Floyd - Poles Apart [07:04]
+004. Pink Floyd - Marooned [05:29](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 17:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BA2A4E3F913A5DB8C57D40A9D66F0B0FEFF6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749394   (43407) от 16.09.2024
 
 VA - Rock, the best (2024) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
@@ -601,151 +746,6 @@ VA - Christmas Glam Santa's Secret (2024) [MP3|320 Kbps] <Rock, Glam>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5AA4EEB3A17A48ECE60B8B0250223B16F8B2F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763753   (35328) от 03.12.2024
-
-VA - Rock Stream Mix (2024) [MP3|320 Kbps] <Soft rock, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4Db - 45 Degrés - (06:17)
- 002. Endless Dive - Archimboldi - (06:53)
- 003. Cold Years - Die Tonight - (03:22)
- 004. Sunchild, Karfagen & Hoggwash - Grail And Time - (05:54)(   Читать дальше...   )Жанр: Soft rock, RockПродолжительность: 11:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66868B3C851B6B03A162B929365A16E1E7383D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763842   (35325) от 03.12.2024
-
-VA - Workout, Beast Mode, Aggressive 2 (2024) [MP3|320 Kbps] <Rock, Hard Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Paranoid (2:47)
-02. Foo Fighters - Monkey Wrench (3:51)
-03. Linkin Park - One Step Closer (2:37)
-04. Mötley Crüe - Kickstart My Heart (4:44)(   Читать дальше...   )Жанр: Rock, Hard Rock, OtherПродолжительность: 05:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89FE96F766E5F469FEB7D853C93DD7773F6D1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763939   (35219) от 04.12.2024
-
-Avril Lavigne - Compilation (2002-2023) [MP3|320 Kbps] <Pop punk, Alternative, Pop rock, Post grunge>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anything But Ordinary (Let Go 2002)
-02. Bad Girl (& Marilyn Manson) (Avril Lavigne 2013)
-03. Bad Reputation (Avril Lavigne 2013)
-04. Bite Me (Love Sux 2022)(   Читать дальше...   )Жанр: Pop punk, Alternative, Pop rock, Post grungeПродолжительность: 02:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16901230CDD307645FAB2F7823E0F1AA1A1EA8F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764913   (34724) от 09.12.2024
-
-Nautilus Pompilius - Compilation (1983-1997) [MP3|320 Kbps] <New wave, Art rock, Soft Rock, Post punk>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Три Хита (Оркестровая Увертюра) (Атлантида 1997)
-02. Эпиграф (Разлука 1986)
-03. Эта Музыка Будет Вечной (Разлука 1986)
-04. Отход На Север (Наугад 1994)(   Читать дальше...   )Жанр: New wave, Art rock, Soft Rock, Post punkПродолжительность: 05:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9DA6A5012644D35224F14C30CDFA99DBDB7EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764347   (33908) от 17.12.2024
-
-Владимир Кузьмин - Баллады (лучшее) (Mixed and Compiled by DJ Zhuk) (2015) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые дикие кони (4:05)
-02. Как ты живёшь без меня (4:50)
-03. Сказка в моей жизни (4:43)
-04. Небеса (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DEB7BEFD5898B8E756ED0CCD6393856776573F
 ```
 
 https://mybot314.ru/tekegram_catalog/

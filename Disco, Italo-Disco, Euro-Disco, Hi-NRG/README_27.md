@@ -1,3 +1,119 @@
+###  Публикация: 1320311   (473371) от 17.08.2019
+
+Strutt - Time Moves On (1975) Reissue CD, 2001, Victor [MP3|320 Kbps] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Moves On (6:01)
+02. Said You Didn't Love Him (3:13)
+03. Front Row Romeo (Instrumental) (4:23)
+04. We've Come A Long Way Baby (4:21)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678CB22FED902D3004D5FAAFF2C5D2C24B2EF48C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058241   (470953) от 30.09.2016
+
+Southern Exposure - Headin' South (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский диско-проект от продюсеров Willi Morrison & Ian Guenther, в основном известных по THP Orchestra и др.01. Headin' South (7:50)
+02. On Our Way (9:38)
+03. Love Is (11:45)
+04. Tight Pants (6:02)Жанр: Disco, Funk-SoulПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357896C001852F37DC61AB5C4496EF36C2A612A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245796   (470070) от 07.09.2018
+
+Brenda Mitchell - Don't You Know (1978) [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Party (7:34)
+02. I'm Running (5:28)
+03. Don't You Know (4:03)
+04. Get It Together (6:37)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A9C236B5261A4B47BDF453D250865C646B1278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245756   (469970) от 07.09.2018
+
+Nation In Blue - Discography (2016-2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have You Got What It Takes (7:27)
+02. Nothing Less (6:21)
+03. Your Saviour I Will Be (6:15)
+04. I Will Do Anything (6:07)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2B6E6BAB68F21E18AA5E209639944F524DB5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320543   (468905) от 19.08.2019
 
 Digital Emotion - 2 Albums, 4 Singles & EPs (1984-2019) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
@@ -641,122 +757,6 @@ The Chaplin Band - 2 Albums (1979, 1982) LP [MP3|320 Kbps] <Electronic, Funk Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C7AD870A6E1B6E60011FAEA66624EF618B175DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569082   (455703) от 11.08.2022
-
-Bad Boys Blue - Game Of Love (1990) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of Hearts	4:11
-02. Jungle In My Heart	3:38
-03. I Don't Know Her Name	3:23
-04. Jenny, Come Home	3:49(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F88835A6A248F51B354E2433F2BB3CC5136CF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569060   (455701) от 11.08.2022
-
-Bad Boys Blue - Heart Beat (1986) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Hear Your Heartbeat (Sunday Girl)	3:50
-02. Mon Amie	4:35
-03. One Night In Heaven	4:45
-04. Baby I Love You	4:05(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C826A6F5462691FF7AB122274E626CB762A69CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568880   (455570) от 11.08.2022
-
-Bad Boys Blue - My Blue World (1988) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A World Without You >Michelle< (Radio Edit)	3:32
-02. Don't Leave Me Now	6:10
-03. Bad Reputation	3:36
-04. Don't Walk Away Suzanne	3:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8DAD66C0767E304193BDBA95DDDC6D00586853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568991   (455563) от 11.08.2022
-
-Bad Boys Blue - Hot Girls, Bad Boys (1985) [OGG|480 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman	5:21
-02. I Live	4:54
-03. Pretty Young Girl	5:46
-04. L.O.V.E. In My Car	5:24(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E5472D9988FE933B81A93D0FA9B106254B5FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

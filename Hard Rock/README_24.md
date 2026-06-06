@@ -1,3 +1,32 @@
+###  Публикация: 954076   (344395) от 06.11.2015
+
+Scorpions - Animal Magnetism (1980) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It Real
+02. Don't Make No Promises (Your Body Can't Keep)
+03. Hold Me Tight
+04. Twentieth Century Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D7DECD37AB0B151E32BA597CACEB8008B8E29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954190   (344257) от 06.11.2015
 
 Scorpions - Blackout (1982) 50th Anniversary Deluxe Edition /2015, BMG/  [MP3|320 кб/с]<Hard Rock>
@@ -723,35 +752,6 @@ Lifeline - Scream (2015) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D6798DDBE511067D76B6C8C4B7ACC823D2D1CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956963   (328413) от 16.11.2015
-
-Jeff Brown (Ex-Sweet) - 23 Years (2015) [MP3|320 кб/с]<Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy World
-02. 23 Years
-03. Casino Royale
-04. Contagious(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6924913D78CF0E204152BEF6B7995155FD67B52F
 ```
 
 https://mybot314.ru/tekegram_catalog/

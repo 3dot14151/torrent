@@ -1,3 +1,90 @@
+###  Публикация: 1789226   (22598) от 03.04.2025
+
+VA - SYNTHPOP NOSTALGIA (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - Take On Me (3:44)
+02. Laura Branigan - Gloria (4:55)
+03. Duran Duran - Hungry like the Wolf (3:40)
+04. New Order - Age of Consent (5:15)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D7CF1AF072BB9E55CAFE26961ACD095BCEAA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790915   (21763) от 11.04.2025
+
+VA - 12.04, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AngeliteMusic - Lost in Space (2:41)
+02. Аэросса - Сумасшедшая комета (4:48)
+03. Andrey Klimkovsky - Venera 14 (Short Edit) (6:52)
+04. Олег Гуртовой и группа VEGA - Mirage (4:21)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, SynthwaveПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482D36FD434E53C3E3237A3055728E446D6EF776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790917   (21760) от 11.04.2025
+
+VA - 12.04, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrey Klimkovsky - Are We Alone in the Universe (7:30)
+02. Аэросса - Радиоволна ПС1 (5:05)
+03. Олег Гуртовой и группа VEGA - Пульсар (2:58)
+04. Outspin - Expanse (Radio Edit) (3:19)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, SynthwaveПродолжительность: 01:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92328D68023EF7D8449E253098D1A77B93E9A3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792816   (20712) от 21.04.2025
 
 VA - Sonic Space, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Music, Ambient>

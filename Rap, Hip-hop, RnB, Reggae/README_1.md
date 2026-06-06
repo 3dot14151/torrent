@@ -1,3 +1,90 @@
+###  Публикация: 1443818   (1034671) от 01.02.2021
+
+The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:16)
+02. Pending (01:42)
+03. 5 Year (03:00)
+04. Other Content (02:14)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F711C1DC28A76BE3724BAF79EBCB643AE9D9CA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443821   (1034664) от 01.02.2021
+
+The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro from space (01:46)
+02. Ghost (01:42)
+03. NY in night (02:49)
+04. Lullaby from the moon (03:11)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618402   (1033931) от 12.03.2023
+
+Sagath - Catacombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, Horrorcore>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catacombs [00:02:12]
+02. Step on the gas [00:02:17]
+03. Coffin [00:02:00]
+04. New day [00:02:00](   Читать дальше...   )Жанр: Alternative, Hip-Hop, HorrorcoreПродолжительность: 00:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8791127308AA3BD9E97F7F483AB5060D100C57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445590   (1033522) от 06.02.2021
 
 Звонкий - Shine (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -646,93 +733,6 @@ VA - Chillhop Essentials Spring 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF3658404C5490BDEAFAF2A0F8B66850958C5092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455429   (1025570) от 19.03.2021
-
-Кровосток - Наука (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025570.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Делают
-2. Зашёл, вышел
-3. Поточное
-4. Сердце майора(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD549A3687A52C0D31ED211FD175AB796EA5DA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455936   (1025301) от 21.03.2021
-
-Moderator - Midnight Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Trip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Story Begins (Intro) [00:02:02]
-02. Unspoken [00:03:29]
-03. Walking Slow [00:03:59]
-04. Wish I Was Dead [00:03:42](   Читать дальше...   )Жанр: Trip Hop, Beats, JazzyПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB9C91719F86C5B0F4A04797E157ED02A476485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457116   (1024613) от 25.03.2021
-
-Pueblo Vista & VA - Hello Spring : MMXX : Lo-Hop Anthology (2020) [FLAC|Lossless|tracks] <Hip-Hop, Instrumental, Chill>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Stratt, Pueblo Vista - Morning Ramen (01:32)
-02. Chiccote'S Beats, Pueblo Vista - Fields (03:03)
-03. Mr Tav, Pueblo Vista - Flower (01:55)
-04. Pueblo Vista, RLLBTS - Passed (02:21)(   Читать дальше...   )Жанр: Hip-Hop, Instrumental, ChillПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD099D402174C581D530553215FAFAEC5E3F53B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

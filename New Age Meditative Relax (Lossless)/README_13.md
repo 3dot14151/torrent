@@ -1,3 +1,32 @@
+###  Публикация: 1220572   (700530) от 21.04.2018
+
+Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Part 1 (3:51)
+02. Spirit Part 2 (3:05)
+03. Rising Star Part 1 (3:06)
+04. Rising Star Part 2 (2:05)(   Читать дальше...   )Жанр: New Age, Meditative, AmbientПродолжительность: 02:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026939   (700405) от 17.06.2016
 
 David Darling - Gratitude (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -730,35 +759,6 @@ John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FD125067A384F6235260B6EA11D6411D846BF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030793   (670331) от 02.07.2016
-
-Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weisheit und Ruhe [00:02:41]
-02. Das Geheimnis Wasserfall [00:06:38]
-03. Beobachten meine Hande [00:02:58]
-04. Unseren geheimen Ort [00:04:56](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F75CE4318E47131379924528E2B5F3C3149B7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

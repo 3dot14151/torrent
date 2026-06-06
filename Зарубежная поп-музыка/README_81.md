@@ -1,3 +1,87 @@
+###  Публикация: 1348412   (144718) от 27.12.2019
+
+VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144718.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Prince - Purple Rain 8:41
+002. Coldplay - Everglow 3:48
+003. Foreigner - I Want To Know What Love Is (2013 Remaster) 5:06
+004. Spandau Ballet - True (Single Edit) 5:28(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E91BFF3D8F2DAEC1B6D61B5A5BEE7D3FA70E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969719   (144553) от 28.12.2015
+
+Монатик - S.S.D. (2013) [MP3|256-320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Дым
+03. ТайУлетаю
+04. Важно(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11531FE4AAB97E4947C39E7600EC2BE421EA6BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272443   (144267) от 27.12.2018
+
+Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moi… Lolita (Reloaded)Жанр: Deep House, Pop, ElectronicПродолжительность: 02:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1013ACBABADFF320FF3C5650621AA86D6CDB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194924   (144260) от 28.12.2017
 
 Wincent Weiss - Irgendwas gegen die Stille (2017) [MP3|320 Kbps] <Pop>
@@ -666,98 +750,6 @@ Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682956   (129911) от 09.12.2023
-
-Kylie Minogue - Extension (2023) The Extended Mixes [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-01 - Various Albums
-02 - Extension (The Extended Mixes)Жанр: PopПродолжительность: 2CD, 01:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D5A25312A6C5E1AE98A97CABC1713BA464492B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489945   (129762) от 01.05.2012
-
-James Morrison - The Awakening (2011) [MP3|320 кб/с]<Soul, Adult Contemporary, Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In my dreams
-02. 6 weeks
-03. I won't let you go
-04. James Morrison, Jessie J/Up
-05. Slave to the music
-06. Person I should have been
-07. Say something now
-08. Beautiful Life
-09. Forever
-10. The Awakening(   Читать дальше...   )2011Жанр: Soul, Adult Contemporary, Pop, FolkПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3543B3BE5AEF7C0BB4B4E48166E92B75759079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684324   (127640) от 16.12.2023
-
-VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris - My Way (3:39)
-02. Rema - Calm Down (3:39)
-03. Hamza - Nocif (3:49)
-04. SDM - Bolide allemand (2:56)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676DC2CBBAC03776D835E0437F5243BE21CFCE8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

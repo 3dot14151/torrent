@@ -1,3 +1,90 @@
+###  Публикация: 1348794   (1004229) от 02.01.2020
+
+VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musikk VS. Chiris Montana - Summer Lovin' ( Acapella )
+02. Martin Villeneuve - Come On Over ( Up Jeet Remix )
+03. Rio Dela Duna & Dani Cohiba - El Cubano ( Martin Villeneuve Remix )
+04. Do Santos - Noti Verisi(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349866   (1004072) от 03.01.2020
+
+Rewind Feat. Madame Denise - Video Killed The Radio Star (1993) [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Video Killed The Radio Star (Radio Edit) 4:03
+02. Video Killed The Radio Star (With An Eye 2 Techno) 5:02
+03. Video Killed The Radio Star (Mother's Day) 4:15
+04. Kaleidoscope (Coming Soon) 2:17Жанр: Euro HouseПродолжительность: 00:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3836DC8A1172890128170394F2A99FAC8A1E9AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349870   (1004069) от 03.01.2020
+
+Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Dancing On My Own 5:19
+02. Faster 7:08
+03. Believe In Me 7:45
+04. I Want You Heaven 6:48(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E27CD7C56529450EB4E6C65B82E033268F4920E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349849   (1004060) от 03.01.2020
 
 Chyp-Notic - Nothing Compares 2 U (1990) [FLAC|Lossless|image + .cue] <Euro House>
@@ -686,93 +773,6 @@ Wolfram - Amadeus (2019) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Euro-House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32AAE2BF177EBB0E57F96EDCA86CDF484D0E4E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983528   (941789) от 07.02.2016
-
-La Bouche - A Moment Of Love (1997) Unofficial Release [FLAC|Lossless|image + .cue] <Euro-House, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	You Won't Forget Me 	04:17
-02. 	Unexpected Lovers 	04:25
-03. 	SOS 	                        03:49
-04. 	A Moment Of Love 	04:25(   Читать дальше...   )Жанр: Euro-House, ElectronicПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7FBC2692AD0F4F9F8C53E2D4F3C8EE1DBDB6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363669   (940747) от 29.02.2020
-
-Paradisio - The Hottest Summer Tracks (20TH Anniversary Deejays Full Length Versions) (2017) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-01. Bailando (Discoteca Drums Mix) (6:51)
-1-02. Un Clima Ideal (Eurodance Discoteca Mix) (6:25)
-1-03. Samba del Diablo (Extended Fiesta Club Mix) (5:10)
-1-04. El Ritmo Caliente (DJ Extended Club Mix) (6:07)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FF24CC98B3AE1D185627A3FA0A0F2B6530206F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364808   (933410) от 05.03.2020
-
-Alex Christensen & The Berlin Orchestra - Classical 90s Dance 3 (2019) [FLAC|Lossless|tracks + .cue] <Modern Classical, Classical, Eurodance, Trance, Ambient>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsy Woman (La-Da-Dee) (feat. Linda Teodosiu) (3:37)
-02. The Sign (feat. Natasha Bedingfield) (2:50)
-03. Everytime We Touch (feat. Maite Kelly) (3:47)
-04. Somebody Dance With Me (feat. Asja Ahatovic & Ski) (3:51)(   Читать дальше...   )Жанр: Modern Classical, Classical, Eurodance, Trance, AmbientПродолжительность: 00:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF79945B3C3E3EE368B09DAA3C059910ED54503
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 978053   (964720) от 22.01.2016
+
+VA - Existence In Progress (2016) [MP3|320 кб/с] <Progressive House, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964720.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Faced Funks - Powerbass (Original Mix)
+002. Years & Years - King
+003. Duke Dumont - Won't Look Back
+004. Mind In A Box - Unforgiving World(   Читать дальше...   )Жанр: Progressive House, Electro, ClubПродолжительность: 09:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B0926878608373307F330181E4C6FE15E148B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977823   (964645) от 22.01.2016
+
+VA - Beatport Deep House Great Mix (2016) [MP3|320 кб/с] <Deep House, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bedouin - Flight of Birds (Original Mix)
+002. Seven Davis Jr. - Friends (Detroit Swindle Friends On Acid Remix)
+003. Maya Jane Coles - What They Say
+004. Red Axes, Arbao - Sabor (Isolee Remix)(   Читать дальше...   )Жанр: Deep House, Club, ElectroПродолжительность: 11:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F399244DC02E9487EAEB78531C4BA4CAF4728E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978217   (963723) от 23.01.2016
+
+VA - Feel the Deep (Deep House Culture) (2016) [MP3|320 кб/с] <House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I st Lovers - One Is Business - Deep Way Mix (05:45)
+02. Lorenz Hellinghton - So Spired - Beautiful Mix (10:26)
+03. Sam London - No Substitute - 1st Zone Mix (05:15)
+04. Victor Vee - Ohio Fantasy - Blue Sea Mix (03:44)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6CD5C1C9E8DB7A6F2AA2BDA5FA8359B57D4B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978306   (963710) от 23.01.2016
 
 VA - Lazy Day in Bed Finest Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -658,99 +745,6 @@ VA - Soft Winter Ambient Music (2020) [MP3|320 Kbps] <Ambient, New Age, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87897A405C44430E6D5F2B25FB19DA1748AD8DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623211   (955349) от 26.02.2013
-
-VA - Gold of Teddy Killerz (2013) [MP3|320 кб/с]<Drum'n'Bass, Dub Step, Glitchhop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955349.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Modestep - Evolution Theory (Teddy Killerz Remix)
-2. Modestep feat. Teddy Killerz and Ghetts - Inside My Head
-3. Nishin Verdiano, AK9 – Bitch Please (Teddy Killerz Remix)
-4. Skrillex feat. Damian Marley - Make It Bun Dem (Teddy Killerz Remix)
-5. Teddy Killerz - Bad Taste
-6. Teddy Killerz - Hunger
-7. Teddy Killerz - New Drums
-8. Teddy Killerz - Ravezone Anthem
-9. Teddy Killerz - Samsyka
-10. Teddy Killerz - Scary(   Читать дальше...   )Жанр: Drum'n'Bass, Dub Step, GlitchhopПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA57CFA94547F64B418450FF383766BB0DD035E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088739   (955150) от 01.01.2017
-
-VA - 90s Dance Classics (2016) [MP3|320 Kbps] <Latin Pop, Jazz, Soul, Dance, RnB, Swing, Garage House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madonna - Vogue 05:18
-02. En Vogue - Hold On (Hip Hop Remix) 05:50
-03. All Saints - Lady Marmalade (Timbaland Remix) 03:40
-04. Clubland - Hypnotized (Pka Full Philly 7) 04:09(   Читать дальше...   )Жанр: Latin Pop, Jazz, Soul, Dance, RnB, Swing, Garage HouseПродолжительность: 01:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4660B9EF7FACF1A4DA04307802C0D2214A29989A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361301   (955129) от 19.02.2020
-
-VA - Дискотека 2020 Deep House - The Best Vol.7 от NNNB (2020) [MP3|320 Kbps] <Deep House, Nu Disco, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diego Power - Don't Look at Me (Original Mix) (5:08)
-02. Serge Legran - Love me like crazy (4:19)
-03. TRITICUM - Waiting For (Original Mix) (3:06)
-04. A. Rassevich, Susie Johnson - The Dice (5:13)(   Читать дальше...   )Жанр: Deep House, Nu Disco, OtherПродолжительность: 38:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67076521951D0D0F6C9FECDA807B75355E192AA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

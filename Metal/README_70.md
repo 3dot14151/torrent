@@ -1,3 +1,61 @@
+###  Публикация: 1573727   (410492) от 01.09.2022
+
+Trial (swe) - Feed the Fire (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tria Prima (1:14)
+02. Sulphery (4:40)
+03. Thrice Great Path (4:49)
+04. In the Highest (5:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D846F061541B785BDD430D4D2E1C9A8AAFCC9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573724   (410478) от 01.09.2022
+
+Aeternam - Heir of the Rising Sun (2022) [MP3|320 Kbps] <Symphonic Melodic Death Metal, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osman's Dream
+02. Beneath The Nightfall
+03. Irene
+04. Nova Roma(   Читать дальше...   )Жанр: Symphonic Melodic Death Metal, FolkПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4253BAEBA14ABC1F3FDC5683165A1DE64CE99010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573721   (410411) от 01.09.2022
 
 Ghost Wish - Dimension (2022) [MP3|320 Kbps] <Progressive Metalcore>
@@ -524,6 +582,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560261   (407118) от 14.10.2012
+
+Doro - Raise Your Fist (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_407118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raise Your Fist In The Air (3:48)
+02. Coldhearted Lover (3:35)
+03. Rock Till Death (3:02)
+04. It Still Hurts (4:09)
+05. Take No Prisoner (3:08)
+06. Grab The Bull (Last Man Standing) (4:57)
+07. Engel (5:14)
+08. Freiheit (Human Rights) (3:44)
+09. Little Headbanger (Nackenbrecher) (3:15)
+10. Revenge (4:49)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5EA8ED7FAAC6AE688399A639B4127F62A5DBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 560981   (406431) от 16.10.2012
 
 VA - Made In Tribute (1997) [MP3|320 кб/с]<Heavy Metal>
@@ -625,6 +718,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233735   (404585) от 21.10.2012
+
+Kamelot - 2 альбома (2010/2012) [MP3|320/256 kbps]<Progressive Power Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_404585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта флоридская команда из города Тампа была основана в 1991 году двумя школьными друзьями – гитаристом Томом Янгблудом и барабанщиком Ричардом Уорнером. Позже к ним присоединились вокалист Марк Вандербилт, басист Гленн Барри и клавишник Дэйв Павлико. После записи нескольких демок "Kamelot" подписали контракт с немецким лейблом "Noise records", чьими клиентами были такие команды как "Running wild", "Grave digger", "Hammerfall" и им подобные. Спустя год, в 1995-м вышел дебютный альбом, "Eternity", стиль которого можно было примерно определить как мелодичный пауэр-метал.01. Manus Dei (2:10)
+02. Sacrimony (Angel of Afterlife) (4:39)
+03. Ashes to Ashes (3:58)
+04. Torn (3:51)
+05. Song for Jolee (4:33)
+06. Veritas (4:34)
+07. My Confession (4:33)
+08. Silverthorn (4:51)
+09. Falling like the Fahrenheit (5:06)
+10. Solitaire (4:57)(   Читать дальше...   )Жанр: Progressive Power Metal, Symphonic MetalПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564918   (401383) от 25.10.2012
 
 Leka - 2 альбома (2011-2012) [MP3|320 кб/с]<Progressive Melodic Death Metal>
@@ -644,133 +772,6 @@ Leka - 2 альбома (2011-2012) [MP3|320 кб/с]<Progressive Melodic Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A6EB066C43D24AFFBCA351410050EF64643CDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566926   (398207) от 28.10.2012
-
-Illdisposed - Sense The Darkness (2012) [MP3|320 кб/с]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sense The Darkness 05:08
-02. Eyes Popping Out 04:03
-03. Time To Dominate 04:26
-04. Never Compromise 03:52
-05. Stop Running 04:00
-06. I Am Possessed 03:36
-07. Too Blind To See 04:05
-08. The Poison 04:01
-09. Another Kingdom Dead 03:48
-10. She's Undressed 04:20(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6181A7F7FE36EF2E1733ECA704BE982985453FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171372   (396716) от 04.10.2017
-
-Desperado (Dee Snider) - Ace (2006) [MP3|320 Kbps] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hang 'Em High
-02.Gone Bad
-03.Run Wild Run FreeЖанр: Hard & HeavyПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB19A625325A3C1AD1BFEFD889B86162D44E830A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567991   (395083) от 31.10.2012
-
-Ruinside - The Hunt (2012) [MP3|320 кб/с]<Thrash metal, Speed metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395083.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The End (intro) (0:30)
-2. Shower Of Accusations (3:57)
-3. Beware! (3:36)
-4. Hunters Of Divine Society (4:54)
-5. Witch Hammer (5:09)
-6. Hide And Seek (3:53)
-7. Labyrinth Of Silence (4:24)
-8. Wounded And Defeated (4:57)
-9. Within Hammer And Tongs (4:58)
-10. Beleaguered (4:50)(   Читать дальше...   )Жанр: Thrash metal, Speed metalПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2575904BDDAC68F0860E18DBD469D1B27921A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172061   (394035) от 07.10.2017
-
-Raventale - Planetarium (2017) [MP3|320 Kbps] <Atmospheric Black Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394035.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gemini - Behind Two Black Moons
-2. Bringer Of Celestial Anomalies
-3. At The Halls Of The Pleiades
-4. New World PlanetariumЖанр: Atmospheric Black Metal, Black MetalПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9B7FCB2A3DCEF7B76517F6A00CC4406E3068B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

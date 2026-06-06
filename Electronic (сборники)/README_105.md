@@ -1,3 +1,90 @@
+###  Публикация: 1036458   (621169) от 20.07.2016
+
+VA - House EDM Witness Tech (2016) [MP3|~249 - 320 Kbps] <House, Funky, Progressive, Tribal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessandro - Awake (Original Mix) 07:13
+02. 2Groove And Disord3r - Ready Or Not 05:05
+03. Loverdose - My Point Of View (Original Mix) 06:53
+04. Barry Obzee - Beat Da System 05:57(   Читать дальше...   )Жанр: House, Funky, Progressive, Tribal HouseПродолжительность: 07:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63339CA2DAE73B38FF44FF988260F8460D5310F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036317   (621165) от 20.07.2016
+
+VA - Best Cocktail Party Music: Lounge and Jazzy Moods Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonic Elements - Until The Morning
+02. Flip Segers - Tumbao
+03. One Groove - Your Turn
+04. Port Grimaud Project - Think To A Girl(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAD70314AD48E564F38FC9EBA93986BB03AD53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036394   (621158) от 20.07.2016
+
+VA - Top Radio Charts Sublime Multigenre (2016) [MP3|320 Kbps] <Trance, House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren -  Eiforya (Talla 2xlc 140 Radio Edit) 2:45
+002. Talla 2XLC pres. Alan Walker -  Faded (DJ Aleksard Mashup) 6:35
+003. W&W -  Lift Off! (Radio Edit) 3:04
+004. Photographer -  Airport (Radio Edit) 4:43(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 09:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D8E84C97AAD7096B78155E4282E541577C117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036334   (621157) от 20.07.2016
 
 VA - Clubbing Designer Long Days (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -670,93 +757,6 @@ VA - Gathering Sound 100 Tendence (2016) [MP3|320 Kbps] <House, Electro House, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:942878A718E20FB50B955D10E50B84F776283E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036845   (617398) от 22.07.2016
-
-VA - Dance Palette 100 Summer Hit House (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617398.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blazetools -  Delta (Original Mix) 5:37
-002. Calvin Harris Feat. Big Sean -  Open Wide 3:08
-003. Beth -  Don't You Worry Child (Charming Horses Remix) 4:59
-004. Dave202 Feat. Yono -  Golden Child (Dave S Deep Mix) 5:30(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 10:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DC08528A7F3D551F2A70F1D5525915709DB80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036868   (617392) от 22.07.2016
-
-VA - Kamasutra Erotic Chillout Vol.2 - Love Making Soundscapes (2014) [MP3|320 Kbps] <Electronic, Chill Out>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Patio - Pure Beauty (04:33)
-02. Ted Neagle - Opium Temptation (04:29)
-03. Joan Jackson - Sun Vibrations (04:02)
-04. Dj Shakti - Karma Hour (04:11)(   Читать дальше...   )Жанр: Electronic, Chill OutПродолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB02F0D0539038D9D67F8D9887C7EB2CE54FFA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230267   (617298) от 11.06.2018
-
-VA - Theme Of The Streets (2018) [MP3|320 Kbps] <Chillout, Lounge, LO-Fi>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617298.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michaele - Shaman
-002. Oliver Scheffner - Dreams of Sunbeams
-003. Francesco Digilio - The Autumn Nights
-004. DJ Deviance - Vanilla Sky(   Читать дальше...   )Жанр: Chillout, Lounge, LO-FiПродолжительность: 07:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFEF183F9B8EBF56CD8ED3EE5405EE3E83D360A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

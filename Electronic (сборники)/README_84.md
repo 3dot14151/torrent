@@ -1,3 +1,90 @@
+###  Публикация: 1220243   (705997) от 18.04.2018
+
+VA - Vocal Trance Collection Vol.11 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond feat. Justine Suissa - Cold Feet (Extended Mix)
+02. Tribal Temptation - The Lines of Infinity (Original Mix)
+03. Somna & Cari - My Home (Extended Mix)
+04. MaRLo & Roxanne Emery - A Thousand Seas (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DE135E5136EDA1DBCB2CE22B002EE649829B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287174   (705521) от 06.03.2019
+
+VA - Red Sea Gruves (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705521.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rеd Sеа Grооvеs - Thе Futurе Is Unwrittеn
+002. Gt 55 - Rеd Cоlоr
+003. Sоul Brоthеrs - Summеr In Thе Citу
+004. Piеr 17 - Dосk (Originаl Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 08 :00 :11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D6B1EC51E938CBF79673C29BB0E7C9517726F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131639   (705080) от 07.05.2017
+
+VA - Deep House Collection Vol.119 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705080.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2owl - Time (Original Club Mix) 5:34
+002. 6oldfinch - Get Your Love (Original Mix) 3:37
+003. 7fields - But Your Love  (Nils Hoffmann Remix) 5:20
+004. Abriviatura IV - My Self (Original Mix) 6:16(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8D042C3AA0A66AC9DDD4ABF1B93B4620CA215F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 331349   (704288) от 02.05.2011
 
 VA - Record Super Chart № 187 (2011) [MP3|320 kbps]<House, Trance, Dance>
@@ -667,93 +754,6 @@ VA - Deep Sourge: Beach Edition (2017) [MP3|320 Kbps] <Deep, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B4FD3DA5A91983B73414AD0EDB917FE81B221DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132368   (701018) от 09.05.2017
-
-VA - Club Dance Ambience Vol.108 (2017) [MP3|320 Kbps] <Club House, Vocal House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701018.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 20 Fingers Ft. Roula - Lick It (Block & Crown & Mike Ferullo Remix) 5:26
-002. Alaia & Gallo, Kevin Haden - Go (Original mix) 5:56
-003. AlexEnn - Come In Time  (Original mix) 3:20
-004. Alok - Never Let Me Go (Extended Mix) 4:14(   Читать дальше...   )Жанр: Club House, Vocal House, HouseПродолжительность: 07:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A99340F0DE0391B1DA2AE12ECFAC04127AEFBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132358   (700716) от 09.05.2017
-
-VA - Deep House Collection vol.120 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Accurate, Linda Axelsson - Wake Up  (Original Mix) 5:17
-002. Akora & Mike Stil - Can't You See (Olej Dub Remix) 6:00
-003. Alateya, Lisitsyn, MBNN - Call Me Now (Extended Mix) 4:49
-004. Aldo Bergamasco feat. Tommie Cotton - In My House  (Vocal Mix) 6:27(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1278C5B41678D6EF083F84944F69F27350948806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220741   (700636) от 21.04.2018
-
-VA - Chill Night (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Ambient, Deep Dubstep, Future Garage>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brambles - Are Te [06:12]
-02. Nils Frahm - Familiar [03:31]
-03. Aether - Watching You Fake A Smile [03:37]
-04. Kaisaku - Waiting For The Rain [04:39](   Читать дальше...   )Жанр: Ambient, Deep Dubstep, Future GarageПродолжительность: 03:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A474D3F5ECFC73797750882D5F27E2AB280F38A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

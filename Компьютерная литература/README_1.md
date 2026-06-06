@@ -1,3 +1,31 @@
+###  Публикация: 1865882   (1065948) от 
+
+Bradley L. Jones | C++ For Dummies. 8th Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065948.jpg" />
+</div>
+
+
+###  Подробнее
+
+An accessible walkthrough of one of the world's most popular programming languages: C++
+
+C++ For Dummies is your from-scratch guide that explains the essentials of what you need to know to understand the language and build your very first program in C++. Bradley Jones, experienced programmer and coding educator, packs this edition with examples and clear demonstrations (   Читать дальше...   )Жанр: C++ Programming Language, Object-Oriented Design, Software DevelopmentЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9388A60462FA84B70453C36EEACC73EBFDB1F363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861657   (1062923) от 26.03.2026
 
 И.В. Ананченко, Т.В. Зудилова, С.Е. Иванов | Операционная система Linux – установка, настройка, основы администрирования и веб-серверы. Учебно-методическое пособие (2026) [PDF]
@@ -661,33 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B327BE5C614DA2BF975BFBD6F2A5A3A93F54AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861684   (1062778) от 27.03.2026
-
-Ришал Харбанс | Грокаем алгоритмы искусственного интеллекта. 1-е издание (2023) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искусственный интеллект — часть нашей повседневной жизни. Мы встречаемся с его проявлениями, когда занимаемся шопингом в интернет-магазинах, получаем рекомендации «вам может понравиться этот фильм», узнаем медицинские диагнозы… Чтобы уверенно ориентироваться в новом мире, необходимо понимать алгоритмы, лежащие в основе ИИ.
-«Грокаем алгоритмы искусственного интеллекта» (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27186896B579FE3A076CC762AEB8E5A13B92B97
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1074258   (335562) от 20.11.2016
+
+Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Pop, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing's Gonna Hurt You Baby
+02. I'm a Firefighter
+03. Dreaming of You
+04. Starry EyesЖанр: Dream Pop, Indie Pop, AmbientПродолжительность: 00:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EFFC702A4E87437EBEDB8153821334D7C90DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957196   (327551) от 17.11.2015
+
+Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes Ya No So (1999)/Telarc, [FLAC|image+cue]<tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Tanguedia		03:38
+02.	Four for tango		06:29
+03.	Lo que vendra		04:34
+04.	No 1 - Street tango		04:42(   Читать дальше...   )Жанр: tangoПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE8BBDB20325FB468539F0D16B90D88AFF1CD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957122   (327503) от 17.11.2015
 
 VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<tango>
@@ -108,6 +166,35 @@ Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583471   (312450) от 02.12.2012
+
+Симфонический оркестр ''Русская филармония'' - Музыка российского кино (1997) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_312450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это как раз тот случай, когда прошлое не превзойдено пока никем. Уже мало кто помнит о канале ТВ-6, да и оркестра под таким названием не осталось, а вот гениальная интерпретация музыки из советских (хотя в заголовке и сказано российских, но Вы понимаете, что это скорее политес :) 1997 года) кинофильмов звучит сегодня! Думаю, что она доставит Вам истинное наслаждение.1. И. Дунаевский. Увертюра из к/ф 'Дети капитана Гранта' (4:22)
+2. С. Прокофьев. Мертвое поле из к/ф 'Александр Невский' (5:59)
+3. Д. Шостакович. Бал во дворце из к/ф 'Гамлет' (3:22)
+4. Д. Шостакович. Романс из к/ф 'Овод' (6:24)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -714,93 +801,6 @@ David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, E
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640315   (239264) от 26.04.2022
-
-Мужской хор ИПК Валаам - Распевы Кирилло-Белозерского монастыря (1995) [FLAC|Lossless]<Церковные песнопения>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блажен муж
-02. Свете тихий
-03. Преподобне отче наш Кирилле
-04. Ныне отпущаеши(   Читать дальше...   )Жанр: Церковные песнопенияПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87194FB1425837043BD46B2794AEE7DA6BD2146B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628842   (237108) от 02.05.2023
-
-ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237108.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Sunken Paths, Towering Vines (08:02)
-2.Glimmering Depths Below (05:26)
-3.Restoration Magic (07:52)
-4.A Change in the Weather (06:13)(   Читать дальше...   )Жанр: Dungeon Synth,  Medieval AmbientПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574437   (236915) от 06.09.2022
-
-VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souk Criminals - Moroccan Heaven (Arabesque Rework) (4:17)
-02. Bedouin Spirit - Infidel (Jah Debda Sunset Mix) (3:10)
-03. T.I.A.C. - Camel Train (Marrakesh Mix) (4:44)
-04. DJ Ahmed - Nomad's Chant (4:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 03:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6884CD959A72C8D8FF7204F1DC91174137F892
 ```
 
 https://mybot314.ru/tekegram_catalog/

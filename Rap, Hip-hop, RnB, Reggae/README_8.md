@@ -1,3 +1,90 @@
+###  Публикация: 1372254   (885210) от 03.04.2020
+
+Красное дерево - 31FM, Vol. 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В эфире (feat. Вадим Курнулли) [02:26]
+02. Не спорт (feat. Baqar Allahverdi) [02:54]
+03. Фортуна (feat. Slimus) [02:56]
+04. Бой с тенью (feat. Гена Гром) [02:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF52E76393AE12F92F1CFBD58F630D37819C4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995402   (884509) от 11.03.2016
+
+Apollo Brown - Grandeur (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally (0:25)
+02. Neva Eva (feat. Barrel Brothers) (3:19)
+03. What You Were Looking For (feat. Oddisee) (3:38)
+04. Detonate (feat. M.O.P.) (3:16)(   Читать дальше...   )Производство: Mello Music Group – MMG-00077-2Жанр: Hip HopПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE0E07217ADD9BB00BE6FE15E45824C7572E3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372666   (883861) от 04.04.2020
+
+Гуляй Рванина - Дар речи (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё, что ненавидел [02:37]
+02. На место [03:05]
+03. Копия копий [02:43]
+04. Пластилин из гoвна (feat. Marikmarakesh) [03:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FFB2B9702709D3FA6D0EE2776FB8BE33C46A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372684   (883852) от 04.04.2020
 
 Мак Сима Мгла - Муниципальные Сказки на Ночь (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -656,93 +743,6 @@ VA - Chillhop Essentials Fall (2021) [FLAC|Lossless|Web-DL|tracks] <Chillhop, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9038653FF384674B0F96D01363E36CDE84ECDB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108129   (863906) от 24.02.2017
-
-Anacondaz - Выходи за меня (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Спаси, но не сохраняй
-02 - Чего ради
-03 - Смотри на меня
-04 - Рокстар(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E2666C77125BB5252C16C690184FEBE0AD8737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108173   (863803) от 24.02.2017
-
-Anacondaz - Выходи за меня (2017) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Спаси, но не сохраняй
-02 - Чего ради
-03 - Смотри на меня
-04 - Рокстар(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CF8992A8AC61C2908807652A8477BEA4E56504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376317   (860622) от 17.04.2020
-
-Fardi - Черный сад, часть 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кто такой Фарди? [02:27]
-02. Черный [02:52]
-03. Уроженец Азербайджана [02:38]
-04. Черный романтик [02:49](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A538D33A586C1BCC7648A27297970C2C6A4FDDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

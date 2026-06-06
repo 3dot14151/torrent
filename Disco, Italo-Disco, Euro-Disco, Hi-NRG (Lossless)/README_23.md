@@ -1,3 +1,148 @@
+###  Публикация: 1435299   (144160) от 28.12.2020
+
+Veronica Unlimited - The Best Of The Singles Collection 1977-1982 (2003) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gimme More (3:42)
+2. What A Lousy Party (3:18)
+3. I Wanna Dance With You (3:34)
+4. New York City (3:43)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587828C356B46E712A8279250CE4F1F24DD91A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435287   (144124) от 28.12.2020
+
+Fantastique - Fantastique (1982) 2006 [FLAC|Lossless|image + .cue] <Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Told Me 5:37
+02. Your Hand In My Hand 3:55
+03. Moi Et Toi 6:04
+04. Costa Blanca 5:26(   Читать дальше...   )Жанр: Disco, Hi-NRGПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3CD9A773846849AA0ADDBED417B22AF8CC36B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739687   (144046) от 29.12.2013
+
+Santa Claus & D'Jingle Bells - That's Eurobeat Christmas (1993) [FLAC|Lossless]<Electronic, Italo-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думаю, что почти 50 минут непрерывных танцев в Новогоднюю Ночь Вам обеспечено под этот диск. И не смотрите, что он издан аж в 1993 году - Новый Год он и через 10 лет будет Новым Годом. Счастливо повеселиться!01. Happy Christmas (3:16)
+02. My Chica (3:33)
+03. Jingle Bells (2:45)
+04. How Many Times (2:44)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Hi NRGПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B464E021C8CA6A5CB8480CF604A631ACC6105E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435319   (143970) от 28.12.2020
+
+VA - Syndicate - The best disco with non-stop sound effects (2002) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babe - The Drunken Sailor (4:09)
+02. Theo Vaness - Bad Bad Boys (6:04)
+03. Ottawan - You're O.K. (5:18)
+04. T.H.P. - Good To Me (7:17)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C4A5F7CB3B3AC3CABD315EB371AF736BAA998D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678905   (141953) от 23.11.2023
+
+Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slaves of Love (feat. Quino)
+02. Don't Gamble with My Heart
+03. Only Love (feat. Bee Lee & AlimkhanOV A)
+04. Drama (feat. Quino)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FAB66B6DD1CBB63B390AB3C571BC3953520C898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590871   (139102) от 18.12.2012
 
 VA - 40 Jahre Disco - Ilja Richter Prasentiert (2011) 14 CD [FLAC|Lossless]<Disco, Pop, Rock>
@@ -610,151 +755,6 @@ Fantastique - Fantastique (1982) Reissue, Remastered, 2024, Maschina [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19763A1566F8286AD848D63CD0ABD35C1C45C031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709093   (112890) от 23.03.2024
-
-Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Spy (The Badman-Mix) 6:25
-02. Africa (Maxi Version) 6:04
-03. Dancing In The Dark (Galactica Remix) 7:08
-04. Cecilia (12″ Remix Version) 7:20(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D45DBB737DB2DCE1997BFF48734C6E36321720C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709089   (112889) от 23.03.2024
-
-Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agent Of Liberty (Nik Z. WC Remix)
-4:56
-02. Lady Ecstasy (Extended Version) 5:32
-03. Love Spy (Night Mix) 8:40(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A292C14F7DCA7575F0939424D8D3676B9F6AF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710506   (112690) от 27.03.2024
-
-Various - Stars On 45 - Let's Dance! (2003) [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disco 70’s Medley.
-01. Stars On 45– Stars On 45 (Part One) 0:58
-02. Eruption (4)– Runaway 1:43
-03. Cashmere– Hey Baby 3:27(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D22D371CA437FB24EE01F65310CF1C4FBF55DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711987   (112299) от 01.04.2024
-
-Roger Meno - The Singles Collection (2023) Compilation [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Find The Way (Extended Version) 6:46
-02. Love, Good-Bye (Extended Version) 6:29
-03. Do You Really Go (Extended Version) 6:10
-04. What My Heart Wanna Say (Extended Version) 6:05(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DB000C395B8A61E07E89C82CF07A94BF707FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714922   (111678) от 10.04.2024
-
-Trax - Watch Out! + Dancing In The Street (1977-1978) Compilation, Reissue, Remastered, 2015, Polydor [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый альбом "Watch Out!" был записан в марте 1977 года и выпущен два месяца спустя. Несмотря на то, что альбому не удалось попасть в чарты продаж, он стал большим диско-хитом в США, где провел 13 недель в диско-чартах Billboard, достигнув 12-й строчки в октябре того же года благодаря своей пробивной, необузданной энергетике. В 1978 году Белотт & Форси (   Читать дальше...   )Watch Out! (1977):
-01. Watch Out For The Boogie Man!
-02. Breathless
-03. Any Way You Want It(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14AA850A15B0716B52576D1D807783162DDC326
 ```
 
 https://mybot314.ru/tekegram_catalog/

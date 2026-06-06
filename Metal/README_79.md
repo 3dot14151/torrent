@@ -1,3 +1,149 @@
+###  Публикация: 1580099   (331996) от 30.09.2022
+
+Sabaton - Weapons Of The Modern Age (2022) EP [MP3|320 Kbps] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Father (4:38)
+02. The Red Baron (3:22)
+03. Dreadnought (4:58)
+04. The Attack Of The Dead Men (3:56)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57B9D3B22A2447F9F8ABB102937BEB630B23E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451249   (331874) от 15.10.2019
+
+Machine Head - 7albums + 3EPs + 7singles (1993-2011) [MP3|320kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Thrash Metal, Heavy Metal, Nu MetalПродолжительность: 00:07:38
+
+
+01 | Locust (Advance Mix) | 7:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35E2B9BB4444820988CCA9E5A50071EFDB64400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580003   (331845) от 30.09.2022
+
+Aviana - Corporation (2022) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curriculum [00:01:15]
+02. Obsession [00:03:30]
+03. Rage [00:03:36]
+04. Paradox (feat. Marcus Vik of Invent Animate) [00:03:31](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1BCBD9CDE38E044915B3FFA20DF16C4436905C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796021   (331757) от 15.10.2019
+
+Machine Head - 2 Studio Albums, 2 Live Albums, 3 Singles (2012-2019) [MP3|320 кб/с] <Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331757.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - Machine F**king Head Live (2CD, Live)
+2014 - Killers & Kings (Single, RSD 10-inch)
+2014 - Bloodstone & Diamonds (Limited Edition Mediabook)
+2016 - Is There Anybody Out There? (Single)(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 06:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58990DF4F03FA01904503772A57ACB3E88C17526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 93996   (331747) от 15.10.2019
+
+Soulfly - 8albums + 2EPs + 3singles (1998-2012) [MP3|320kbps] <Groove/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бразильский вокалист и гитарист Макс Кавалера основал Soulfly после своего ухода из группы Sepultura в 1996 году.
+1996—1997 годы были чрезвычайно трудными для Макса. Он оставил группу Sepultura, одним из основателей которой он являлся, в знак протеста на увольнение его жены, а также менеджера группы, Глории Кавалеры, остальными участниками команды. К тому же он тяжело (   Читать дальше...   )Жанр: Groove Metal, Nu Metal, Thrash MetalПродолжительность: 00:09:05
+
+
+01 | Unleash (Clean Edit) | 4:33(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CB362A9D6057F2775103F0F2CDF25FCCB96CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573698   (331701) от 30.09.2022
 
 The Hu - Rumble Of Thunder (2022) [MP3|320 Kbps] <Folk Metal>
@@ -599,151 +745,6 @@ Phantasma - The Deviant Hearts (2015) [MP3|320 кб/с]<Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:389B8480F8482BBE646084C0163088DE9C70A23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582294   (323484) от 09.10.2022
-
-Teramaze - 7 Albums (1995-2022) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Of The Wounded [00:10:43]
-02. Gold [00:05:49]
-03. The Thieves Are Out [00:06:50]
-04. Until The Lights [00:06:20](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF3A17A39CDF9BF3E950FA3629201B6359C9876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371946   (323158) от 09.10.2022
-
-Magistarium - Дискография (2009 - 2022) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No World Without Hero [5:42]
-02. Into the Storm [4:56]
-03. Higher and Higher [4:47]
-04. Dreamlord Opera [7:02](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 06:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C22E16F586EC3E0FAE91DA63D0B3DE3B64CA408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421170   (322288) от 03.11.2020
-
-Them - Return to Hemmersmoor (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diluvium
-02. Age of Ascension
-03. The Tumultous Voyage to Hemmersmoor
-04. Free(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41025D36D7B5E5F5C8236332E7ADAA30C3654DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958028   (321969) от 22.11.2015
-
-Manimal - Trapped In The Shadows (2015) [MP3|320 кб/с]<Power, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irresistible
-02. March Of Madness
-03. The Dark
-04. Trapped In The Shadows(   Читать дальше...   )Жанр: Power, Heavy MetalПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F247CFAABDB56F8492EFB60DFA9CEC8962F06DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958727   (321616) от 22.11.2015
-
-Manegarm - Manegarm (2015) Limited Edition [MP3|320 кб/с]<Folk Metal, Viking Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321616.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blodörn
-2. Tagen Av Daga
-3. Odin Owns Ye All
-4. Blot(   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Black MetalПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0CF802194F81E0D57D9B1CAC68030DFB2A51C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

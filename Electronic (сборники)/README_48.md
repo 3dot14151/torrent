@@ -1,3 +1,90 @@
+###  Публикация: 1197289   (817707) от 06.01.2018
+
+VA - The Official UK Top 40 Singles Chart 05.01.2018 [MP3|248-320 Kbps] <Electropop, Alternative, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran – Perfect 4:23
+02. Eminem – River (Feat. Ed Sheeran) 3:41
+03. Big Shaq – Man’s Not Hot 3:06
+04. Rita Ora – Anywhere 3:35(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C780A83DBF21AE21135B86336496901B295DDBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382691   (817521) от 12.05.2020
+
+VA - New Electronic (2020) [MP3|320 Kbps] <House, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinthie - Bassline 5:10
+02. Yaeji feat. Nappy Nina - MONEY CAN'T BUY 2:51
+03. Jamie XX - Idontknow 5:22
+04. Booka Shade feat. Joplyn - Polar Lights 4:33(   Читать дальше...   )Жанр: House, ElectronicПродолжительность: 04:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E13D6977C1FEEBCAE019CEE19FCEE5ED8F4B437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382642   (817243) от 12.05.2020
+
+VA - Synthwave Artifacts: Retro Wave (2020) [MP3|320 Kbps] <Synthwave, Electronic, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817243.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Khrigar - Tranquility In The Abyss
+002. Reakttor - Sexy Arpeggio
+003. Maniac Lover - Man At The Crossroads
+004. Omega Danzer - Another Level(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthspaceПродолжительность: 08:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1E8E6A4F57740F2453B3404758E519A9E6432E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117707   (817190) от 23.03.2017
 
 VA - Pure Heart Chillout Love Party (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -658,93 +745,6 @@ VA - 7 Days: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFAD34C027537A79286E76BC28391FDE27CC395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118210   (811679) от 26.03.2017
-
-VA - Весенний Хаус Калейдоскоп Топ 50 (Compiled by Zebyte) (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mojiito - Summer Love  7:51
-02.  Passenger 10 & Lika Morgan - Golden Sky (Sons Of Maria Radio Mix)  3:07
-03.  Ultramarin - The Sea (George Whyman Remix)  5:12
-04.  Boehm - Music  7:19(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 05:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA5F72A89FD886A3100A96B36641ECBBBCAC7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118709   (811676) от 26.03.2017
-
-VA - Hedkandi: 100 European EDM (2017) [MP3|320 Kbps] <Club, Dance, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miles Dyson - Beyond (Extended Mix) 04:55
-002. Dizart - Just In The Way (Original Mix) 03:53
-003. Atside - Kitelahw (Jean Bloc Remix) 05:00
-004. #Monkeystuff - World Connection Feat Dmitry F. (Original Mix) 05:25(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 09:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18412B3CE12B4CFA3411C88477D1A590079B2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118717   (811659) от 26.03.2017
-
-VA - The Fourth Dimension: Psy Trance (2017) [MP3|320 Kbps] <Psychedelic, Psy Trance, Goa Trance, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811659.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Static Movement Vs. Impact - Atlantic Spirit (Vertex Rmx) 07:29
-002. Bionic Delay - Increasing Scale Factor (feat. Alternate Side) 08:17
-003. Electronic Traffic Feat. Tikki Masala - Nomad 13:31
-004. Imba - Cosmos In Her Eyes 08:08(   Читать дальше...   )Жанр: Psychedelic, Psy Trance, Goa Trance, Full OnПродолжительность: 12:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A975854E7F57AE5FAE1C6CF772903DD6E65391F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1253658   (381690) от 10.10.2018
+
+The Michelle Taylor Band - Dirty Love (2018) [MP3|320 Kbps] <Blues Rock, AOR>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanging on the Vine (03:54)
+02. One Foot in the Gutter (04:18)
+03. Highway 65 (04:59)
+04. Dirty Love (04:19)(   Читать дальше...   )Жанр: Blues Rock, AORПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCFC8688A5F35B331FB0E7EDE630B75DD2B1CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414854   (381046) от 10.10.2020
+
+Rory Gallagher - The Best Of (2020) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Penny (Remastered 2017) (4:04)
+02. Walk On Hot Coals (Remastered 2017) (7:02)
+03. Blister On The Moon (3:27)
+04. Loanshark Blues (Remastered 2017) (4:27)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB3EBBDCF08604990C574EFE8F13175BE99CABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253924   (379419) от 11.10.2018
 
 Eric Clapton - Happy Xmas (2018) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -687,64 +745,6 @@ VA - The Blues White Album (2002) [MP3|320 Kbps] <Blues, Cover>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55FE7B12EE0C6BD4AFB291A64B5989F9E30F83FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950797   (365993) от 28.10.2015
-
-Dudley Taft - Skin and Bones (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skin and Bones (03:59)
-02. Lonesome Memphis Blues (04:02)
-03. Ain't Nothing Gonna Stop Us Now (03:37)
-04. Leland Mississippi Blues (03:41)(   Читать дальше...   )Жанр: Blues Rock, Memphis BluesПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CDB88DCC289E6DDCD6FB73A4873D33456FAEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950856   (365989) от 28.10.2015
-
-Midnite Johnny (Morana) - So Complicated (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Trouble (03:29)
-02. Come On Home (03:52)
-03. Spy Boy (05:18)
-04. Everybody Ought To Make A Change (04:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB79A60D643EA3CB2B40B37338B28C55E2B7BD51
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1350944   (1002756) от 08.01.2020
+
+VA - Maelstrom: Progressive Trance (2020) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jaymee - Waterfall
+002. Nickax - Flames (Original Mix)
+003. Meles Astralis - Awake
+004. Tbo And Vega - Just A Fool (Timo Pralle Remix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2909336D05814EA2E326E234BDED0A9C788864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351184   (1002545) от 09.01.2020
+
+VA - Granjurema: Psychedelic Trance Party (2020) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altered State - Cloudsurfing
+02. Atyss - Black Snake (Original Mix)
+03. Britti & Intenscify - Contemplation Of The Cosmos
+04. Elowinz - Granjurema(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 06:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C636BA540B387479B8FC7636CBEC604A25DEDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351182   (1002476) от 09.01.2020
+
+VA - The Sound Of Now (2020) [MP3|320 Kbps] <Tech House, Electro, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamliki - Never Give Up
+02. Emanuele Rada - You Know Da Name
+03. Gidronique - Rain
+04. Mina Overoux - Electro Vibes(   Читать дальше...   )Жанр: Tech House, Electro, EDMПродолжительность: 07:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A872164F93F9D9C8CFF31887C092F230EA5947AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351303   (1002474) от 09.01.2020
 
 VA - Neon Night: Electro House (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
@@ -658,111 +745,6 @@ VA - Trance Nation Future Sound: Progressive Edition (2020) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C6E91E23717685E6E6FE0FB6C2609EB9C95500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597078   (1000491) от 02.01.2013
-
-VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B Van E - I Need You (Cut N Glue Chillout & Lounge Mix)
-02. Sky And Sand - Sunset (Comfort Version)
-03. Cazintel - Aliens in Love (Air Play Version)
-04. Mister Paul - You Don't Know (Vocal Exclusive Mix)
-05. Wine & Dine - Why Are We Here (Original Mix)
-06. Miguel Lando - Sylt (Exclusive Remaster Version)
-07. Muner DJ - This Is My Dream (Original Performant Mix)
-08. Exit Mars - Gliding (Exclusive Mix)
-09. Collective Sound Members - Fast Features
-10. Maurice Scoville - Perfect Day (Comfort Version)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 04:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8A8EDF27ED48FD3850C070CF53818643072687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598681   (1000044) от 04.01.2013
-
-VA - Euphoric Emotions Vol.41 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Orjan Nilsen - Between The Rays (Original Mix)
-002. Markus Schulz feat. Jennifer Rene - Not The Same (Eelke Kleijn Remix)
-003. Mario Hammer feat. Asheni - Life Before The Earthquake (Original Mix)
-004. Moonbeam feat. Avis Vox - Star Way (Big Room Original Mix)
-005. M.I.K.E. - Massive Motion (Original Mix)
-006. Mark Otten - So Serene (Original Mix)
-007. Kyau & Albert - A Night Like This (Original Mix)
-008. Majai - Emotion Flash (Elevation Big Room Remix)
-009. Kirsty Hawkshaw feat. Tenishia - Reasons To Forgive (Original Mix)
-010. John O'Callaghan feat. Betsie Larkin - Save This Moment (Gareth Emery Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD48D4287AD8292DD27A6C00D23487D7B576A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597920   (999931) от 04.01.2013
-
-VA - Aqua Trance Volume #01 - #31 (2012-2013) (Обновляемая) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 03:03:49
-
-01. Cathy Burton & Omnia - Hearts Connected (Skytech Remix) [07:53]
- 02. Ana Criado & Ronski Speed - Afterglow (Ronski Speed Remix) [08:32]
- 03. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Original) [11:01]
- 04. Daniel Wanrooy - Dog Day Afternoon [06:01]
- 05. Dash Berlin feat. Emma Hewitt - Like Spinning Plates (Club Mix) [05:39]
- 06. Dub Effect feat. Mix Usha - Perfect Love [05:40]
- 07. Kenneth Thomas feat. Colleen Riley - The Heart Speaks (Damian William Remix) [06:31]
- 08. Ian Betts - Under Below (Original Mix) [08:06](   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:16:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

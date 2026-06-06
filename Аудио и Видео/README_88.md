@@ -1,3 +1,58 @@
+###  Публикация: 1018545   (755335) от 20.05.2016
+
+Волки и овцы: бе-е-е-зумное превращение  (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимцу стаи, молодому и беззаботному волку Серому невдомек, что скоро он окажется чужим среди своих друзей. Претендуя на роль вожака стаи и на руку (вернее, лапу) и сердце самой красивой волчицы Бьянки, Серый продолжает дурачиться и устраивать розыгрыши над сородичами. Все переворачивается с ног на голову, когда он решает изменить себя с помощью волшебного зелья. (   Читать дальше...   )Производство: РоссияЖанр: Мультфильм, семейный, комедия, приключенияРежиссер: Андрей ГалатАктеры: Александр Петров, Елизавета Боярская, Сергей Безруков, Екатерина Иванчикова, Юрий Гальцев, Андрей Рожков, Татьяна Шитова, Диомид Виноградов, Андрей Бархударов, Дмитрий ФилимоновПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6147CCCB781567A3076BD05BC9E990934BAD3825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522882   (755309) от 09.01.2022
+
+VA - The Electro Swing Revolution, Vol. 3 (2012) [AAC|~321 Kbps] <Electro Swing, Nu Jazz, Breakbeat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna Maria Kaufmann - It's a Good Day (3:17)
+02. Bart&Baker, Nicolle Rochelle - The Swing Phenomenon (Radio Edit) (3:50)
+03. Just Bubbles - Rising for the Moon (2:59)
+04. Parov Stelar, Cleo Panther - Sally´s Dance (Original) (3:45)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, BreakbeatПродолжительность: 02:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9750BA9249947FFD58798D9C5C43665AFB1DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281140   (754962) от 06.02.2019
 
 Щелкунчик и четыре королевства / The Nutcracker and the Four Realms (2018) BDRip [1080p] ATV
@@ -657,64 +712,6 @@ VA - Christmas Jazz Night 2019 (Best Christmas Jazz Songs) (2018) [AAC|~317 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE42317D4588CB9FD19FC3129ED1265B6E142839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523090   (753518) от 10.01.2022
-
-VA - Chilling Inside (2022) [AAC|~290 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crispy Galaxy - Cream Soda (6:09)
-02. Eulenspiegel - An Unspoken Thing (5:41)
-03. Hints of soul - Ebb and Flow (6:00)
-04. Ritscher - Sweet Whispers (6:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193ED25793CA73A8DD7C67E17A056785D781B82C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523074   (753516) от 10.01.2022
-
-VA - Christmas Jazz Night 2020 (Best X-Mas Jazz Music) (2019) [AAC|~326 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massimo Faraò Trio, Giampaolo Casati - The Masquerade Is Over (5:43)
-02. Sandro Gibellini Trio, Sandro Gibellini - Walk on By (2:21)
-03. Giacomo Bondi, Cristiana Polegri, Alfrebo Bochicchio, Fabrizio Foggia - Englishman in New York (3:54)
-04. Alyssa Zezza - September (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6958FDC4463F8677CDCB248062F178B338C41ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

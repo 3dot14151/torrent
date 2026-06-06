@@ -1,3 +1,293 @@
+###  Публикация: 1768558   (33058) от 25.12.2024
+
+VA - Classical Music Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
+02. Oclassica Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)
+03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+04. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:34)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12C4E05E54AC8035AE7BB3A38BE8132193D5FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769146   (32818) от 27.12.2024
+
+VA - Classical Music Heritage (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:34)
+02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+04. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509FBE2C17C0D750465A213FFAE3F7A0301C400C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770608   (32186) от 02.01.2025
+
+Andre Rieu, Johann Strauss Orchestra - Love Is All Around (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Entry Of The Gladiators, ARV (Live) (5:41)
+02.Blaze Away (Live) (4:06)
+03.Nel blu dipinto di blu (Live) (4:41)
+04.Funiculi Funicula (Live) (3:45)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80F3881EA602F0CF31C0D0F1A5F62C3BD5E312E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773026   (31037) от 13.01.2025
+
+VA - Essential Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
+04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802125168D3EADCE13003AD4A2617652D452DC6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774924   (29999) от 23.01.2025
+
+VA - Heavy Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight III. Presto agitato (8:07)
+02. Vladislav Mikhalchuk - 12 Etudes, Op. 25 No. 12 in C Minor Ocean (2:32)
+03. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. 13 Pathétique I. Grave - Allegro di molto e con brio (9:07)
+04. Misha Fomin - 12 Etudes, Op. 10 No. 12 in C Minor Revolutionary (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02AB09EC74F17C55A9C63579AF604CADD8C56BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776331   (29116) от 31.01.2025
+
+VA - Reflections on Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+02. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:34)
+03. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
+04. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C578950123CB4580C5C5C8265E22FB47007D7659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776243   (28270) от 08.02.2025
+
+Bach 333: The New Complete Edition (222CD) (2018) [FLAC|Lossless|tracks + .cue] <classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sacred Cantatas (CDs 1-48)
+Sacred & Secular Vocal (CDs 49-105)
+Organ Works (CDs 106-125)
+Keyboard Works (CDs 126-146)Жанр: Classical, baroqueПродолжительность: 282:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9525E0595670DA2DC5CC4057E7C7E08EDEC493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780177   (26999) от 20.02.2025
+
+Johann Sebastian Bach - Die kompletten Werke von (Edition Bachakademie) (2011) 172 CDs [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wie Schön Leuchtet Der Morgenstern Bwv 1 (Kantate)
+1.01. BWV 001 - Coro: Wie schön leuchtet der Morgenstern (7:41)
+1.02. BWV 001 - Recitativo (T): Du wahrer Gottes und Marien Sohn (1:08)
+1.03. BWV 001 - Aria (S): Erfüllet, ihr himmlischen göttlichen Flammen (4:40)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 178:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59C4B744665E755711C68AC0CDDFC3A47F49494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780787   (26984) от 20.02.2025
+
+Mozarteumorchester Salzburg - Next Generation Mozart Soloists Vol.11 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical, Symphony Orchestra>
+
+>>Классика
+>>Классика (HD Audio)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 3 in D Major, KV 40 (Wolfgang Amadeus Mozart)
+01 - I. Allegro maestoso (Cadenzas by W. A. Mozart) [5:06]
+02 - II. Andante (Cadenzas by W. A. Mozart) [3:35]
+03 - III. Presto (Cadenzas by W. A. Mozart) [4:44](   Читать дальше...   )Жанр: Classical, Symphony OrchestraПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEE43BAA4FD8786B8C7F22F637D0C4C39581E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781034   (26951) от 21.02.2025
+
+Вячеслав Бутусов - Плач Адама (2025) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26951.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Врата открываются
+2. Картина Рая
+3. Утро в Раю
+4. Появление дьявола(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BAE5225DF3D617DB7553780EE474E76768B15D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785745   (24161) от 19.03.2025
 
 Ильин Роман - Бетховен. К Элизе (2025) [MP3|320 Kbps] <Classic, chamber>
@@ -454,35 +744,6 @@ VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62A5710C5233E65BAD700E0A94D32BB4EB0E9E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820337   (526) от 27.09.2025
-
-VA - Best Piano Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)
-02. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight II. Allegretto (2:10)
-03. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight III. Presto agitato (8:07)
-04. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD8033DEFFA9A48761FC36BB90E7CA1CAFCC98D
 ```
 
 https://mybot314.ru/tekegram_catalog/

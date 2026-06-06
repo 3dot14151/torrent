@@ -1,3 +1,32 @@
+###  Публикация: 1281979   (748418) от 10.02.2019
+
+Windswept - The Onlooker (2019) [MP3|320 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I’m Oldness And Oblivion (Intro)
+2. Stargazer
+3. A Gift To Feel Nostalgia
+4. Disgusting Breed Of Hagglers(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB399845DAC6E0192FEDD4A90E31465EF528AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523922   (748230) от 13.01.2022
 
 Shadow of Intent - Elegy (2022) [MP3|320 Kbps] <Symphonic Deathcore>
@@ -709,35 +738,6 @@ Kamelot - The Shadow Theory (2018) Deluxe Bonus Version [MP3|320 Kbps] <Symphoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A008882EDF77258B6CAB334F661586C62D645A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217561   (742059) от 05.04.2018
-
-Caliban - Elements (2018) Deluxe Edition [MP3|320 кб/с]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742059.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:02] 01. This Is War
-[04:07] 02. Intoxicated
-[03:57] 03. Ich Blute Für Dich (feat. Matthi from 'Nasty' and Sebastian 'Sushi' Biesler from 'Eskimo Callboy')
-[04:14] 04. Before Later Becomes Never (feat. Chris 'CJ' McMahon from 'Thy Art Is Murder')(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E71A22F39835A7BBB83B0E1B14B4F8E085473A
 ```
 
 https://mybot314.ru/tekegram_catalog/

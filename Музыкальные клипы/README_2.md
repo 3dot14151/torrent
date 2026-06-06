@@ -1,3 +1,55 @@
+###  Публикация: 601103   (998364) от 10.01.2013
+
+DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDB77D3B6DCD95C35D4DF8B6B6B9E7E5D1203F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601102   (998332) от 10.01.2013
+
+Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, PopПродолжительность: 00:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E358197BBEBF601A7A1C4EA70519F93A21B60CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601455   (998260) от 10.01.2013
 
 Лучшие клубные видеомиксы / Euroadrenaline Video Yearmix 2012 [720p] HDTVRip
@@ -675,58 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A891A1D93077FC7BF2D65D4A7C446566FE36A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609890   (991231) от 28.01.2013
-
-David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (2011) BDRip [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D87314B768A9D0EC7D959D87126E711C362ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609529   (991229) от 28.01.2013
-
-Inna - Endless (2011) HDRemux [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95170BDD77332826199E674DEA90797EDB77641A
 ```
 
 https://mybot314.ru/tekegram_catalog/

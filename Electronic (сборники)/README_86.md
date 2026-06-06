@@ -1,3 +1,90 @@
+###  Публикация: 1402899   (697328) от 16.08.2020
+
+VA - TOP Non-Stop 2010-2019 - Deep House (2020) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umami - And Stay With Me There Forever (2019) (4:02)
+02. Corazza & Steve Paradise - Pachamama (FNX Omar remix, 2018) (5:15)
+03. Damian Lazarus & The Ancient Moons - Vermillion (&Me remix, 2015) (7:12)
+04. Mike Salta - Escape From Rico Bay (Drop Out Orchestra club cut, 2012) (5:35)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 09:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C926E7DA21667718DA3694D5DFC92772874E7B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133215   (697218) от 11.05.2017
+
+VA - Trance Сollection Vol.60 (2017) [MP3|320 Kbps] <Trance , Progressive Trance ,Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4 Strings & Denise Rivera - In The Middle Of A Dream (Original Mix) 5:13
+002. Above & Beyond, OceanLab - On a Good Day (ilan Bluestone Remix) 4:22
+003. Airborn, Bogdan Vix & KeyPlayer Feat. Danny Claire - What Is Loneliness (Original Mix) 6:22
+004. Akamana & Alaera - Frozen Sky (Original Mix) 9:02(   Читать дальше...   )Жанр: Trance , Progressive Trance ,Uplifting TranceПродолжительность: 10:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CC4F75EFA0A6E6D71C6D4CA3FEDC7FECC65CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132957   (697215) от 11.05.2017
+
+VA - Mimicry 2: Psy Trance Digest (2017) [MP3|233-320 Kbps] <Psychodelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Awwen Vs Overdream - Forest Virus 8:17
+002. Kaayaas - Aurora Borealis 7:07
+003. Lost Reflection - Selene 147 Bpm 8:28
+004. Music Simplified - Atmic Spheres 5:58(   Читать дальше...   )Жанр: Psychodelic TranceПродолжительность: 10:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7759749D59F3BAD8445F555AD16B90B39A930A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133111   (697214) от 11.05.2017
 
 VA - Dance Fashion Level 001 May (2017) [MP3|320 Kbps] <House, Progressive, Miami Bass, Future House, Moombahton>
@@ -657,93 +744,6 @@ VA - World Wide Trance # 01 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D4FFCFF75566AFA76519BD4554FAF82A7C7FC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133549   (693324) от 13.05.2017
-
-VA - Synthetic  vol.3 - Electropop Edition (2017) [MP3|320 Kbps] <Electropop, Synthpop, Electroclash >
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marsheaux - Empire State Human (03:22)
-02. Golden Boy with Miss Kittin - Rippin Kittin (04:47)
-03. Kasper Bjorke - Hummingbirds (with Jacob Bellens) (04:39)
-04. Glass Apple Bonzai - Night Maze (05:12)(   Читать дальше...   )Жанр: Electropop, Synthpop, ElectroclashПродолжительность: 01:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29EBE7DAABB7023AB978AB0BCFFB002262DEF59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221562   (693183) от 25.04.2018
-
-VA - DNA Injection: Techno Party (2018) [MP3|192-320 Kbps] <Techno, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693183.jpg" />
-</div>
-
-
-###  Подробнее
-
-На диске творится настоящая гипно бионическая магия. Быстрые биты и размеренно плывущая по синусоиде мелодия обрастает дополнительными гармониями и красками, и с каждой минутой прибавляется десятки дополнительных звуков, которые к пятой или шестой минуте унесут ваше сознание в умиротворенное и отстранённое пространство.01. NagoviciN - My Beloved Wife! (Original Mix)
-02. Frequency Fifty - A'Dora
-03. Joven Misterio - Shakerz Nights (Original mix)
-04. Robben Cepeda - Tribal Shades (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 05:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BC624160FB35CE6FD3B762088E9404C0768A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221532   (693180) от 25.04.2018
-
-VA - Night Dreamer: Chill Deep House (2018) [MP3|320 Kbps] <Deep House, Chill House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693180.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 1Kilo - Duro Igual Concreto (Hisashi & RFeL Remix)
-002. Natural Soul - Get Ready (Phisicall Lover Mix)
-003. Hess Is More - Yes Boss (Mr. Gun X Isabelle Remix)
-004. K Tonique - Give At To Me (Ibiza Night Mix)(   Читать дальше...   )Жанр: Deep House, Chill House, Electro HouseПродолжительность: 08:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CA7BDBE327D0F6CF7143647760EA071DA753D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

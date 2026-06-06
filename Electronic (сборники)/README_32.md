@@ -1,3 +1,94 @@
+###  Публикация: 991823   (904564) от 29.02.2016
+
+VA - Shake That House Vol. 5 (2016) [MP3|320 кб/с] <House, Electro House Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stev Bray - You and Me
+ 02. DJ Mckoy - Give Me Your Space
+ 03. Fos - Gambay (feat. Michael A.M)
+ 04. Lowave & Skvatt - Combination(   Читать дальше...   )Жанр: House, Electro House DanceПродолжительность: 03:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E3B120056AF91BF7AB608E2ECB84A443B1D88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636288   (904472) от 29.03.2013
+
+VA - Exotik Lounge (2013) [MP3|320 кб/с]<Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ragi Ravin - Bali Sunset Chill Dreams (Buddha Beach Lounge Shortplay Mix) [11:18]
+02. Lotus Style Cult - Samota (Chop Suey Mix) [05:00]
+03. Stardust Alchemy - A Dream Under Your Star (After Dark Soleil Mix) [05:12]
+04. Skyfall - Particle of Soul [04:42]
+05. Aakarshan - Tantra Cafe (Sacred Spirit of Love Mix) [04:40]
+06. Ragi - Voyage to India (Buddha Sunset Del Mar Vocal Mix) [05:55]
+07. Sweet Velvet - La Plena Noche (feat. Debora Vilchez) [06:31]
+08. Pathetique - Au Clair De La Lune (feat. Rainfairy)Жанр: Lounge, ChilloutПродолжительность: 02:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E7C2BBC0279DBAA34DA985DDB93F597785EBC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991829   (904459) от 29.02.2016
+
+VA - Top Lounge Moments (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - On the Lake
+02. Don Gorda Project - Feeling Free
+03. Cane Garden Quartet - Out With Friends
+04. Baghira - Put Your Arms(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03409A6E5E9ED59617132FE4503F16A16D8C8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992009   (904458) от 29.02.2016
 
 VA - Dancefloor Hits State Tribute (2016) [MP3|258-320 кб/с] <House, Tropical, Future House, Club, Tribal, Progressive>
@@ -658,93 +749,6 @@ VA - Mystic Adventures (2020) [MP3|320 Kbps] <New Age, Ambient, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19B8229CBD2C078DFB3E6A4E6E2E49E2A29A6A7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369563   (901641) от 24.03.2020
-
-VA - Beatport Electro House: Sound Pack #36 (2020) [MP3|257-320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901641.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Orsen - Before The Storm
-002. Fabri Lopez - Divine Air
-003. Dorian Craft - Avila (Original Mix)
-004. Yeophis - Another Beach(   Читать дальше...   )Жанр: HouseПродолжительность: 13:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCB13CC9F5788CA79A47CF9E32FE5FC8A1329C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100099   (901306) от 03.02.2017
-
-VA - 100 HITS Around Gravitation (2017) [MP3|252-320 Kbps] <Funky, Progressive, Hands Up, Club, Bigroom, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Robin & Jonas Saalbach - Fridge Slap (Original Mix) 07:34
-002. Jdakk & French - Just A Feeling (Belfast Radio Edit) 03:51
-003. Igness - Avor 2015 (Extended Arena Mix) 05:00
-004. Hi-Lo - Renegade Mastah (Original Mix) 04:04(   Читать дальше...   )Жанр: Funky, Progressive, Hands Up, Club, Bigroom, Future HouseПродолжительность: 09:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40F1ABDABE541CAEAA861E7713A546705F3BF16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100182   (901304) от 03.02.2017
-
-VA - Space And Time (2017) vol.3 [MP3|320 Kbps] <Disco, Electonic, Space-rock>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney M. - Nightflight To Venus (4:55)
-02. Andromeda - Star Ship (3:42)
-03. Automat - Advance (4:08)
-04. Azul Y Negro - Mar De La Tranquilidad (4:07)(   Читать дальше...   )Жанр: Disco, Electonic, Space-rockПродолжительность: 05:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80414B507B1174CFDE6D9F72604518BAA39C8895
 ```
 
 https://mybot314.ru/tekegram_catalog/

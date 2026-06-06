@@ -1,3 +1,61 @@
+###  Публикация: 1408852   (451596) от 14.09.2020
+
+DEADLIFE - City of Eternal Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Breach [00:01:26]
+02. Generation Damage [00:04:40]
+03. We Are One & the Same [00:04:23]
+04. To Unify With Clear Sight [00:05:05](   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave, DarkwaveПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712FD835C7D9B6EBF1DDC3938D8B8538E42CBD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408796   (451459) от 14.09.2020
+
+PRIZM - All Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night [00:03:48]
+02. Disco Biscuit [00:04:00]
+03. Lose You [00:03:18]
+04. Mine [00:03:51](   Читать дальше...   )Жанр: Electro, SynthpopПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481AF625365E58FC24FB546A035565BA9A16A747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322295   (450808) от 28.08.2019
 
 SAINT PEPSI - Mannequin Challenge (2019) [FLAC|Lossless|WEB-DL|tracks] <Vaporwave, Future Funk, Nu-Disco, Chillwave>
@@ -693,64 +751,6 @@ Carpenter Brut - Leather Terror (2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79FE3E5EF5A47EFBA0FF36D538549A70383E273C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253457   (381619) от 10.10.2018
-
-Daniel Deluxe - Corruptor • Instruments of Retribution (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Firewall (3:16)
-02. Cypher (3:53)
-03. Price of Progress (3:53)
-04. Silent Kings (3:11)(   Читать дальше...   )Жанр: Electronic, Synthwave, Darkwave |Продолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB76C159AEBB9A8BC5F81F0A16EA902EDFFEA756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574710   (381558) от 07.09.2022
-
-Purple Fog Side & Elsehow - How To Disappear (2022) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Post-Punk, Dreampop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To the Moon and Back (00:05:46)
-02 - Running on My Mind (00:04:19)
-03 - State of Grace (00:05:33)
-04 - Shading a Life (00:05:20)(   Читать дальше...   )Жанр: New Wave, Post-Punk, DreampopПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DFAD724A6971D67C5179E9A79E1C72644A29101
 ```
 
 https://mybot314.ru/tekegram_catalog/

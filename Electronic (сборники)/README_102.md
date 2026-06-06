@@ -1,3 +1,90 @@
+###  Публикация: 1143485   (634968) от 18.06.2017
+
+VA - Vocal Deep House Vol.30 (Retro Deep) (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pet Shop Boys - Home And Dry (Max Lyazgin Remix)  5:28
+02.  Depeche Mode - Enjoy The Silence (Donatello Blackout Remix)  6:47
+03.  Metallica - Nothing Else Matters (Yastreb Remix)  5:18
+04.  Silent Circle - Touch In The Night (DJ Sharapoff Remix)  4:50(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47EF8652F7B7691074E41DA70A423554A0F23DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034469   (634368) от 13.07.2016
+
+VA - Endless Motion - Only Trance (episode1) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Andrew Rayel Extended Remix) 6:56
+002. Denis Kenzo & Alexandra Badoi -  More Time (Original Mix) 5:49
+003. Alex M.O.R.P.H. & Den Rize feat. Natalie Gioia -  Angelic (Original mix) 7:56
+004. NoMosk & Ansia Orchestra -  Adventure  (UDM Remix) 6:58(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 11:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8655F82C8F458CEAE86834FDC1AF7F517ADA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034737   (634362) от 13.07.2016
+
+VA - Endless Motion - Only Trance (episode2) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634362.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Armin van Buuren Extended Remix) 6:11
+002. Bobina & Kyle Richardson -  Love Is the Answer (Dimension Remix) 5:11
+003. Gareth Emery feat. Janet Devlin -  Lost (Ferry Corsten Remix) 6:44
+004. Talla 2XLC pres. Alan Walker -  Faded (DJ ALEKSARD Mashup) 6:35(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591F3CB9319BF9DF2CC16CB7D518CA704C62D564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034330   (634305) от 13.07.2016
 
 VA - Velvet Moonlight: Relax Partiture (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -682,99 +769,6 @@ VA - Furious Dubstep Attacks From Evolinte (2012) [MP3|320 кб/с]<Dubstep, Dru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C9FEEA1F36E57AED5E938B7D3BED986EF19DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143920   (631634) от 20.06.2017
-
-VA - Drumsound and Bassline Sampler (2017) [MP3|320 Kbps] <Drum&Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631634.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tantrum Desire - Gravitate
-002. 3D Stas - Loud Thief (Remaster)
-003. Drumsound & Bassline Smith - The Odyssey (VIP)
-004. Agressor Bunx - The Suffering(   Читать дальше...   )Жанр: Drum&Bass, DubstepПродолжительность: 09:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13B2F42E26A1DFDFCA23C5AF950D826D4DB9A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520777   (631615) от 09.07.2012
-
-VA - A State Of Vocal Trance Volume 1 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631615.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
-002. Mike Shiver feat. Bo Bruce - Still Here
-003. Neev Kennedy - The Unknown (DNS Project Extended)
-004. Omnia & IRA - The Fusion (Original Mix)
-005. Pulser feat. Molly Bancroft - In Deep (Pulser's Main Floor Remix)
-006. Rave Channel - Illusion (Original Mix)
-007. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion (Original Mix)
-008. Ronski Speed feat. Sir Adrian - Seen It All (Alexander Popov Mix)
-009. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
-010. Sebastian Ingrosso, Alesso & Ryan Tedder - Calling (Lose My Mind) (Extended Club Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F2BFBD1682F2B33C159DF28561ADACA1E83E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143923   (631494) от 20.06.2017
-
-VA - Diamond Euphoria: Night House Party (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631494.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Deep Spirit - Lonely 2K16 (Club Edit)  3:25
-002.  Moonrider - Resurrection (Radio Edit)  3:39
-003.  Arctic Motion - Black & White (Radio Edit)  3:33
-004.  Miguel Alcobia - We Get It Right Sometimes (Radio Edit)  3:12(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB6F1989719F3CAF4F15DD5534AC713A0BDB718
 ```
 
 https://mybot314.ru/tekegram_catalog/

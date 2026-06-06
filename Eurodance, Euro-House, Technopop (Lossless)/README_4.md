@@ -1,3 +1,119 @@
+###  Публикация: 269926   (287917) от 14.12.2010
+
+Mr. President - A Kind Of... Best! (2000) [FLAC|Lossless]<Pop, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287917.jpg" />
+</div>
+
+
+###  Подробнее
+
+MR. Pesident - бременское трио в составе: Lady Danii (Daniela Haak), T Seven (Judith Hildebrandt) и Lazy Dee (Delroy Rennalds).01. Up 'N Away 2K (Radio Edit 2000)
+02. Gonna Get Along (Without Ya Now) (Radio Edit)
+03. Show Me The Way (Radio Edit)
+04. Coco Jamboo (Radio Version)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335589   (284264) от 04.11.2019
+
+S.E.X. Appeal - Sexy Boy... Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peeping Tom (3:53)
+02. Fragile Love (3:43)
+03. Hanky Spanky (3:40)
+04. Manga Maniac (3:40)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E229DF61A3CEC6BE4C8CD93C4B9BE75BB18EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335593   (284253) от 04.11.2019
+
+S.E.X. Appeal - Russian Roulette (2013) 3H Dance, 2019 [FLAC|Lossless|WEB-DL|tracks] <EuroDance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russian Roulette (3:44)
+02. French Kiss (3:35)
+03. Scream My Name (3:32)
+04. Poison Called Love (3:42)(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8D7D3B2384B441DF5155E88F3E7ED66C8ECE59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336052   (282188) от 05.11.2019
+
+VA - The Best Of Italian Style (2014) 5CD, Compilation [FLAC|Lossless|tracks + .cue] <Euro-House, Eurodance, Italodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jinny - Keep Warm (Extended Mix) (5:51)
+02. Aladino - Brothers In The Space (Grunge Happy Mix) (5:29)
+03. Dirty Mind - The Killer (Killer Mix) (6:01)
+04. Deadly Sins - We Are Going On Down (Gone With The Wind Mix) (5:54)(   Читать дальше...   )Жанр: Euro-House, Eurodance, ItalodanceПродолжительность: 04:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9694B9F8A387826C73F07504D346DF6B89AD4858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266665   (269945) от 02.12.2018
 
 Ace Of Base - Playlist: The Very Best Of Ace Of Base (2011) Remastered [FLAC|Lossless|tracks + .cue] <Europop, Eurodance>
@@ -20,6 +136,35 @@ Ace Of Base - Playlist: The Very Best Of Ace Of Base (2011) Remastered [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1107CEA0AD0E08B08904CE592CAA696F47E15E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 141484   (223150) от 20.10.2022
+
+Haddaway - All The Best - His Greatest Hits (1999) [APE|Lossless|image+.cue]<EuroDance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_223150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is Love (Original 7'' Mix) (4:30)
+02. Life (Radio Edit) (4:16)
+03. I Miss You (Radio Edit) (3:39)
+04. Rock My Heart (Radio Mix) (4:10)(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B1080C9874DDC629BBF011DF755F09C0F4110F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,150 +733,6 @@ C.C. Catch - Greatest Hits (2018) Ear Music [FLAC|Lossless|tracks + .cue] <Euro-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F42F7770E7CCDC237F6C5707648C5DD783B889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679402   (137495) от 25.11.2023
-
-Army Of Lovers - Sexodus (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexodus
-02. Love Is Blue (feat. Olya Polyakova)
-03. What’s That Look (feat. Tamer Wilde)
-04. Romanism(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2D2235DD407394007239930BFB089BE02C579A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825196   (136757) от 17.10.2025
-
-Yellow Claw - Blood For Mercy (2015) 10th Anniversary,  Remaster, 2025, Mad Decent [FLAC|Lossless|WEB-DL|tracks] <trap music, hip hop, dubstep, hardstyle and moombahton>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roller (2025 Remaster) [00:03:17]
-02. Higher (feat. Lil Eddie) (2025 Remaster) [00:03:36]
-03. For The Thrill (feat. Becky G) (2025 Remaster) [00:04:16]
-04. Nightmare (feat. Pusha T & Barrington Levy) (2025 Remaster) [00:04:06](   Читать дальше...   )Жанр: trap-music, hip-hop, dubstep, hardstyle, moombahtonПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5C5C91C6EEA34AAE91D9413DE77CC7706A0563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689818   (123934) от 07.01.2024
-
-Cabballero - The Elements (1995) [FLAC|Lossless|image + .cue] <Trance, Eurodance, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 1:58
-02. Hymn (Sphinx Club Mix) 7:03
-03. Nanaya 6:13
-04. Wonderful World 3:59(   Читать дальше...   )Жанр: Trance, Eurodance, EuropopПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB82E9C94C3891DF98F287C69F224FD590995107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691949   (122974) от 14.01.2024
-
-V.A. - ITALO DISCO 90's remember (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Café Chantal - Café Chantal (Radio Version)
-02. Beatmatic - This Is Your Dream (Short Cut)
-03. Crystal Ball - The One (Single Version)
-04. Dj Cube,Linda Kay - Love Me (7th Version)(   Читать дальше...   )Жанр: Eurodance, EuropopПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:025B2FF5883D27D3134F5E5DE45A1C9C9E979800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715772   (111494) от 13.04.2024
-
-E-Bomber - Your Tee Is Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Dance-Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E-Bomber – Your Tee Is Hot (radio mix) (3:51)
-02. E-Bomber – Your Tee Is Hot (Party XL remix) (4:07)
-03. E-Bomber – Your Tee Is Hot (Piano Xs remix) (3:36)Жанр: Euro-Dance, Dance-PopПродолжительность: 00:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A81AB05B459A6054DED9393A8CFFCE16FBB60F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

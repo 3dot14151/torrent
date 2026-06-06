@@ -1,3 +1,35 @@
+###  Публикация: 597263   (1000490) от 02.01.2013
+
+VA - The Heart of Crystal. Prajna Paramita Sutra (2006) [MP3|320 кб/с]<New age, Relax, Meditative>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000490.jpg" />
+</div>
+
+
+###  Подробнее
+
+(14:22) 1. Prajna Paramita Heart Sutra
+(14:53) 2. Guanyinshan inspired song
+(05:40) 3. Sound of Buddha
+(06:02) 4. Flower Chan
+(07:23) 5. Om Mani Padme Hum
+(10:40) 6. Yoji water purification
+(10:55) 7. Auspicious actionsЖанр: New age, Relax, MeditativeПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE1E561192D04E02F4B3AEA7995012135F0C519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597393   (1000486) от 02.01.2013
 
 VA - Rose Quartz. The Rose Quartz Of Buddist (2005) [MP3|320 кб/с]<New age, Instrumental>
@@ -777,35 +809,6 @@ the brilliant green - discography (1997-2010) [MP3|320 кб/с]<JRock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F66C2DB99B1879A7DA52041D21F322D694C51C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981348   (952511) от 31.01.2016
-
-Kanae Nozawa - Planet (2014) [MP3|320 кб/с] <Instrumental Folk, New Age, Relax>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шикарный оркестровый инструментал с соло на китайском народном музыкальном струнном инструменте - Niko!1. Planet
-2. shizuku
-3. 水月
-4. 星の祭(   Читать дальше...   )Жанр: Instrumental Folk, New Age, RelaxПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C14923D31901B2787CFB4E87F742E20D66A5E19
 ```
 
 https://mybot314.ru/tekegram_catalog/

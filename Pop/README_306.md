@@ -1,25 +1,25 @@
-###  Публикация: 667193   (161727) от 04.11.2023
+###  Публикация: 587885   (162703) от 03.11.2023
 
-ВИА «Красные Маки» - 3 Альбома (2003-2008) [APE|Lossless]<Pop, Retro>
+Леонид Утесов - 11 альбомов (1995-1997) [FLAC|Lossless]<Retro>
 
 >>Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. "Первая любовь (Музыка и слова Д.Руссоса,р.т. А.Григорьева)"
-02. "Есть закон у тайги (Н.Богословский - М.Танич)"
-03. "Соловьиная роща (Д.Тухманов - А.Поперечный)"
-04. "Кружатся диски (Д.Тухманов - И.Кохановский)"(   Читать дальше...   )Продолжительность: 01:05:17
+01. Вокруг Европы за 3.80
+02. Вокруг Европы за 3.80 — Два сольди
+03. Вокруг Европы за 3.80
+04. Вокруг Европы за 3.80 — Одесский порт(   Читать дальше...   )Жанр: RetroПродолжительность: 01:14:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:139F8B54D8E4B1BA3B4A52A8D7218FB19B4CA572
+magnet:?xt=urn:btih:F93BA6F5C98623FFC3F221E2622049FCD0368F26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,34 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 460606   (161707) от 04.11.2023
+###  Публикация: 582038   (162699) от 03.11.2023
 
-VA - Ретро-Дуэты - Листья желтые над городом кружатся (2006) [FLAC|Lossless]<Retro, Pop>
+Анна Герман - Звёзды советской эстрады. Хиты 60-70-х (2010) [APE|Lossless]<Retro>
 
 >>Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. А.Вески и А.Макарский - Спасибо тебе (4:24)
-02. О.Зарубина и А.Серов - Круиз (4:57)
-03. Н.Караченцов и И.Уварова - Что тебе подарить? (3:38)
-04. Г.Бовина и В.Лынковский - Листья желтые (3:12)
-05. А.Герман и С.Рахимов - Только ты (2:48)
-06. Л.Сенчина и Э.Хиль - Шутка (2:51)
-07. И.Понаровская и Е.Чернышов - Однажды (3:44)
-08. Т.Рузавина и С.Таюшев - Осенняя мелодия (3:48)
-09. Г.Белов и Э.Жерздева - Поговори со мной (3:30)
-10. А.Фрейндлих и В.Трошин - Вас хочу будить утром (3:23)(   Читать дальше...   )2006Жанр: Retro, PopПродолжительность: 01:07:35
+01. Аве Мария (Ш.Гуно - текст классический)
+02. Осенняя песня (П.Бояджиев - В.Сергеев)
+03. Белая черёмуха (В.Добрынин - А.Жигарев)
+04. Тропинка (М.Блантер - М.Исаковский)(   Читать дальше...   )Жанр: RetroПродолжительность: 01:11:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C36A1E9FD20314358F88A3006543605B72E84DF
+magnet:?xt=urn:btih:EA8A8907E5DE57A2E46C8EA9A02570F43842F29E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -62,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481669   (161699) от 04.11.2023
+###  Публикация: 654160   (162694) от 03.11.2023
 
-ВИА Лейся, Песня - Лучшее (2008) [FLAC|Lossless|image + .cue]<Pop>
+VA - Хиты 80-х. Как молоды мы были (в 4-х частях) (2008) [FLAC|Lossless|image + .cue] <Retro, Pop>
 
 >>Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Прощай
-02. Люблю тебя
-03. Последнее письмо
-04. Ласточка(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:09
+[04:42] 01. Земляне - Трава у дома
+[04:52] 02. В.Легкоступова - Ягода малина
+[04:41] 03. А.Серов - Пустыня
+[04:29] 04. В.Добрынин - Синий Туман(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 04:44:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4FC449C27E8BC163C6DB83CD2CD0A206410DE3E
+magnet:?xt=urn:btih:F7B29F1B3465E01270C4FDD232623E3566E4E6AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -91,30 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 285236   (161684) от 04.11.2023
+###  Публикация: 468354   (162664) от 03.11.2023
 
-Владимир Маркин - Звездная серия (2001) [FLAC|Lossless|tracks]<Pop>
+VA - Русская коллекция. Хиты 80-х (2009) 6CD [WavPack|Lossless|image + .cue] <Pop>
 
 >>Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162664.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Владимир Маркин - музыкой занимается ещё со школьных времён.
-С 1980 года в течение шести лет работает культоргом в спортивно-оздоровительном лагере при МЭИ «Алушта». Там получает предложение стать участником музыкальной группы «Волшебные сумерки», а позже — передачи «Веселые ребята».
-В 1983 году в ДК Московского энергетического института организует трио «Трудное (   Читать дальше...   )01. Ты со мной, мое трудное детство
-02. Сиреневый туман
-03. В доме восемь...
-04. Я готов целовать песок(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:25
+CD 1: (01:18:35)
+
+01. Аквариум - Город золотой [02:39]
+02. Юрий Лоза - Плот [05:05](   Читать дальше...   )Жанр: PopПродолжительность: 07:44:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F1EF51865EF62ECF34511C88AF2065167DEA36A
+magnet:?xt=urn:btih:86D759FBB229364C92F08A6535EF17EE2060EFDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -122,175 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 646785   (161674) от 04.11.2023
+###  Публикация: 1598520   (162402) от 19.12.2022
 
-V.A. - Как Молоды Мы Были - Песни Александры Пахмутовой (2007) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анна Герман - Надежда
-02. Муслим Магомаев - Мелодия
-03. Александр Градский - Нам Не Жить Друг Без Друга
-04. Юлиан - Старый Клен(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734884B057C833B13CE86DB4B2BF83513A083CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668459   (161647) от 04.11.2023
-
-Александр Серов - Лучшие Песни. Новая Коллекция (2010) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мадонна (И. Крутой - Р. Казакова) (3:36)
-02. Ты меня любишь (И. Крутой - Р. Казакова) (4:03)
-03. Ворованная ночь (И. Крутой - Ю. Бесчастный) (4:36)
-04. Моя богиня (В. Тененбаум - А.Ядров) (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21B1C860403AAA13AD25338945CFC03DF2BB71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300633   (161605) от 04.11.2023
-
-Веселые Ребята - Музыкальный Глобус / Любовь - Огромная Страна (2008(1979), 2009(1974)) [FLAC|Lossless|tracks + .cue]<Retro, Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлые Ребята - Легендарный советский музыкальный коллектив, оказавший большое влияние на развитие отечественной популярной музыки.
-В разное время в состав входили - Алла Пугачева, Вячеслав Добрынин, Давид Тухманов, Александр Градский, Вячеслав Малежик, Александр Барыкин, Алексей Глызин, Владимир Матецкий, Юрий Чернавский.
-Коллектив дал более 7 тысяч концертов, (   Читать дальше...   )Альюомы:
-2008 (1979) - Музыкальный глобус
-2009 (1974) - Любовь - огромная страна
-(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 01:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA661ABE1053036C1A8D1FDD6D93B2BADCD76417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522805   (161593) от 04.11.2023
-
-Анна Герман - Лучшее (2011) 2CD [FLAC|Lossless|image + .cue]<Ретро, эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колыбельная (4:47)
-02. Мой бубен (3:05)
-03. Я помню все (2:57)
-04. Город влюбленных (5:09)(   Читать дальше...   )Жанр: Ретро, эстрадаПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82DDE3D14CB36BCCA7CC02D34B4890F3DF56E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573705   (161591) от 04.11.2023
-
-Анна Герман - Наши любимые песни (2005) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161591.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:49] 01. Когда цвели сады
-[02:35] 02. Белая черемуха
-[03:05] 03. А он мне нравиться
-[02:45] 04. Быть может (на польском)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B1E0EF13998B8E690C79624567D56DCE88D57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517846   (161582) от 17.12.2021
-
-Lian Ross - The Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Whitney Houston - I Wanna Dance With Somebody (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It’s up to You (Love Call Version)
-02. Magic Moment
-03. I Need You by My Side
-04. Hurt(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:34
+01. I Wanna Dance With Somebody (Who Loves Me)
+02. Don't Cry For Me
+03. Higher Love
+04. The Greatest Love Of All(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:886F138368D37C0801AF603CE8661A7064E9891B
+magnet:?xt=urn:btih:E98FDFBEC3ECE1CC76DC2C0B8738AF03B6765F73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,57 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 342568   (161579) от 04.11.2023
+###  Публикация: 1433163   (162298) от 19.12.2020
 
-Юрий Антонов - Лучшее (2009) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крыша дома твоего (2:40)
-02. От печали до радости (4:16)
-03. Вот как бывает (3:25)
-04. Я вспоминаю (5:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3FC323801529B5B888673A90BB873F1603F9C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433317   (161422) от 20.12.2020
-
-Vanessa Zamora - Tornaluna (2018) [FLAC|Lossless|image + .cue] <Latin, Indie, Folk, Pop>
+Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue] <Pop, Schlager>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162298.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Rio
-2. Hbls Mucho
-3. Al Fondo de Mi
-4. Puro Pasado(   Читать дальше...   )Жанр: Latin, Indie, Folk, PopПродолжительность: 00:40:48
+1. Nachts, wenn ich so alleine bin
+2. Wenn du gehst
+3. Es gibt kein Wort dafür
+4. Eine Nacht(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:04:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEE919D06B7C6B906F30F37C68987E28D63067C5
+magnet:?xt=urn:btih:FA5371AEDCF67FCE0F7CD56E10DCE5645F3D321B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,199 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674224   (161384) от 05.11.2023
+###  Публикация: 1432704   (162230) от 19.12.2020
 
-VA - Hit News Vol. 6 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Boys - Don't You Know
-02. Thing! Big - Wouldn't It Be Good
-03. 2 Unlimited - Let The Beat Control Your Body
-04. D.J. Bobo - Everybody(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4A12462DA36C7F70156591787D5C1461C710FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674427   (161377) от 05.11.2023
-
-VA - Hit News Vol. 7 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double You - Part-Time Lover
-02. Corona - The Rhythm Of The Night
-03. Zooo - You And I
-04. Supertrack And D.J. Company - Michelle(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5158D6D1CD66B0733A5D21CFDDB530562D82B95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433180   (161363) от 20.12.2020
-
-The Chap - Digital Technology (2019) [MP3|320 Kbps] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring Your Dolphin (04:07)
- 02. Pea Shore (04:30)
- 03. I Am the Emotion (02:43)
- 04. I Recommend You Do the Same (04:57)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7980852D2D3CF9DE5776085431D1479CCA8513E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674474   (161292) от 05.11.2023
-
-Luis Rodriguez and Nathalie Aarts - Rhythm of My Heart (extended mix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm of My Heart (extended mix) (4:02)Жанр: Euro-Dance, Euro-HouseПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55783121402E1B395F1448A1A3C0E83D071A190A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432984   (161201) от 20.12.2020
-
-VA - Zumba Beats Strong 2021 (2020) [MP3|320 Kbps] <Electro Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samuel Kimkò, El 3mendo - Mi Novia - Radio Edit (3:15)
-02. Joe Berte - Choka Choka (feat. El 3mendo) - Club Radio Edit (3:04)
-03. Diego A., Oscar Yestera - Retumba Moombah - Original mix (3:29)
-04. Luka J Master, Carlo M. - Baila! (feat. Karlon Urbano) - Radio Mix (2:43)(   Читать дальше...   )Жанр: Electro Pop, DanceПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11152B7E3FDC8C0CA4E46C989CA816C21E22A04F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674240   (161099) от 05.11.2023
-
-VA - Car Music Dance Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Jim - Beat It (2:30)
-02. Baris Turna - Right Now (Na Na Na) (2:24)
-03. Nickobella - Let Me Know (2:40)
-04. Old Jim - Balenciaga (2:24)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A89F15D063F5BD4B7E6F11D5AC9A1019A1BA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433305   (161077) от 20.12.2020
-
-Sade - Bring Me Home: Live 2011 (2012) RCA 88691977359 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Contemporary R&B>
+VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soldier of Love (6:17)
- 02. Skin (3:57)
- 03. Kiss of Life (5:04)
- 04. Love Is Found (4:05)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 01:01:21
+01. James Taylor - You've Got a Friend (04:28)
+02. Tones and I - Dance Monkey (Stripped Back) (02:51)
+03. Dua Lipa - Be the One (Acoustic) (03:12)
+04. Jess Glynne - My Love (Acoustic) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:58:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6605FAC84AC63740100D8ADEA0FEB8523D73CF5
+magnet:?xt=urn:btih:5C52EAF881EA48D16393ADBBA7EB333241907CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518125   (161047) от 18.12.2021
+###  Публикация: 1432973   (162077) от 19.12.2020
 
-Electronic ( Nen Order, The Smiths ) - Raise The Pressure (1996) [FLAC|Lossless|tracks + .cue]<Pop>
+Олег Винник - 3 Альбома (2013- 2018) [FLAC|Lossless|tracks + .cue]<Рор>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Forbidden City
-02.For You
-03.Dark Angel
-04.One Day(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:33
+01. Як жити без тебе
+02. Біла голубка
+03. Золота
+04. Мати каже правду(   Читать дальше...   )Жанр: РорПродолжительность: 02:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB923C561E4F036126B297B0216D1451429EE524
+magnet:?xt=urn:btih:8D0DA170C18D60725A41C3CBE5F1A15B54BD7272
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518104   (161025) от 18.12.2021
+###  Публикация: 1432785   (161991) от 19.12.2020
 
-VA - The Bearded Man - Beards In The Snow 2021 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
+VA - Love Songs & Romantic Ballads (2020) [MP3|320 Kbps] <Pop>
 
 >>Pop
->>Eurodance, Euro-House, Technopop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Clément Leroux - Baby (Tell Me)
-2. Nicolas Haelg/Marie Beeckman - Gravity (2021 Edit)
-3. Harold van Lennep - Liberation (Re-Edit)
-4. GOLDHOUSE - Sex On Me (Re-Edit)(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:01:19
+01. Foreigner - I Want To Know What Love Is 4:58
+02. Roxette - It Must Have Been Love (Edit) 4:19
+03. All-4-One - I Swear 4:20
+04. Percy Sledge - When A Man Loves A Woman 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9192DC3D80850F07406DBB91172AAC3C5FBC731
+magnet:?xt=urn:btih:3A5060B0793FE59F1C8B3104CF2A79F221C1A164
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,57 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433441   (160958) от 20.12.2020
+###  Публикация: 658945   (161978) от 04.11.2023
 
-Mirko Hirsch - Return To Instrumentals (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady In Black (Instrumental Version) (5:46)
-02. Pandora's Box (Remix Instrumental Version) (5:01)
-03. Heart On Fire (Instrumental Version) (4:35)
-04. Return To Neon (Instrumental Version) (4:32)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2D3AA54515F88E3D795A1693CB6D0A49FFAED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489071   (160941) от 05.11.2023
-
-Анне Вески - Звездная коллекция (2000) [APE|Lossless]<Pop>
+Anna German - Recital Opole '71 (2013) [FLAC|Lossless]<Retro|Pop>
 
 >>Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Позади крутой поворот (4:34)
-02. Пора домой (4:27)
-03. Продлись, счастье (4:17)
-04. Привет, мой старый дом (4:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:39
+01. Zapowiedz /Anna German, Jan Suzin/ 02:04
+02. Wiosenna humoreska /muz. Anna German, sl. Leonid Teliga/ 01:54
+03. Zagle /muz. Anna German, sl. Leonid Teliga/ 02:48
+04. Noc nad Mekongiem /muz. Anna German, sl. Leonid Teliga/ 03:23(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:58:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2812B09AB828A78BF32944EC6047EBAC79B4A2EC
+magnet:?xt=urn:btih:181289081D2736E1F33DE5B5147CC05F2BC2DFE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 652635   (160940) от 05.11.2023
+###  Публикация: 661555   (161973) от 04.11.2023
 
-Георгий Виноградов - Король пронзительного танго (2008) [FLAC|Lossless]<Pop, Романсы , Retro>
+Русланова Лидия - Валенки (2000) [FLAC|Lossless]<Retro/Folk/Pop>
 
 >>Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Счастье моё (Е. Розенфельд – Г. Намлегин) – 2:37
-2. Весенний вальс (М. Блантер – Б. Яковлев) – 2:57
-3. Зачем, танго (Э. Рознер – Ю. Цейтлин) – 2:31
-4. На полянке, вальс (А. Гаррис – Ю. Цейтлин) – 3:09(   Читать дальше...   )Жанр: Pop, Романсы , RetroПродолжительность: 02:25:43
+01 Липа вековая [2:58]
+02 Светит месяц [2:39]
+03 По диким степям Забайкалья [2:57]
+04 Живет моя отрада [2:16](   Читать дальше...   )Жанр: Retro/Folk/PopПродолжительность: 01:52:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88D2131B7241F47CB9D4F5CB7DBD0787BA9851B7
+magnet:?xt=urn:btih:E3772DB09EEEAEB3C3AF05933A292594AD0ADC13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 659346   (160939) от 05.11.2023
+###  Публикация: 681956   (161969) от 04.11.2023
 
-VA - " Золотой фонд эстрады " - Главное, ребята, сердцем не стареть (1995) [FLAC|Lossless]<Retro|Pop>
+VA - Юрий Силантьев. Памяти маэстро (2010) [APE|Lossless]<Retro, Советская эстрада>
 
 >>Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. М. Бернес - Я работаю волшебником (3:15)
-02. Р. Неменова - Текстильный городок (2:47)
-03. Э. Хиль - Как провожают пароходы (3:12)
-04. О. Анофриев - Песня (из к/ф ''Там, где кончается асфальт'') (3:02)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:45:02
+01. И. Кобзон - Летят перелётные птицы 03:07
+02. М. Магомаев - Любимый город, песня из к/ф «Истребители» 03:16
+03. Ю. Богатиков - Лизавета, песня из к/ф «Александр Пархоменко» 02:10
+04. Н. Брегвадзе - Снегопад 03:26(   Читать дальше...   )Жанр: Retro, Советская эстрадаПродолжительность: 01:09:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6B3F717D673D0DEE400C260129BBF3249201831
+magnet:?xt=urn:btih:8615B5D2358FABC220A508F340A60AD642E3FF7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -730,28 +346,408 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454433   (160935) от 05.11.2023
+###  Публикация: 1432717   (161958) от 19.12.2020
 
-Евгений Мартынов - Я Тебе Весь Мир Подарю (2001) [FLAC|Lossless|image + .cue] <Pop>
+VA - 100 Greatest 2020 Songs [MP3|320 Kbps] <Pop>
 
 >>Pop
->>Советская эстрада, Ретро (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Я тебе весь мир подарю (3:45)
-02. Письмо отца (3:22)
-03. Слушайте красавицы (3:00)
-04. Баллада о матери (4:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:50
+01. Joel Corry - Lonely (03:10)
+02. Dua Lipa - Break My Heart (03:41)
+03. Roddy Ricch - The Box (03:16)
+04. Jason DeRulo - Take You Dancing (03:10)(   Читать дальше...   )Жанр: PopПродолжительность: 05:30:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F6A2EC182F66DA54D4B158D79AA570B1A5BFDA7
+magnet:?xt=urn:btih:FD76DED1C42106CD0327C95592B0015076A91AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664259   (161955) от 04.11.2023
+
+VA - Яростный стройотряд (Repress 2007) [FLAC|Lossless]<Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Яростный стройотряд (Александр Градский) (2:59)
+02. Ребята 70-й широты (Лев Барашков) (2:14)
+03. Звездопад (Вокальный квартет ''Аккорд'') (3:08)
+04. Песенка о Робинзонах (Олег Анофриев) (3:02)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D74031BF404213C690F60D12C434589523A4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661638   (161944) от 04.11.2023
+
+Клавдия Шульженко - Легенды Русской Эстрады (2 CD) (2000) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Мы из Одессы моряки [2:51]
+02 Моя тень [3:00]
+03 Не скрывай [2:29]
+04 Партизаны [3:00](   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE3ABA4D99850F0F826B7DD2C5A2BAD36CFA3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696858   (161931) от 04.11.2023
+
+Константин Сокольский - Дымок от папиросы... (2001) [FLAC|Lossless]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Дымок от папиросы...
+02.Когда любовь волнует кровь
+03.Две слезинки
+04.Чайник новый(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FE8DFD6DEC54DC3B5B293F82900CD1BE4B4ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661619   (161926) от 04.11.2023
+
+Сергей Захаров - Золотая коллекция Ретро (2008) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Придёт любовь (2:57)
+02. Талая вода (3:19)
+03. Выйду солнцу навстречу (2:45)
+04. Люблю тебя (4:29)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB29E6886569FD77160D928D62B6DBD11A7F7AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665099   (161920) от 04.11.2023
+
+Песни на стихи Владимира Харитонова - Золотая коллекция Ретро (2009) [APE|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161920.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Скажи мне, вишня (Евгений Мартынов) - Евгений Мартынов
+2. Это только начало лета (Борис Ривчун) - Геннадий Белов
+3. Солнышко (Владимир Хорощанский) - Маргарита Суворова
+4. Не плачь, девчонка (Владимир Шаинский) - Эдуард Хиль(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613F50DB4727036508CC987A15604FE641C3EFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665003   (161913) от 04.11.2023
+
+Нина Бродская - Золотая коллекция ретро (2003) [APE|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161913.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ты говоришь мне о любви (Э.Колмановский - И.Шаферан,Л.Дербенёв)
+2. Первая любовь (А.Мажуков - Л.Кретов)
+3. Теряют люди друг друга (А.Зацепин - Л.Дербенёв)
+4. Ты меня забудешь скоро (А.Мажуков - А.Дементьев)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AEC4C851AFB46379FEDDAEE3EE29E9527E657F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659395   (161906) от 04.11.2023
+
+VA - " Золотой фонд эстрады " - Многое в жизни бывает (1996) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Л. Утёсов - Лейся песня на просторе (02:33)
+02. Л. Кострица - Мы друзья - перелётные птицы (03:04)
+03. В. Бунчиков - Шумит волна, звенит струна (02:51)
+04. З. Рождественская – Тропинка (02:03)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFD1ACEA34397A272E41DCBD5A1E103CEA16E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667909   (161896) от 04.11.2023
+
+Нина Бродская - "С новой надеждой" (из серии Золотая коллекция Ретро) 2 CD (2005) [APE|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. С новой надеждой
+2. Девочка с бантом
+3. Я зову тебя
+4. Любимые(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 02:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BA627CCF1D108B5E2435220329A253CC4A9458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 666811   (161874) от 04.11.2023
+
+Людмила Сенчина - Любовное настроение (2004) [APE|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белой акации гроздья душистые
+02. Золушка
+03. Дети спят
+04. Ты словно белая ночь(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD3E767F0A840C32B8F98A1322E8220D6958892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659936   (161870) от 04.11.2023
+
+Вокальный квартет "Аккорд" - Мелодия. ВИА (2011) [APE|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Назло (А.Флярковский - Р.Рождественский)
+02. Манжерок (О.Фельцман - Н.Олев)
+03. Хлоп-хлоп (П.Бюль-Бюль оглы - М.Пляцковский)
+04. Котёнок (М.Олах - И.Шаферан)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61638B4A06401DE6BEA87465198022959F7E00A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665579   (161859) от 04.11.2023
+
+Эмиль Горовец - Золотая коллекция Ретро CD 2 (2004) [FLAC|Lossless]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Путники в ночи
+02. Падает снег
+03. Ты
+04. Прости. любимая(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4993A6977C6F031C934C667F10FA244699144B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658362   (161855) от 04.11.2023
+
+Геннадий Белов - Травы, травы (2008) 2CD [APE|Lossless|image + .cue]<Retro|Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161855.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На дальней станции сойду (В.Шаинский - М.Танич)
+2. Песня о моей любви (Е.Мартынов - С.Островой)
+3. Земляничное лето (С.Туликов - Е.Антошкин)
+4. Колдует осень золотая (Ю.Турнянский - А.Трилисов)(   Читать дальше...   )1. Травы, травы (В.Шаинский - И.Юшин)
+2. Всегда со мной моя Россия (С.Туликов - В.Лазарев)
+3. Медсестра (В.Газарян - А.Заурих)
+4. Край отцовский (Э.Колмановский - И.Шаферан)(   Читать дальше...   )Жанр: Retro|PopПродолжительность: 02:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816C6B5ADA270CD4603F510FC89E70F8BCF9D86A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664427   (161848) от 04.11.2023
+
+Полад Бюль-Бюль-оглы - Золотая коллекция Ретро (2006) [APE|Lossless]<Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161848.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не забыть никогда (Н.Добронравов)
+2. Юность (Н.Добронравов)
+3. Шейк (О.Гаджикасимов)
+4. Хлоп-хлоп (М.Пляцковский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05359CFD7660AAC368AF9E8AF62757268685021
 ```
 
 https://mybot314.ru/tekegram_catalog/

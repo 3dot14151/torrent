@@ -1,3 +1,55 @@
+###  Публикация: 1790312   (22045) от 08.04.2025
+
+Фоны - Scott Robert Lim - Skies & Clouds Backrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добавьте новое измерение к вашим фотографиям, добавив красивый закат или драматическое небо.Формат: JPGРазрешение файлов: 3753x2476 - 5760x3840
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912FA1377E621C4880C6B75B17DC34C51BFA906B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790499   (21993) от 09.04.2025
+
+Фоны - Adobe Stock (Ai) - VALENTINE'S DAY BACKGROUNDS ILLUSTRATIONS WITH AI [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые фоновые рисунки ко дню влюбленных из Adobe Stock.Формат: JPGРазрешение файлов: 2919x1632 - 12288x6144
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97E1110D57CB6464609452E65BE04D4F80AF7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790878   (21764) от 11.04.2025
 
 Фоны - DIGITAL ART - Creative Fabrica - Galaxy Abstract Brush Strokes Digital Paper [JPG]
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6536A4620919BBA7DCD6277FA44025B41E57B897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791873   (21234) от 16.04.2025
-
-Фоны - STCrafts - Creative Fabrica - French Cottagecore Blue Floral Digital Paper Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синие цветочные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E82B4308782BF3F39977F516630B1FC61C60AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791886   (21230) от 16.04.2025
-
-Фоны - STCrafts - Creative Fabrica - Neon Yellow Damask Digital Paper Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неоново-жёлтые Дамасские цифровые бумажные фоны.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D6864C741609D838A8D264948F91E84426ED1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

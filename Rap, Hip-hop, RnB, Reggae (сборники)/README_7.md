@@ -1,3 +1,32 @@
+###  Публикация: 1256718   (351884) от 23.10.2018
+
+VA - Golden A Capella (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351884.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chrisjenkins - Chances
+002. Lil Marvaless - Pray For Me
+003. Selastoutseul - Sakura
+004. Whoisskitzo - Start Me Up(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FDFBBCBB5BD2FEF3BE73038280573AA305674B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953479   (348411) от 04.11.2015
 
 Ноггано - Свежее (2015) [MP3|320 кб/с]<Rap, Hip-hop>
@@ -717,35 +746,6 @@ VA - Street Workout (2019) [MP3|320 Kbps] <Hip-Hop, Rap, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6B0F332F448B4C3F996D4F6E04F4AAC61106A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266134   (271006) от 01.12.2018
-
-VA - Collection Of Great Songs: RnB & Soul (2018) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271006.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alina Baraz - Fallin
-002. Sega Bodega - Kisses 2 My Phone
-003. David Jay - Hands High
-004. Ayelle - Actor(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 07:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B3F3710B54E2B86CE894E1359602B7C076548E
 ```
 
 https://mybot314.ru/tekegram_catalog/

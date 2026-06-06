@@ -1,3 +1,32 @@
+###  Публикация: 1096132   (920863) от 23.01.2017
+
+Shastro - Satsang (2017) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lotus [00:09:48]
+02. A New Dawn [00:08:51]
+03. Dance of the Swans [00:14:10]
+04. Holding Hands [00:10:45](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2203AB3F0A22F60DAE51333B31F3A83A45EEA698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096573   (919204) от 24.01.2017
 
 Kimberly Haynes - Awaken Me (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal>
@@ -715,35 +744,6 @@ Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B8939EA4EBE677FC8A2EB9DA7C5A308473031F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099606   (903376) от 02.02.2017
-
-Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <New Age, World, Aboriginal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  She Is Untouchable  (06:37) 
-02|  The Journey  (05:38) 
-03|  Gift from the Spirits  (07:01) 
-04|  Woodpecker Dance  (05:42) (   Читать дальше...   )Жанр: New Age, World, AboriginalПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
 ```
 
 https://mybot314.ru/tekegram_catalog/

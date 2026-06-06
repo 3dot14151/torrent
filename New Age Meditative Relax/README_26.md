@@ -1,3 +1,61 @@
+###  Публикация: 1120749   (241061) от 02.04.2017
+
+Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gates Are Open [00:03:14]
+02. Changing Skies [00:03:00]
+03. Parting Ways [00:02:04]
+04. No Way Out [00:03:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570DB04974A57FF3C9EBA5C66EFE08C25AB27E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626131   (239826) от 19.04.2023
+
+Buddha Room - 2 + Hours of World Music (2018) [MP3|320 Kbps] <Ethnic, World Music, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Music [04:09]
+02. Stop Overthinking [06:47]
+03. Inner Silence [06:35]
+04. Tribal Atmosphere [06:41](   Читать дальше...   )Жанр: Ethnic, World Music, LoungeПродолжительность: 02:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D415C8F7F951BA715144245E807F74277CF1EFEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627910   (238916) от 23.04.2023
 
 Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native American, World>
@@ -700,64 +758,6 @@ Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26B905F7D313793038C8ADA17A25714481418007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172556   (150170) от 24.12.2020
-
-Shinnobu - 8 альбомов (2017-2020) [MP3|320 Kbps] <Enigmatic, Electronic, New Age>
-
->>След.
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemurian Dreams
-02. Akashic
-03. Beloved Angels
-04. Heal Me(   Читать дальше...   )Жанр: Enigmatic, Electronic, New AgeПродолжительность: 04:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C6364FBE9A25764D8925F1413A53D9F015C64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969212   (148968) от 26.12.2015
-
-Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Dew (08:32)
-02. Transformation Part 1 (07:26)
-03. Cathedral of Trees (07:10)
-04. Wanderer (09:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0865C08EBF727F0518B7E6C110E9EF18EF06B65A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1629929   (199241) от 28.04.2023
+
+Armin van Buuren - Feel Again (2023) 6CD [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive House, Dance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199241.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Armin van Buuren feat. Wrabel - Feel Again
+02. Armin van Buuren - Oumuamua
+03. Armin van Buuren & The Stickmen Project - No Fun(   Читать дальше...   )Жанр: Trance, Progressive House, Dance |Продолжительность: 04:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D9218414CA647F4D83050B746650B26CA4FB3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650206   (194767) от 03.08.2023
+
+VA - Black Hole Trance Music 06-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LadyByrd - Every Second (York Extended Remix) [5:17]
+02. Freak E Beatz & ANVY - The One (Extended Mix) [4:55]
+03. Serra 9 feat. Meredith Nee - To Get Even (Extended Mix) [4:38]
+04. Cosmic Gate - Mirador (Extended Mix) [7:25](   Читать дальше...   )Жанр: Vocal Trance, TranceПродолжительность: 02:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16F24AE3C812E8F8B299EF1B4982B37F137E854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657878   (191897) от 06.09.2023
+
+VA - Outburst Records Presents Prism Volume 4 (2023) [FLAC|Lossless|tracks] <Hard Trance, Hard Techno,Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Space Brothers - Doors (Mark Sherry Remix) [4:46]
+02. Gordon Tennant - Callisto [3:01]
+03. Mark Sherry & Sygma - Beyond Starlight [2:47]
+04. Mark Sherry & Steve Dekay - Smiler [3:12](   Читать дальше...   )Жанр: Hard Trance, Hard Techno,Uplifting TranceПродолжительность: 03:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC3BF7D88C5C880D9E25C61F5867147873E465B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657679   (191879) от 06.09.2023
 
 VA - Exploring Trance (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance>
@@ -652,89 +739,6 @@ Aly & Fila - It's All About The Melody (2019) [FLAC|Lossless|CD|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CFE6D5EFBEA21E2E8ACE2F2FB3701BE3D376250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432153   (165211) от 16.12.2020
-
-VA - Maor Levi Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maor Levi – Won't Say No (Extended Mix) (07:51)
-02. Maor Levi – Chasing Love (feat. Ashley Tomberlin)Жанр: Progressive House, TranceПродолжительность: 01:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A8FE71F5BDCA9945B0668CD0A96A3E467D1A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517232   (163533) от 14.12.2021
-
-VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossless|WEB|tracks|image] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woody Van Eyden & Rene Ablaze - All My Life (Extended Mix) (6:54)
-02. Kenny Palmer - Zandalar (Extended Mix) (6:00)
-03. Ferrin & Low - Breeze (Woody van Eyden Extended Remix) (7:00)
-04. TrancEye - From The Ashes (Extended Mix) (6:51)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01A5330474CFDC8B1DA500C2A7CAE5B4F5988EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673147   (163385) от 03.11.2023
-
-Supermode - Tell Me Why [MeduZa remix] (2022) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Progressive, Hypnotic Style>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Tell My Why (Meduza Remix) (2:51)
-02 Tell My Why (Meduza Extended Remix) (8:29)Жанр: Trance, House, Progressive, Hypnotic StyleПродолжительность: 00:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CD44DFC82A4AAB1E0D3A0723C27D642E2D5B99
 ```
 
 https://mybot314.ru/tekegram_catalog/

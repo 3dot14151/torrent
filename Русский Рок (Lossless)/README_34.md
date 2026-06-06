@@ -1,3 +1,90 @@
+###  Публикация: 1576147   (368688) от 13.09.2022
+
+Astral Mantra - Rise of the Lords (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Ritual I
+03. Ritual II
+04. Ritual III(   Читать дальше...   )Жанр: Gothic Doom, Melodic DeathПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA27427E9B919A5AB56BF4ED57CF2AD477C108F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576240   (368615) от 13.09.2022
+
+Catharsis vs Margenta - Алый Король (2020) Maxi single [FLAC|Lossless|image + .cue] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алый Король
+02. Прикосновение ангела
+03. Лагерта
+04. Невесомость (инструментал)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA46ADEC20327BDB75D6AFD3A25660D5A3B65EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576196   (368612) от 13.09.2022
+
+Margenta - Сон Императора (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом-трибьют Валерию Кипелову. В записи принимали участие вокалисты Сергей Сергеев (ФОРСАЖ, экс-АРТЕРИЯ), Михаил Сидоренко (BIORATE, экс-ФАКТОР СТРАХА), Михаил Серышев (экс-МАСТЕР), Анжелика Маркова, Светлана Тиш, Эльга Серебрякова, Андрей Лефлер (экс-МАВРИН) и Пётр Елфимов (ГРАН-КУРАЖЪ).01. Следуй за мной (вокал - Сергей Сергеев) 5:03
+02. На распутье (вокал - Михаил Сидоренко) 3:37
+03. Я здесь (вокал - Сергей Сергеев) 5:25
+04. Выше (вокал - Светлана Тиш) 3:56(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, RockПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF14374E1B51DB460DFCE56C1F9822E995E7141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576251   (368483) от 13.09.2022
 
 Wine From Tears - I'm Fine (2022) [FLAC|Lossless|image + .cue] <Melodic Death, Gothic Doom Metal>
@@ -661,99 +748,6 @@ Naka - Пора (2010) [FLAC|Lossless] <Rock>
 02. BY YOU  (5:20)
 03. Жажда  (4:09)
 04. Фабрика звёзд  (4:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417683   (355472) от 21.10.2020
-
-Фёдор Чистяков - Последний из могикан (2020) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355472.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Russky Rock'n'roll
-2. Trains Rolled Down The Street
-3. Little Corey
-4. Lenin Street(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760EE686C0AE26DC301D25C2BA4A4449D982B2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952794   (353310) от 02.11.2015
-
-АлисА - Для тех, кто свалился с Луны (1993) переиздание /2015, Мистерия звука/ [WavPack|Image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Театр (3:49)
-02. Для тех, кто свалился с Луны (5:52)
-03. Республика (7:43)
-04. Камикадзе (4:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDE1CFB9EBCCC9DBDDB9430C238B53C126761BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578316   (353001) от 21.11.2012
-
-Альтависта - Ю Кен Би Фри (2012) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_353001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хроники l. (03:13)
-02. Ю кен би фри (04:27)
-03. Мается (04:22)
-04. На ночь глядя (03:03)
-05. Ремейк (03:45)
-06. Свет (04:19)
-07. Круги на воде (03:47)
-08. Пускай (03:10)
-09. На фоне летящего снега (03:31)
-10. За несдавшихся врагу (03:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:50
 
 ## Скачать торент
 ```bash

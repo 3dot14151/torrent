@@ -1,3 +1,61 @@
+###  Публикация: 1204760   (784286) от 07.02.2018
+
+Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 No. 1, Overture
+02 Act I, No. 2, "Tocchiamo! a gaudio insolito" (Chorus)
+03 Act I, No. 3, "Ciel, ch'io respiri!"
+04 Act I, No. 4, "Salvami to, gran Dio"(   Читать дальше...   )Жанр: Opera,ClassicalПродолжительность: 02:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7CE141C9184E880DE6D27B32D4E6880A3690E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204816   (784278) от 07.02.2018
+
+Rossini - L'inganno felice (2008) 2CD [APE|Lossless|image + .cue] <Opera, Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Scene 1: Introduction
+02.Scene 2: Cosa dite! Ma cosa dite! (Tarabotto, Isabella)
+03.Scene 3: Ebben, che ascondi a Tarabatto (Isabella, Tarabotto)
+04.Scene 4: Qual tenero diletto (Bertrando)(   Читать дальше...   )Жанр: Opera, ClassicalПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A50DD31D639D43A56C1143E46AD6086FCDEB449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204738   (784272) от 07.02.2018
 
 The Wagner Projec - Matthias Goerne, The Swedish Radio Symphony Orchestra, Daniel Harding (2017)2CD [FLAC|Lossless|image + .cue] <Classical>
@@ -679,64 +737,6 @@ V.A. - Most Relaxing Classics - Inspiration (2009) [FLAC|Lossless]<Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1ED77444AE1E7EC888D19467D36A689E605BB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016357   (770156) от 14.05.2016
-
-N. Rimsky-Korsakov / Н.Римский-Корсаков - The Snow Maiden / Снегурочка (2008) [APE|Lossless|image + .cue] <Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770156.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Пролог. Вcтупление и сцена Весны с птицами.
-02. Пролог. Речитатив и ария Весны.
-03. Пролог. Речитатив.(   Читать дальше...   )Жанр: OperaПродолжительность: 02:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661A597A8DC5140B0AB04A96EC591573E06BAECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016451   (770074) от 14.05.2016
-
-VA - Simply Piano Moods (2011) 2CD, Boxset[FLAC|Lossless|tracks + .cue] <Piano,  Easy Listening, Pop-Rock>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из очередной командировки привез музыку для отдохновения из сери Simply (остальные публикации из этой серии найдете по ссылке внизу). У этого двухдискового сета есть две особенности. Первое, это сокращенное переиздание четырехдискового сета, вышедшего в 2008 году. Так что здесь собраны самые сливки. И второе, каждая сливка на этом сете с одной стороны очень узнаваема, (   Читать дальше...   )CD1:
-01. The Chris Ingham Orchestra - Come Away With Me  (3:11)
-02. The Chris Ingham Orchestra - You're Beautiful  (3:12)
-03. The Chris Ingham Orchestra - Moon River  (3:36)(   Читать дальше...   )Жанр: Piano,  Easy Listening, Pop-RockПродолжительность: 02:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB486EA7B821DAF8AF8EDA6335D2A88FE41AEE12
 ```
 
 https://mybot314.ru/tekegram_catalog/

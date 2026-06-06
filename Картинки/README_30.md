@@ -1,3 +1,56 @@
+###  Публикация: 1815246   (5379) от 29.08.2025
+
+Промты - SevenUnited LLC - 634 Ai Art Prompts For Cute Kawaii Vol 4 - 6948569 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект из 634 промтов для ИИ по созданию милых кавайных изображений: том 4. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE704ED10C276736AC53364B8EAF44F8ECC8F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815429   (5250) от 30.08.2025
+
+Картинки - Wallpapers Mix №1960 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественные обои в новом сборнике на ваш рабочий стол.
+Количество 583.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AB0A8AA8FF144F1E84BBA1FF582AB90875F9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815378   (5226) от 30.08.2025
 
 Картинки - Wallpapers Mix №1959 [JPG]
@@ -625,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABD5013D08B58BFEA5D9885C1CE996DC17858E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820089   (798) от 26.09.2025
-
-Промты - SevenUnited LLC - 554 Midjourney Prompts for Jewelry: Vol 2 - 6094680 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 554 настраиваемых промтов Midjourney и примеров изображений для ювелирных изделий: Том 2Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2B9D808AFBC80631970D6008AEA29D6C492AF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

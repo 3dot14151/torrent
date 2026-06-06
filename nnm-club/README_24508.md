@@ -1,276 +1,24 @@
-###  Публикация: 483701   (99881) от 17.04.2012
+###  Публикация: 1733886   (107189) от 01.07.2024
 
-День Зеро / Day Zero (2007) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка снова вернулась к призывной армии. Трое друзей — адвокат, таксист и писатель — в тридцатидневный срок должны явиться на службу. У каждого из них своя жизнь, но детские узы дружбы не ослабели.
-
-Рифкин — женат, работает адвокатом, его карьера идет в гору. Недавно его назначили партнером фирмы, поэтому он ищет любую лазейку для того, чтобы не идти в армию.
-
-Феллер пишет свой второй роман. Первый роман имел оглушительный успех, и повестка о призыве в армию мешает ему, вызывая творческое бессилие. Он решает составить список 10-ти вещей, которые ему нужно сделать до того, как он начнет служить в армии.
-
-Диксон работает таксистом, живет один и охотно готов служить в армии. Но неожиданно в его жизни происходят события, которые меняют его жизнь.
-
-В течение тридцати дней их дружба проходит испытание на прочность, также как их представления о жизни, смерти, отваге и любви.Жанр: ДрамаРежиссер: Брайан Гуннар КоулАктеры: Элайджа Вуд, Крис Клейн, Джон Бернтал, Джиннифер Гудвин, Элизабет Мосс, Элли Шиди, София Васильева, Джон РотменПеревод: Многоголосый закадровыйЯзык субтитров: отсутствуютПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484470   (99880) от 17.04.2012
-
-7раса - Р.Н.Г. (2012) [FLAC|Lossless]<Alternative Rock, Grunge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01) Р.Н.Г. (3:57)
-02) Время осталось (3:17)
-03) Огонь молодых (3:15)2012Жанр: Alternative Rock, GrungeПродолжительность: 00:10:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483785   (99878) от 17.04.2012
-
-VA - DJ Club Spring (2012) [MP3|160-320 кб/с]<Club, Dance, Electro, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99878.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christopher S feat. Max Urban - Star (Organ Remix).
-002. Remady & Manu-L Feat. J-Son - Single Ladies (Extended Mix).
-003. Chris Garcia Feat. Sherry St Germain - I Rock Alone (Club Extended).
-004. G & G Feat. Jonny Rose & Chris Reeder - All Falls Down (Jean Elan Remix).
-005. BAZEDA, Custom Drops - Love To Party (Original Mix).
-006. Esteban Aracil - Where Is The Love (Soultwister Remix).
-007. suGar, Eva Kade, Evil T - All Around (Andrea Bertolini Remix).
-008. Lana Del Rey - Videogames (Ben DJ & D-Seven Remix).
-009. Sander Kleinenberg - This Is Miami (DJ Morricone remix).
-010. Jimmyburnside - Uppers & Downers (Original Mix).2012Жанр: Club, Dance, Electro, HouseПродолжительность: 28:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484226   (99877) от 17.04.2012
-
-VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Oshean - A Day Will Come (Original Mix).mp3
-02. Andreea Banica - Electrified (Sagi Abitbul Official Remix).mp3
-03. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck With You (Extended Mix).mp3
-04. Cahill feat. Chrome - Can't You See (Club Edit).mp3
-05. Christos Fourkis - Set Free (Radio Mix).mp3
-06. Coffee and Honey feat. Alexandra - Smile (Club Mix).mp3
-07. CUT & RUN - Calm & Queasy.mp3
-08. DJ Adamus - Free The Night (Club Edit).mp3
-09. Faberlique - Sleep Blind (Taras Bazeev Remix).mp3
-10. Funkwhite - Plug & Play (Extended Mix).mp3(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBC52487425A7EBB966F1D671410483B22DA219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484342   (99872) от 17.04.2012
-
-Журнал | Cosmopolitan Shopping №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan Shopping — незаменимый гид по стильным покупкам. Это модный, интересный и полезный журнал, который всегда готов ответить на три главных вопроса в жизни женщины: что купить? Где купить? С чем носить?2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D482AC4D2B45FFC62E046D28212CA8531E28389C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484459   (99870) от 17.04.2012
-
-[Wallpapers] Army and military equipment Wallpapers (18.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637269915AD9FEA3AE6F1D0C232180CD4A81B72F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484525   (99869) от 17.04.2012
-
-Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery 01:33
- 02. Doubts And Struggles 03:16
- 03. Crossed Paths 03:02
- 04. Echoes 02:17
- 05. Wilfully Blind 03:47
- 06. No Love, No Regret 03:11
- 07. Despair 01:09
- 08. To Conceive/Insight 02:59
- 09. Discontent 03:11
- 10. Time We Lost 02:37(   Читать дальше...   )2012Жанр: Melodic HardcoreПродолжительность: 00:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA87BC6EFC240CF5FF917DB900D61BA1C8D8394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483605   (99867) от 17.04.2012
-
-Various Artists - Hitzone 61 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cd 12012Жанр: Club, DanceПродолжительность: 01:12:30
-01. Lloyd Ft Andrй 3000 - Decidation To My Ex (Miss That)
-02. Carly Rae Jepsen - Call Me Maybe
-03. Train - Drive By
-04. Gavin Degraw - Soldier
-05. Chris Hordijk - Won't You Stay
-06. Katy Perry - Part Of Me
-07. Racoon - Don't Give Up The Fight
-08. Keane - Silenced By The Night
-09. Afrojack & Shermanology - Can't Stop Me(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C07BE4EBAC7CDA6F5C1DEA5F14053B42F902D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484454   (99865) от 17.04.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №32 (2012.04.17) SATRip
+Судьба человека с Борисом Корчевниковым. Судьба Валентина Смирнитского (28.06.2024) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107189.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:07
+"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
+
+В студии (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Валентин СмирнитскийЯзык озвучки: РусскийПродолжительность: 00:52:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69CF97F5A9C0C297A9BA5E0CF1BFD3DAE4106E72
+magnet:?xt=urn:btih:1D967C38079622A1CCEC602107FC5B0576D40582
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,25 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483888   (99864) от 17.04.2012
+###  Публикация: 1734251   (107188) от 02.07.2024
 
-Skreatch vs. Joe Smooth - Promised Milkshake (2012) [H.264] WEBRip
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Франция - Бельгия (01.07.2024) HDTVRip [H.264/720p-LQ]
 
->>Архив торрентов
->>Архив Музыкального Видео
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107188.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Dance, HouseПродолжительность: 00:03:12
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Франция - Бельгия (01.07.2024)
+СУДЬЯ Нюберг Гленн (Швеция)
+Судья на линии 1: Беиджи Махбод (Швеция)
+Судья на линии 2: Седерквист Андреас (Швеция)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:54:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46D7812E5FFA15912B09801401205E10A1974F1F
+magnet:?xt=urn:btih:354C3A420118A5832CAAE9971A520F75C2C15A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -304,34 +55,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484431   (99859) от 17.04.2012
+###  Публикация: 1734126   (107187) от 02.07.2024
 
-DotEXE - Donations Accepted (2012) [MP3|320 кб/с]<Drum'n'Bass, Dubstep>
+Sandboxie 5.69.3 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nothing You Can Do
-02. Come Back To Me
-03. Footsteps
-04. Horsey (DotEXE Remix)
-05. Alicja
-06. Anything You Want
-07. Elektro Funk
-08. Fast Car
-09. Turn On The Radio
-10. Why Can't I Sleep(   Читать дальше...   )2012Жанр: Drum'n'Bass, DubstepПродолжительность: 01:00:51
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAFD74CE103216D60A8707A6755F217D87129735
+magnet:?xt=urn:btih:A99146C7AE84EBA322CC315F64F183F9755B5840
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,30 +81,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483938   (99855) от 17.04.2012
+###  Публикация: 1734095   (107186) от 02.07.2024
 
-Curandero - Aras (2010) [MP3|320 кб/с]<World>
+Мила Северская | Кушать подано. Приятного аппетита (2024) [MP3, Наталия Попова]
 
->>Архив торрентов
->>Архив Музыки
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(09:20) 1. Aras
-(04:53) 2. Segue
-(11:17) 3. River
-(11:25) 4. Man Of The Shadows
-(00:35) 5. Once Upon A Time
-(07:57) 6. Embrujada2010Жанр: WorldПродолжительность: 00:45:27
+Эта книга посвящается нашим мамам, бабушкам и их мамам. В каждой семье есть затёртая до дыр, старая тетрадь с оборванными краями. В ней хранятся рецепты проверенных временем блюд. Они, как правило, достаточно простые в приготовлении, и при этом, вкусные и не дорогие. Когда я достаю тетрадь своей мамы или бабушки, сразу же вспоминаю весёлые застолья, их друзей, песни (   Читать дальше...   )Жанр: КулинарияИздательство: ЛитРес: чтецПродолжительность: 02:25:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79C9CBCEBD72C831CD7A91BFABB12993BEBB5899
+magnet:?xt=urn:btih:6344078DCC7C38F45D48223435DCF4E3F84B294B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,34 +107,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484259   (99853) от 17.04.2012
+###  Публикация: 1734252   (107185) от 02.07.2024
 
-Decontrolled - The Circle (2012) [MP3|320 кб/с]<Modern Metal, Nu-Metal>
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Португалия - Словения (01.07.2024) HDTVRip [H.264/720p-LQ]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enter the Circle
-02. Hidea
-03. Blacklights
-04. Rapture
-05. Encrypted
-06. The Circle
-07. Omnipotent
-08. Deathwish in the Continuum
-09. Grand Scheme
-10. Alive(   Читать дальше...   )2012Жанр: Modern Metal, Nu-MetalПродолжительность: 00:46:45
+Футбол. Чемпионат Европы 2024. 1/8 Финала. Португалия - Словения (01.07.2024)
+СУДЬЯ Орсато Даниэле (Монтеккио, Италия)
+Судья на линии 1: Карбоне Чиро (Италия)
+Судья на линии 2: Джаллатини Алессандро (Италия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 03:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1B93384B587B9355895E702579E6A139F591534
+magnet:?xt=urn:btih:F560FD7B2D5DBCC1E1C13D60DA2BF7D0818EB64C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,28 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483967   (99852) от 17.04.2012
+###  Публикация: 1734187   (107184) от 02.07.2024
 
-Astrohenge - II (2011) [MP3|320 кб/с]<Progressive Psychedelic Sludge>
+Algorithmic Melody - Love & War (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alt Metal, Alternative Rock, Nu Metal, Post-Hardcore, Post-Grunge>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Goodbye (01:39)
- 02. Space Honkly (02:46)
- 03. Tomb Of The Mummy (03:42)
- 04. Lab Chimp Uprising (02:10)Жанр: Progressive Psychedelic SludgeПродолжительность: 00:30:10
+01. Sleepy Little Fly (Interlude) [00:01:32]
+02. Cold as Stone [00:03:51]
+03. Fanatic [00:03:22]
+04. Till Death Do Us Part [00:03:32](   Читать дальше...   )Жанр: Alt Metal, Alternative Rock, Nu Metal, Post-Hardcore, Post-GrungeПродолжительность: 2 CD, 01:39:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33E81C81FC48205B9D5F9BD1DB1DB2E192EE4ABF
+magnet:?xt=urn:btih:B729216E3EAEF12045700CBB3BF4DA8F075D2742
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,32 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484059   (99851) от 17.04.2012
+###  Публикация: 1734029   (107183) от 02.07.2024
 
-Randall - Eight Storeys (2004) [MP3|320 кб/с]<Ambient, Istrumental>
+James Mitchem (editor) | My Encyclopedia of Very Important Animals (2017) [PDF] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Randall - Eight Storeys (2004)
-Год: 2004
-Жанр: Ambient, Istrumental
-Продолжительность: 00:40:50
-Лейбл: Spacious Music
-Страна: UKКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
+Очаровательная первая энциклопедия животных, полная фактов, идеально подходящая для маленьких учеников, которые хотят знать все о животных, которых они любят.
+Возрастной диапазон: 4–8 лет
+Уровень класса: Дошкольный - 3
+От слонов до акул и пингвинов — Моя энциклопедия очень важных животных полна фактов об удивительном мире животных — о том, что они едят, что делают, (   Читать дальше...   )Жанр: учебное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:130338DFB0022C07FCAC091E9305007281470AB1
+magnet:?xt=urn:btih:72898E9E202DD01218F0424C54D4C17632389150
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,25 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483168   (99846) от 17.04.2012
+###  Публикация: 1734041   (107182) от 02.07.2024
 
-[Wallpapers] Wallpaper Sexy Girls 0.6
+Shaila Brown (editor) | Smithsonian. Ocean (2015) [PDF] [EN]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+Исследуйте скрытые глубины океана с помощью этой потрясающей визуальной энциклопедии для детей.
+Возрастной диапазон: 8 - 12 лет
+Уровень класса: 3–7
+Океан: визуальная энциклопедия раскрывает тайны морей с помощью потрясающих изображений и красивых фотографий, которые привлекают и обучают детей. От Арктики до Карибского моря, от крошечного планктона до гигантских китов, (   Читать дальше...   )Жанр: учебное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F64AC5802E58B128BFC056E3712079FB1B675F37
+magnet:?xt=urn:btih:62C80F2C0984E1585EA2510F6E60C49BB60DE55B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,26 +223,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483549   (99841) от 17.04.2012
+###  Публикация: 1734071   (107181) от 02.07.2024
 
-Scion Versions - Label Pack (7 релизов) (2006-2010) [FLAC|Lossless]<Dub Techno, Techno, Minimal>
+Владимир Древс, Анастасия Вриндавати | Вечный наблюдатель. Умереть, чтобы родиться вновь (2024) [MP3, Сергей Курнаев]
 
->>Архив торрентов
->>Архив Музыки
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vainqueur - Ranges - Expanded (9:20)
-02. Vainqueur - Ranges - Theme (9:43)Продолжительность: 00:19:04
+В своей новой книге «Вечный наблюдатель» Владимир Древс, коуч и специалист по ведическим знаниям, и его соавтор, писательница Анастасия Вриндавати, рассказывают о невероятной истории встречи молодого талантливого режиссера, попавшего вместе со съемочной группой под сход ледника в горах, и мудрого старца по имени Вьяса. Эти два таких разных, на первый взгляд, человека (   Читать дальше...   )Жанр: Психология, эзотерика, саморазвитиеИздательство: БомбораПродолжительность: 03:32:41
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F314F21CBAE677B23DDEAD3C0DCD0A92F1BD9618
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,31 +249,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483907   (99840) от 17.04.2012
+###  Публикация: 1734105   (107180) от 02.07.2024
 
-Cindy Lora-Renard - Journey Through Sound (2009) [MP3|160-320 кб/с]<New age, Meditative>
+ApowerREC 1.7.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(4:28) 1. Evening Star
-(4:54) 2. Theme From The Disappearance of the Universe
-(5:02) 3. Om Mani Padme Hum
-(3:25) 4. Shamanic Dance
-(4:50) 5. Journey Through Sound
-(3:21) 6. The Call of the Wolf
-(3:47) 7. The Heart Awakens2009Жанр: New age, MeditativeПродолжительность: 00:29:47
+ApowerREC - это программа которая может записывать что угодно на вашем экране, включая ваши действия на рабочем столе, видео в прямом эфире, веб-встречи, переговоры в онлайн чатах и так далее. Вы можете захватывать свою работу на полном экране или в специально настроенной области вместе со звуком, софт способен поддерживать синхронизацию видео с аудио потоком, это (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:980C49A1D41A4CBDE7C40509A1684966A74415A3
+magnet:?xt=urn:btih:6103C628C2223A35826AE5C97C1503801BDECB44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,25 +275,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484238   (99839) от 17.04.2012
+###  Публикация: 1734227   (107179) от 02.07.2024
 
-[Wallpapers] Wallpapers Fantasy №3 (Pavel)
+Гильда / Gilda (1946) BDRip [H.264/720p] [DVO]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои на рабочий стол 50 штук
+Буэнос-Айрес, Аргентина. По окончании Второй мировой войны...  Ловкого афериста Джонни Фаррелла спасает от смерти Баллин Мандсон, владелец крупного казино, чья личность и источники доходов окружены тайной. Джонни становится правой рукой Баллина... Баллин после очередной отлучки возвращается с молодой женой Джильдой. Всё говорит о том, что ранее Джильда и Джонни были (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Polyphony DigitalЖанр: нуар, драма, мелодрама, триллерРежиссер: Чарльз ВидорАктеры: Рита Хэйворт, Гленн Форд, Джордж Макреди, Джозеф Каллейа, Стивен Герэй, Джо Сойер, Джералд Мор, Марк Робертс, Людвиг Донат, Доналд Дуглас, Лайонел Ройс, Сауль Мартелл, Джордж Дж. Льюис, Роза Рей, Арджентина БрунеттиПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский (Film Prestige), английскийСубтитры: русские, английскиеПродолжительность: 01:50:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D3B530983B8C95F01F4A2032D8D66A12ED0DC1C
+magnet:?xt=urn:btih:CF56D0215FAF07315ED73D4CE1316D533182CC2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,33 +301,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484163   (99838) от 17.04.2012
+###  Публикация: 1734288   (107178) от 02.07.2024
 
-Журнал | Золотая коллекция №40. Дачная кухня [апрель 2012] [PDF]
+Opera One 111.0.5168.55 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Золотая коллекция рецептов» - это журнал, созданный по лучшим рецептам читателей.
-В этом номере вы найдете:
-Витаминный омлет
-Картофель фаршированный колбасой
-Салат легкость
-Куринный суп с клецками
-Слоенные булочки
-Рисовые котлеты с сыром
-И множество других рецептовапрель 2012Формат: PDF
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9D2FCACCD54493EE0EDE90DB93B7090D03F41BD
+magnet:?xt=urn:btih:2D06B6B9AD24D130F2DE5F4AAFEF4E006C447FE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,34 +327,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483394   (99833) от 17.04.2012
+###  Публикация: 1734189   (107177) от 02.07.2024
 
-VA - Клубные Новинки Vol.60 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+Гильда / Gilda (1946) BDRip [H.264] [DVO]
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Billy Johnston & Gennaro Mastrantonio - Glauben Der Dunkelheit (Phunk Investigation Remix)
-02. Emma Hewitt - Colours (Cosmic Gate Remix)
-03. Guy Robin feat. Amba Shepherd - Heaven Or Hell (Original Mix)
-04. Christian Cambas - Animate Objects (Original Club Mix)
-05. Brian Mart, Alan Nunez - Don't Stop (Original Mix)
-06. Jeter Avio feat. Vera Fisher - I Will Stay (Igor Zaharov & Sober System)
-07. Fedde Le Grand, Deniz Koyu & Johan Wedel - Turn It (Original Mix)
-08. Jus Jack & Oza - The Mess (Original Mix)
-09. Andrea Ribeca feat. Anthya - Always in Paradise (Progressive Mix)
-10. Gaponoff & Саша Ветер - Таяли Звезды (Mike Prado Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:21:16
+Буэнос-Айрес, Аргентина. По окончании Второй мировой войны...  Ловкого афериста Джонни Фаррелла спасает от смерти Баллин Мандсон, владелец крупного казино, чья личность и источники доходов окружены тайной. Джонни становится правой рукой Баллина... Баллин после очередной отлучки возвращается с молодой женой Джильдой. Всё говорит о том, что ранее Джильда и Джонни были (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Polyphony DigitalЖанр: нуар, драма, мелодрама, триллерРежиссер: Чарльз ВидорАктеры: Рита Хэйворт, Гленн Форд, Джордж Макреди, Джозеф Каллейа, Стивен Герэй, Джо Сойер, Джералд Мор, Марк Робертс, Людвиг Донат, Доналд Дуглас, Лайонел Ройс, Сауль Мартелл, Джордж Дж. Льюис, Роза Рей, Арджентина БрунеттиПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский (Film Prestige), английскийСубтитры: русские, английскиеПродолжительность: 01:50:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CD6F6001968539F0769D689A0A525274C8F90B8
+magnet:?xt=urn:btih:45B1C571A8C9E2789B54F00EECB84288C71A31E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,34 +353,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482348   (99830) от 17.04.2012
+###  Публикация: 1734311   (107176) от 02.07.2024
 
-VA - Клубные новинки Vol.59 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+Derek Harvey | Smithsonian. Did You Know? Animals (2021) [PDF] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Techno Freedom Pro - Lucky Strike (Lino Remix)
-02. Rene Ablaze And Alexander Xendzov Feat. Sharon Fehlberg - Cast Your Spell (Extended Mix)
-03. Senadee - Life Support Machine (16 Bit Lolitas Remix)
-04. Marc Simz feat. Naomi Strieme - This Is Love (Original Mix)
-05. Dirty Harris - Cosmos (Original Mix)
-06. suGar, Eva Kade, Evil T - All Around (Gregory Esayan Remix)
-07. Yotopia & Sphera - Vertigo (Original Mix)
-08. Myon & Shane 54 feat. Aruna - Helpless (Alexander Popov Remix)
-09. Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Club Mix)
-10. Pulser feat Molly Bancroft - In Deep (Pulsers Main Floor remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:37:58
+Inside the pages of this encyclopedia about animals, you’ll find:
+Five chapters covering mammals, birds, marine life, creepy-crawlies, and reptiles and amphibians. Information that is presented in bite-sized chunks and images that are clearly captioned and annotated. Stunning photography of animals in their natural surroundings. Amazing answers to more than 200 awesome (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF6F9579C7FACA432A5EE1D0CF1D5160BCEFB426
+magnet:?xt=urn:btih:22EB03348F49657ECDDE8BE589F7470ED049033E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,25 +380,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 484361   (99829) от 17.04.2012
+###  Публикация: 1734274   (107175) от 02.07.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (18.04.12)
+EarthView 7.9.9 RePack (& Portable) by elchupacabra [Ru/En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC85DAFCDF9AFB7FCFE0324EB0CE8E82FA447879
+magnet:?xt=urn:btih:B0C8C42542E2380D269E208DE23765502C95965C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,30 +406,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483754   (99828) от 16.04.2012
+###  Публикация: 1734049   (107174) от 02.07.2024
 
-ХАСКИ - Икорный бизнес (2012) [MP3|320 кб/с]<Rock, indie-rock, pop-rock>
+Как починить велосипед (2022) WEB-DLRip
 
->>Архив торрентов
->>Архив Музыки
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Камикадзе (3:36)
-02. Дядя Хофман (5:37)
-03. 19-45 (6:07)
-04. Хэй, меломан! (3:16)
-05. Икорный бизнес (4:11)
-06. Хэй, меломан! (Alex Friesen ft. Lefster rmx) (6:20)Жанр: Rock, indie-rock, pop-rockПродолжительность: 00:29:06
+Мальчик Сарыал, сломав велосипед, боится, что его накажут. Он убегает из дома и попадает в неожиданные приключения.Производство: Россия / Sanaa CinemaЖанр: драмаРежиссер: Эр Санаа Ох-ХоторАктеры: Вадим Саввинов, Айсен Федоров, Валерий Андросов, Аким Федоров, Афанасий Лугинов, Дархан ТорговкинСубтитры: Русские (hardsub)Продолжительность: 01:04:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
+magnet:?xt=urn:btih:6D24D2FD73FD7FB083C86463ED94BED9AD0D1EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -739,34 +432,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 483531   (99826) от 16.04.2012
+###  Публикация: 1734259   (107173) от 02.07.2024
 
-Simon Pauls - Promise (2012) [MP3|320 кб/с]<Tech House, Minimal Techno>
+Жизнь человеческая / Et menneskeliv (1910) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Promise (with Mary Mercury)
-2. Shadow from the Past
-3. Dont Force Time
-4. Tessellation
-5. Alia Ludorum
-6. I do not know the way
-7. Insolita
-8. Prostratio
-9. Banana Box
-10. Time of electronic Love (with Plotka)(   Читать дальше...   )2012Жанр: Tech House, Minimal TechnoПродолжительность: 01:51:35
+Небольшой ролик иллюстрирующий извечные вопросы. Что важнее в жизни? Жизнь конечна и силы наши ограничены, на все не хватит. Особенно, если начинаешь с низов. На что их тратить? Карьера или любовь женщины? Упорное движение к поставленной цели или простые житейские радости? А если вдруг решишь поменять приоритеты, не будет ли слишком поздно?
+Сохранились не все эпизоды.Производство: Дания / Regia Kunstfilms Co.Жанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Клара Понтоппидан, Адам Поулсен, Эксел СтрёмПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:12:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:595EAD31A9CF43A9469E364DBF47BCD0E427D91D
+magnet:?xt=urn:btih:6A0AA15C41F80AA8AF4DDF027D76E5BC920C3734
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -774,25 +459,258 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482179   (99821) от 16.04.2012
+###  Публикация: 1734113   (107172) от 02.07.2024
 
-Товарищи / I compagni (1963) DVD9 [It]
+Lennie Tristano, Lee Konitz & Warne Marsh - The Complete Atlantic Recordings (1954 -1961) 6CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мастер итальянской комедии воссоздает трагикомичную историю о туринских рабочих конца 19 века.Производство: Франция, Италия, Югославия / Авала-фильм, Lux Film S.p.a., Méditerrannée Cinéma Production, Vides CinematograficaЖанр: Драма, КриминалРежиссер: Марио МоничеллиАктеры: Марчелло Мастроянни, Ренато Сальватори, Габриэлла Джорджелли, Фолько Люлли, Бернар Блие, Раффаэлла Карра, Франсуа Перье, Витторио Саниполи, Марио Пизу, Кеннет КоувПеревод: отсутствуетСубтитры: итальянские, испанские, английские, русские (от mihailtorrent)Продолжительность: 02:04:11
+01. Two Not One [5:34]
+02. There Will Never Be Another You [4:48]
+03. Donna Lee [6:17]
+04. Don't Squawk [7:20](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 06:24:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:469D9278B3ACEB5609820EE24D48228EFA6588AD
+magnet:?xt=urn:btih:25C5713FA0F83F351E010E1E0A1CEA752F67323D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734214   (107171) от 02.07.2024
+
+Cole & Ward - Blues and Other Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Blood Moon (3:55)
+02. Ma Jolie Fille (4:03)
+03. Midnight Motorway Blues (4:13)
+04. The More You Drink... (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863A6FEB1CB95E6679657AE1D6669B16D12BE955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734220   (107170) от 02.07.2024
+
+Corey Harris - Chicken Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicken Man (3:11)
+02. Ain't Going Back No More (3:10)
+03. Money Hungry (2:55)
+04. Red Man (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE439C13BE3B9C1A5F2E77D68ED1D1C71C3A0C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734275   (107169) от 02.07.2024
+
+Gena Lanette - Hell or High Winds (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swimming Upstream (3:35)
+02. Hymn Before the Battle (3:36)
+03. No Matter (4:21)
+04. Mansion (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903A0CAD0DEE600A25E30EE35953A1968031EF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734205   (107168) от 02.07.2024
+
+Народ | Сказки народов мира. Сказки Италии (2012) [MP3, Юрий Яковлев и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Сказки народов мира. Мелодия – детям.
+Итальянские сказки вводят нас в чудесный мир фантазии. Они рассказывают об умных бедняках и глупых королях, прекрасных гордых девушках и капризных принцессах, злых колдуньях и уродливых карликах, странствующих солдатах, которые могут перехитрить самого черта, и тщеславных принцах. Каждая сказка чему-нибудь учит своего (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDAD30459A0130437443E63B607E64FDCCA3843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734273   (107167) от 02.07.2024
+
+Daniele Perrino - The Soot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Moment (3:39)
+02. Some Kind Of Loving (3:34)
+03. Burning Coals (5:02)
+04. Lethargy (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029E69CE76B71C2FCC0DD2313C22577D8B4A2BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734228   (107166) от 02.07.2024
+
+Knut Nordhagen & Bluepack - Maximum R & B (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Muddy Water (3:59)
+02. Lost in the Groove (3:55)
+03. Eye of the Spy (4:42)
+04. Slave to the Rhythm (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E13D5FC3B22E97D0E841BF99B77362A8B4012B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734271   (107165) от 02.07.2024
+
+Berk Jodoin - Fly Away (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aces & 8's (3:11)
+02. Weather The Storm (3:38)
+03. Gascoigne Choir (4:23)
+04. Slow Down (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22F85CDBF510F9D2AD8EB2ADE41B9841148F480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734137   (107164) от 02.07.2024
+
+Kaipa - Sommargryningsljus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Progressive Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sommarskymningsljus (1:33)
+02. Seven Birds (9:49)
+03. Like Thousand Dawns (11:09)
+04. Revelationview (9:28)(   Читать дальше...   )Жанр: Symphonic Progressive Metal, Progressive RockПродолжительность: 01:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A35F921FD4FAE12309D3A4338DD14AEFE235E71
 ```
 
 https://mybot314.ru/tekegram_catalog/

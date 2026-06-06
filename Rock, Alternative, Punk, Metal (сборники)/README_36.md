@@ -1,3 +1,151 @@
+###  Публикация: 844212   (318036) от 25.11.2014
+
+VA - 100 Hits Total Rock (2014) 5 CD (2014) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318036.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Disc:
+01 Meat Loaf - Bat Out of Hell (4:49)
+02 Alice Cooper - Poison (4:30)
+03 Boston - More Than a Feeling (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 06:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D1A24B592B67B6D2ABF8A2A5DAB53707B8A1B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182330   (316398) от 10.11.2017
+
+VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7 (2017) [MP3|320 Kbps] <Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  7Б - Молодые ветра  4:25
+02.  Король и Шут - Кукла колдуна  3:24
+03.  Ляпис Трубецкой - Ау  3:54
+04.  Ночные Снайперы (Диана Арбенина) - Асфальт  3:19(   Читать дальше...   )Жанр: РокПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97669591858B4E7ED8D5A513D82155346A20945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421970   (315437) от 06.11.2020
+
+VA - The Gambling: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315437.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hillview - No One Else To Blame
+002. Kolossus Däächt - Fallen Piece
+003. Holly Would Surrender - What Do We Do Now
+004. Mcrackins - Happy Hour(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 07:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BD57EED8F5F3DDFFEC9DC71F679B93EABB8060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182736   (313973) от 11.11.2017
+
+Юлия Чичерина - Избранное 1997-2017 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off-On
+02. Радиоволна
+03. Жара
+04. 40000 км(   Читать дальше...   )Жанр: RockПродолжительность: 02:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C317B1DABA970325F09C8F35653CB20DD8E4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260001   (311389) от 07.11.2018
+
+VA - Hits of My Soul Vol. 42 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Ill Nino - Te Amo...I Hate You (03:33)
+02. Drowning Pool - Step Up (03:17)
+03. 3rd Strike - Into Hell Again (03:12)
+04. Atomship - Whitfield (04:56)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2740A5CAA61F89578D0E24E8F647C775BAB0C41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332888   (309713) от 22.10.2019
 
 VA - Always On Your Side: Indie Music (2019) [MP3|320 Kbps] <Indie, Pop Rock>
@@ -606,148 +754,6 @@ Bon Jovi Music Box (2002)(   Читать дальше...   )Жанр: Rock, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE7A217AAF20159BCFCBA07CC5FBAAAA6CAC3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 159116   (292502) от 20.12.2009
-
-Boney Nem - 40 лучших композиций (до 2008) [MP3|192]<Панк рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Daddy Cool
-02 - В мире животных
-03 - We are the world, we are the children
-04 - It's My Life(   Читать дальше...   )Жанр: Панк рокПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079848   (291984) от 05.12.2016
-
-Крематорий - Live in Sexton (21.01.1993) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крематорий
-02. Лепрозорий
-03. Последний шанс
-04. Клубника со льдом(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4D31F7A5787B7C7007E57535DAB3ECEDCCC1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079472   (290158) от 06.12.2016
-
-Медвежья икра - Сборник (2010-2015) [MP3|128 Kbps] <Рок, фолк>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. И на камнях растут деревья (256 Kbps)
-02. Кен и Барби (256 Kbps)
-03. Весна (256 Kbps)
-04. Камни (256 Kbps)(   Читать дальше...   )Жанр: Рок, фолкПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AAB2D9FF224E4A38D40F67CE51A9BF37C6ED67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263402   (288010) от 19.11.2018
-
-VA - Back In Your Life (2018) [MP3|320 Kbps] <Alternative, Punk, Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288010.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. They Might Be Giants - Theme From Flood
-002. A Vulture Wake - Collateral Damage
-003. Camiches - Espero Nadie Ocupe Mi Lugar
-004. Wax Chattels - It (Live At Part Time Punks)(   Читать дальше...   )Жанр: Alternative, Punk, Punk RockПродолжительность: 09:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F669CCBA7271B858670550BD2DD2E1FA1A09A22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080297   (287581) от 07.12.2016
-
-VA - Alterportal HITS - Vol. 1-97 (2008-2016) [MP3|32 -320 Kbps] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative, Metal, RockПродолжительность: 06:14:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DBBBAEEDCA9729D8AE592FBD65433655517200
 ```
 
 https://mybot314.ru/tekegram_catalog/

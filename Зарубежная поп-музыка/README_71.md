@@ -1,3 +1,90 @@
+###  Публикация: 1584433   (234764) от 13.05.2023
+
+Paula Abdul - The Greatest (1998) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way You Love Me
+02. Knocked Out
+03. Forever Your Girl
+04. Straight Up(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BB63335BB3E4CDAAB9611BCF79F49E2F4F190E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633637   (234115) от 16.05.2023
+
+VA - Summer Pop 100 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234115.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Veronicas - Untouched (4:15)
+002. Kid Rock - All Summer Long (4:57)
+003. Big Mountain - Baby, I Love Your Way (4:09)
+004. Duran Duran - Rio (U.S. Remix) (5:25)(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406CC4DD3D45253BBD3A2736F362154EE61B8F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548346   (234017) от 02.05.2022
+
+VA - Mastermix Essential Hits: 00s R’n’B (2022) [MP3|320 Kbps] <Pop, R’n’B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaliyah - More Than A Woman
+02. Christina Aguilera Feat. Lil' Kim - Can't Hold Us Down (Radio Edit)
+03. Akon Feat. Snoop Dogg - I Wanna Love You
+04. Amerie - 1 Thing (Radio Edit)(   Читать дальше...   )Жанр: Pop, R’n’BПродолжительность: 03:10:21 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F190150D8C67AC4DFD4E3B5351B6FC5C99C8DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646505   (232138) от 14.07.2023
 
 Cher - It's a Man's World (1995) Deluxe Edition, Remaster, 2023, Warner Records [MP3|320 Kbps] <Pop>
@@ -684,93 +771,6 @@ CD1-CLUB MIX:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3362FCA80CCD696EE8433A2FCB7D2BB5696881CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268701   (225154) от 12.12.2018
-
-VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Video [MP3|320 Kbps] <Pop, Euro-Disco, Latin, Euro-House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaft - Mucho Mambo (3:27)
-02. Q-pow! - Summer Holiday (3:18)
-03. Loona - Bailando (3:34)
-04. Crystal Waters - 100% Pure Love (4:39)(   Читать дальше...   )Жанр: Pop, Euro-Disco, Latin, Euro-HouseПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555B70F111FD3A1D06F07BAD7E3BF06CA0400E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268934   (225146) от 12.12.2018
-
-VA - Deep Strips (2018) [MP3|320 Kbps] <Funky, Dance, Nu Disco, Deep House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Hill - You Will See (Chunkee Remix)
-02. Natasha Baccardi - No Sleep (Original Mix)
-03. Alex Dee Gladenko - Beach Party (Original Mix)
-04. Melih Aydogan - You Tell Me (Original Mix)(   Читать дальше...   )Жанр: Funky, Indie-Dance, Nu Disco, Deep HouseПродолжительность: 03:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EA2ABB248FB5C481915CD5C314037E5B43FA38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584817   (224717) от 19.10.2022
-
-Sarah Connor - Bounce (2004) [OGG Vorbis|480 Kbps] <Europop, Hip Hop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bounce
-02. French Kissing
-03. Let's Get Back To Bed-Boy!(featuring TQ)
-04. On Nite Stand(Of Wolves And Sheep)(featuring Wyclef Jean)(   Читать дальше...   )Жанр: Europop, Hip Hop, PopПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73077E07E83D5BF571CA2FC4973B09DFBAE38D4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1100226   (901053) от 03.02.2017
+
+Mikalojus Konstantinas Ciurlionis - 1875 - 1911 (2000) Box Set [FLAC|Lossless|image + .cue] <Romantic, Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микалоюс Константинас Чюрлёнис (до 1955 г. использовалась русская форма имени Николай Константинович Чурлянис) - литовский художник и композитор, родоначальник профессиональной литовской музыки, далеко раздвинувший своим творчеством границы национальной и мировой культуры.Список альбомов:
+1. CD1 - Symphonic Poems
+2. CD2 - Fugues, String Quartet In C Minor
+3. CD3 - Piano Works(   Читать дальше...   )Жанр: Romantic, ClassicalПродолжительность: 03:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFCBBC4B33620DE12D8287902F3C2134D32C413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992565   (900919) от 02.03.2016
+
+VA - Gluck. Orpfeo Ed Euridice, Iphigenie En Aulide, Iphigenie En Tauride. Fragments From Operas (2002) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орфей и Эвридика:
+1. Балет I (2 д.)  02:31
+2. Балет II ("Мелодия") (2 д.)  03:46
+(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8331FE4FC93C4838824BC1D79E58065230ADFD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992617   (900824) от 02.03.2016
 
 The Chamber Orchestra of Europe feat. conductor  Claudio Abbado - Gioacchino Rossini - Overtures (1991) [FLAC|Lossless|image + .cue] <Classical>
@@ -688,64 +746,6 @@ Renee Fleming - The Art Of Renee Fleming (2012), compilation [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00D9EAC7E24C4E5F6904B76B7EA16312E0B2CA73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993437   (895448) от 05.03.2016
-
-W.A. Mozart - Requiem (1976) Compilation, 1998, Teledec Classics [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. Introitus. Requiem (5:38)
-02. Ii. Kypie (2:48)
-03. Iii. Sequienz. Dies Irae (1:51)
-04. Iii. Sequienz. Tuba Mirum (4:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0377C38538BC3D92EC3E3038B874EC5200F8FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993349   (895349) от 05.03.2016
-
-L'Orfeo Baroque Orchestra, dirigent Michi Gaigg - Christoph Willibald Gluck: Five Symphonies (2011) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Symphony in G major: Allegro (6:56)
-02.  Symphony in G major: Andante (5:19)
-03.  Symphony in G major: Allegro (2:20)
-04.  Symphony in D major: Allegro capriccioso (6:56)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499243EFCC52B996D4F0376D289D361E2842611D
 ```
 
 https://mybot314.ru/tekegram_catalog/

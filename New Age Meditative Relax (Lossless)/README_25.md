@@ -1,3 +1,90 @@
+###  Публикация: 1336947   (274760) от 10.11.2019
+
+Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ceriam 02:44
+2. Breath In Yoga Sounds 03:00
+3. Inhalar Exhalar 03:04
+4. Amrita 02:54(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514A64ECD66D29204E9D2FE132B98B30AAE5B2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336706   (274580) от 10.11.2019
+
+Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Away from Home 05:16
+2. Open Skies 04:00
+3. As Beautiful as You	04:44
+4. Hope in Sight	04:35(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7F66C2438D59F0D623A5AA06F5885F6C28286E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431150   (273462) от 11.11.2019
+
+Kevin Kern - Enchanted Piano (2011) [APE|Lossless]<New Age ,Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kevin Kern - Enchanted Piano (2011)
+Год: 2011
+Жанр: New Age , Piano
+Продолжительность: 00:43:00(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44CC487DEC53CFF8EF2C0622E28DFF963D56E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188849   (273236) от 03.12.2017
 
 ERA - The 7th Sword (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Ethereal>
@@ -656,91 +743,6 @@ Frantz Amathy - In the Presence of Angels (2008) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B51092B26DC3146F6F80C8AE13235C75587403AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359955   (242786) от 15.02.2020
-
-VA - Moods: A World Of Emotions (2014) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clannad - Theme From Harry's Game (2:30)
-02. Enigma - Return To Innocence (4:09)
-03. Mike Oldfield - Tubular Bells (4:16)
-04. Ennio Morricone & His Orchestra - Chi Mai (5:07)(   Читать дальше...   )Жанр: New Age, Modern Classical, InstrumentalПродолжительность: 02:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE657B56AE25E4C9E354515B8637D40E5E1E251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641485   (235970) от 25.06.2023
-
-Dr. Jeffrey Thompson - Creative Mind System 2.0 (2004) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creative Insight
-02. Inner GeniusЖанр: Ambient, Relax, HealingПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624F922AD06292364CF05F7A264C6B85DBD6F0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279928   (234170) от 20.05.2022
-
-Vangelis - Nocturne (The Piano Album) (2019) Decca [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Promenade (5:51)
- 02. To The Unknown Man (5:15)
- 03. Movement 9, Mythodea (3:49)
- 04. Moonlight Reflections (3:11)(   Читать дальше...   )Жанр: Electronic, New Age, ClassicalПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EA1555EE110D1A8C0965206D087FA322C16AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1383736   (810110) от 16.05.2020
+
+Tanir & Tyomcha - До мурашек (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. До мурашек [02:56]
+02. Da Da Da [03:18]
+03. Аккуратно [03:00]
+04. 1, 2 [02:54](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6610B2403266435C2A9EECDF0E43BBC34D13042F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383719   (809962) от 16.05.2020
+
+eto - The Beauty of It (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beauty of It [01:19]
+02. No (feat. Flee Lord & Grafh) [03:33]
+03. Nothin' Like You (feat. Nyticka Hemingway) [03:07]
+04. The Pot [02:21](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1499B8EA012628E9171A2FB888B261603C0831AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383716   (809814) от 16.05.2020
+
+All That Glue - Sleaford Mods (2020) [MP3|320 Kbps] <Hip-Hop, Indie, Punk>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. McFlurry (Remastered) [04:28]
+02. Snake It (Remastered) [02:28]
+03. Fizzy (Remastered) [02:57]
+04. Rich List [03:03](   Читать дальше...   )Жанр: Hip-Hop, Indie, PunkПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A709F96282420164CDCD2D435E20261E3425D207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009595   (807473) от 22.04.2016
 
 Alai Oli - Равновесие / Глубина (2016) [MP3|320 кб/с] <Alternative Rock, Reggae>
@@ -659,93 +746,6 @@ ChipaChip, Vnuk - Дохлый номер (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2A33D6620BA2F5312D28FD406AFB7AA49E5FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511202   (789370) от 20.11.2021
-
-Redo - ARKTECH (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X.R.O.M [02:17]
-02. RIZZLA [02:26]
-03. PETROL (feat. BATO, RAM) [03:25]
-04. OCHERED' [02:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ECF52A39E9C60D7CAC4DED71C90CDD23AB9AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511201   (789364) от 20.11.2021
-
-Bahh Tee - 33 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые Найки [04:24]
-02. Ветер и Берёза (feat. Turken) [06:43]
-03. Три сестрёнки [02:56]
-04. Прожигаю [02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC1661988A2B58D9C2A7084506D17558896D90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511205   (789361) от 20.11.2021
-
-ST - Высотка (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ради нее [03:37]
-02. Время [03:23]
-03. Без тебя [03:30]
-04. Пацаны [03:22](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E04498F1EF9FF10B84E93D3C61EFC46678E888B
 ```
 
 https://mybot314.ru/tekegram_catalog/

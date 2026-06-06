@@ -1,3 +1,90 @@
+###  Публикация: 1602264   (1046021) от 06.01.2023
+
+SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - В одного [00:03:14]
+02 - Весна ,среди зимы [00:02:33]
+03 - Клавиши черные, клавиши белые [00:02:44]
+04 - Лучшая ты [00:02:26](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F191E7D48B3B0F0B905E901E93367E056BF9CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602256   (1046012) от 06.01.2023
+
+L'One (Леван Горозия) - Концерт с симфоническим оркестром (Live 8_X 2022) (2023) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро (Live 8_X 2022) [00:02:33]
+02 - Ракета, Твой день настал (Live 8_X 2022) [00:02:54]
+03 - Сон (Live 8_X 2022) [00:04:07]
+04 - Дорога (Live 8_X 2022) [00:03:24](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DC7AFE57BAF55F482EA643CD72D92355C320DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581379   (1045802) от 08.01.2023
+
+Вася Васин - 4 Albums (2009-2023) [MP3|320 Kbps] <Rap, Hip-Hop, Spoken Word>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2009 - Демонстрация достижений (CD-1)
+2009 - Демонстрация достижений (CD-2)
+2011 - Tzar Vasilich(   Читать дальше...   )Жанр: Rap, Hip-Hop, Spoken WordПродолжительность: 5 CD, 03:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F85A65F8B2CD88F530B4FCD20F46C8730A9A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606931   (1044218) от 24.01.2023
 
 VA - The Many Faces of Stevie Wonder (2021) 3xCD [FLAC|Lossless|image + .cue] <R&B, Soul, Pop>
@@ -656,93 +743,6 @@ Onyx - Lost Treasures (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB045FDA6194B2BC8ABA5764EDEA6E61838DDE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443818   (1034671) от 01.02.2021
-
-The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:16)
-02. Pending (01:42)
-03. 5 Year (03:00)
-04. Other Content (02:14)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F711C1DC28A76BE3724BAF79EBCB643AE9D9CA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443821   (1034664) от 01.02.2021
-
-The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro from space (01:46)
-02. Ghost (01:42)
-03. NY in night (02:49)
-04. Lullaby from the moon (03:11)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618402   (1033931) от 12.03.2023
-
-Sagath - Catacombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, Horrorcore>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catacombs [00:02:12]
-02. Step on the gas [00:02:17]
-03. Coffin [00:02:00]
-04. New day [00:02:00](   Читать дальше...   )Жанр: Alternative, Hip-Hop, HorrorcoreПродолжительность: 00:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8791127308AA3BD9E97F7F483AB5060D100C57D
 ```
 
 https://mybot314.ru/tekegram_catalog/

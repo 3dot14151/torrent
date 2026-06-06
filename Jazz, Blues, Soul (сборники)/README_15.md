@@ -1,3 +1,119 @@
+###  Публикация: 1159416   (481870) от 21.08.2017
+
+VA - Soul Deep 08: Smooth Jazz Review (2017) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481870.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Anita Baker - My Funny Valentine  5:06
+002.  Jazz 2 More - Soulsamba  6:58
+003.  Lo Greco Bros - Friendly Pressure  4:39
+004.  South Froggies - Dub Jazz  3:50(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416117E4AB0CA26EC2335D1961F4EA9E535FD07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159856   (479828) от 22.08.2017
+
+VA - Jazz Chill: Romantic Female Vocals (2017) [MP3|320 Kbps] <Vocal Jazz, Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Norah Jones - It's A Wonderful Time For Love  3:54
+002.  Nina Simone - Blue Prelude  3:20
+003.  Ella Fitzgerald - A Man And A Woman  3:18
+004.  Basia - The Sweetest Illusion  5:00(   Читать дальше...   )Жанр: Vocal Jazz, Smooth JazzПродолжительность: 08:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C5BA753A7C3528AD1F47A3777023E8A160B048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159978   (478109) от 23.08.2017
+
+VA - Mellow Mods Instrumental Jazz Music (2017) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478109.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Derek Ryan Edwards - On the Coast
+002. Instrumental Jazz Musique d'Ambiance - Datente corporelle
+003. Jazz douce musique d'ambiance - Sexy dame
+004. La Musique de Jazz de Datente - Moments magique(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 10:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48A85AFAF78B34ED1DD63228E9E27213D088D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058174   (470821) от 30.09.2016
+
+VA - Soft Jazz Best Background Music: Exam Study Music to Help Increase Concentration (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz for Study Music Academy - Soft Jazz: Best Background Music
+02. Easy Study Music Academy - Concentration and Brain Power
+03. Exam Study Piano Music Guys - Improve Human Memory
+04. Jazz Relax Academy - Positive Motivating Energy(   Читать дальше...   )Жанр: JazzПродолжительность: 01:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05E3FC2B5EC03361334DB82757EE5BB4243C85E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245655   (469780) от 07.09.2018
 
 VA - Smooth Jazz: Lyric Theatre (2018) [MP3|320 Kbps] <Smooth Jazz>
@@ -626,119 +742,6 @@ Seal - 25 Best Songs (2012) [MP3|218 - 250 кб/с]<Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF206394AC24BFDCBE75B48F628E5D4545579D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711560   (410887) от 16.10.2013
-
-VA - Saxophone Collection (45CD) (1985-2010) [MP3|320 кб/с]<Jazz, Soul, Instumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Soul, InstumentalПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73FC221E9E7E4B7F140C12696B22B8E75AAC491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067293   (408238) от 28.10.2016
-
-VA - Journey. Relaxing Instrumental Piano Bar and Smooth Jazz Music (2016) [MP3|320 Kbps] <Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instrumental Jazz Music Ambient - Journey
-02. Jazz Piano Bar Academy - Smile Again
-03. Piano Jazz Calming Music Academy - What a Wonderful World
-04. Good Morning Jazz Academy - Shimmer of Mystery(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29695D6AE7AC68CAD186B6BAC30CD350E7F90689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712805   (403216) от 19.10.2013
-
-Sade - 25 Best Songs (2012) [MP3|209 - 248 кб/с]<Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No ordinary love 1992
-02. Smooth operator 1984
-03. Your love is king 1984
-04. Hang on to your love 1984(   Читать дальше...   )Жанр: SoulПродолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12C26695E2E8E8396CFD691A4E6E04E39E7BE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712966   (403176) от 19.10.2013
-
-Chris Rea - 25 Best Songs (2012) [MP3|197 - 270 кб/с]<Blues-Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell (Part 2) 1989
-02. King Of The Beach 2000
-03. Auberge 1991
-04. Josephine 1985(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4872F3B02622077633653BDBE207E63263E14497
 ```
 
 https://mybot314.ru/tekegram_catalog/

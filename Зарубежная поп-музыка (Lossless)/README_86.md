@@ -1,3 +1,293 @@
+###  Публикация: 1679496   (138260) от 25.11.2023
+
+George Perris - The Most Wonderful Time Of The Year (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's The Most Wonderful Time Of The Year [00:03:18]
+02. The Christmas Song [00:03:21]
+03. Before Christmas [00:03:41]
+04. Underneath The Tree [00:03:39](   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EE49C209BF6BD5DCC6F809793852A98A6F1EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294092   (137923) от 31.12.2019
+
+Gallina - 4 Альбома (2000 - 2010) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здравствуй, это я !
+02. 10 лет
+03. Сердцем на Восток
+04. 2 дыханья(   Читать дальше...   )Жанр: PoрПродолжительность: 03:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A4E824B422D399AABF3A261A20E6EE3EC82B9E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824726   (136758) от 17.10.2025
+
+Duffy - Rockferry (2008) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Neo Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockferry [00:04:12]
+02. Warwick Avenue [00:03:46]
+03. Serious [00:04:10]
+04. Stepping Stone [00:03:29](   Читать дальше...   )Жанр: Neo SoulПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411DE8F297D0E955C78DF819851F9168813DEEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681080   (133513) от 01.12.2023
+
+Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora (3:25)
+02. Let Me Down Easy (3:24)
+03. Kill You To Try (5:12)
+04. Two Against Three (3:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCE8DF1BB36F62D15493A5F080BD80CDD4A3599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595200   (132493) от 28.12.2012
+
+VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD Box Set[FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681765   (132376) от 04.12.2023
+
+Sia - This Is Acting (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Set Free
+02. Alive
+03. One Million Bullets
+04. Move Your Body(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121DC070CFCBCAF566638B8CD58F35BB44B6E989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681709   (132352) от 04.12.2023
+
+Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Baby, Why Don't You Reach Out) Light My FireЖанр: PopПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B475FF3FFD7217781F0367DAAC692AEF20B4F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596233   (131383) от 30.12.2012
+
+Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Thrill [02:57]
+02. Bewitched, Bothered And Bewildered [02:44]
+03. I'm Confessin' That I Love You [02:46]
+04. Sometimes I'm Happy [02:36]
+05. You Go To My Head [02:53]
+06. I Didn't Know What Time It Was [03:05]
+07. When Your Lover Has Gone [02:58]
+08. That Old Feeling [03:03]
+09. Imagination [03:18]
+10. If I Could Be With You (One Hour Tonight) [03:27](   Читать дальше...   )Жанр: Pop, OldesПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682764   (131050) от 08.12.2023
+
+Bryan Adams - Waking Up The Neighbours - Live At The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is Your Mama Gonna Miss Ya? (Live At The Royal Albert Hall) [00:03:32]
+02. Hey Honey - I'm Packin' You In! (Live At The Royal Albert Hall) [00:03:15]
+03. Can't Stop This Thing We Started (Live At The Royal Albert Hall) [00:04:56]
+04. Thought I'd Died And Gone To Heaven (Live At The Royal Albert Hall) [00:03:35](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D7E384B500399E26D782FB9E59941654FAFEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682860   (130832) от 09.12.2023
+
+Dalida - Vive le vent (2023) [FLAC|Lossless|tracks] <Pop, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vive le vent (Nouvelle orchestration 2023) (3:01)
+02. Pour Vous (3:28)
+03. Dans le bleu du ciel bleu (2:53)
+04. Le Petit Clair De Lune (2:40)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F2A0611AA4183FE51E02617D0F5EA9DD13FC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524779   (130378) от 18.01.2022
 
 Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
@@ -456,296 +746,6 @@ CD-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD831C604C21D44BF16E761B35C7E0CDF30D3E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686199   (126765) от 21.12.2023
-
-VA - Christmas Time Is Here:  The Greatest Holiday Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Motels - All I Want for Christmas Is You
- 02 - The Hashtags - Last Christmas
- 03 - Thea Austin - Sleigh Ride
- 04 - Ohio Express - Wonderful Christmastime(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5622C416ABF2E4C3527E4716A8BB9A44663372A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686335   (126611) от 22.12.2023
-
-VA - Now That's What I Call A Most Wonderful Christmas (2023) [FLAC|Lossless|tracks + .cue] <Christmas, Compilation>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну вот наступили на нас эти Предновогодние и Предрождественские дни! Каждому хочется, чтоб они сопровождались красивой и мелодичной музыкой. Вот тётя Сони и позаботилась о нас, чтоб мы лихорадочно не составляли свои плейлисты. Воспользуйтесь предлагаемым набором треков и хорошее настроение не покинет вас ни в Новый год, ни в Рождество.01. Camilla Cabello - I'll Be Home For Christmas (02:58)
-02. Sam Smith - Night Before Christmas (03:33)
-03. Sia - Snowman (02:42)
-04. Carrie Underwood - Let There Be Peace (03:53)(   Читать дальше...   )Жанр: Christmas, CompilationПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DDB6A4A551611DB8BD6FD18492FB987EB8ACD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686697   (126461) от 23.12.2023
-
-Maggie Lindemann - SUCKERPUNCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro - welcome in
-02. take me nowhere
-03. she knows it
-04. casualty of your dreams(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FFB01A2BCDE3185C0045EB6FFBC0FFB514A2A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686677   (126251) от 24.12.2023
-
-TV Girl - Death of a Party Girl (2018) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnotic Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pretty Boys (02:46)
-02.7 Days til Sunday (03:35)
-03.Blue Hair (03:37)
-04.Lonely Girls (02:55)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459B281917CF3CAD7E101426CF739B7CC3980032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687165   (125604) от 26.12.2023
-
-VA - Pop Christmas Songs (2023) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pentatonix - We Need A Little Christmas (00:02:26)
-02. nsync - Merry Christmas, Happy Holidays (00:04:12)
-03. Elle King - Please Come Home for Christmas (00:02:57)
-04. Darlene Love - Christmas (Baby Please Come Home) (00:02:46)(   Читать дальше...   )Жанр: PopПродолжительность: 03:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC873B187D4E08F74B5A332EA06DC079A99893E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690198   (124043) от 06.01.2024
-
-Gesaffelstein - Hyperion (2019) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Pop/R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hyperion (2:53)
-02.Reset (3:25)
-03.Lost in the Fire (with The Weeknd) (3:22)
-04.Ever Now (1:38)(   Читать дальше...   )Жанр: Pop/R&BПродолжительность: 40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC1EA4620A79A9A606C6D32BF0EA921323D711E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690713   (123813) от 08.01.2024
-
-Dan Balan - Freedom, Pt. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allegro Ventigo (feat. Matteo) (3:42)
-02. Balzam (feat. Lusia Chebotina) (3:38)
-03. Домой (feat. Тина Кароль) (4:25)
-04. Numa Numa 2 (feat. Marley Waters) (3:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876C2C2D7BEC15B3ABD4733C68DA9EE53C1B9240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690723   (123781) от 08.01.2024
-
-Penfield - We All Fall Apart (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Caleb + Sophia
-02 - Hang On
-03 - We Belong
-04 - We All Fall Apart(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7B2C2EF3D0FA575F80C903109A95F6F2EC9FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688158   (121938) от 20.01.2024
-
-A-HA - Hunting High And Low (1985) 1st German Press Gold disc [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (3:49)
-02. Train Of Thought (4:14)
-03. Hunting High And Low (3:45)
-04. The Blue Sky (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769A6B65E5AE8AAFDA0EBB1806B24346D259678B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693234   (121900) от 20.01.2024
-
-Hurts - Happiness (2010) 1st EU Press [APE|Lossless|image + .cue] <SynthPop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Lining (4:57)
-02. Wonderful Life (4:14)
-03. Blood, Tears & Gold (4:18)
-04. Sunday (3:53)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F2FEECB4DA9FD1C824EB85DEF52BA0D34017D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

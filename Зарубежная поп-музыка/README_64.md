@@ -1,3 +1,61 @@
+###  Публикация: 964240   (283956) от 10.12.2015
+
+Ayala - This Year (2015) [OGG|469-523 кб/с]<Alternative Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russian Roulette
+02. Maybe
+03. 5157 Miles
+04. Don't Fix It(   Читать дальше...   )Жанр: Alternative Indie PopПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627E605B35086F77DEA34A475A4FF1EC4B3FE028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186729   (283898) от 26.11.2017
+
+Yello - Live In Berlin (2017) [MP3|320 Kbps] <Pop, Synth-pop, Future Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Magma (Live In Berlin) 3:58
+02.  Do It (Live In Berlin) 4:31
+03.  The Evening's Young (Live In Berlin) 4:03
+04.  Limbo (Live In Berlin) 4:57(   Читать дальше...   )Жанр: Pop, Synth-pop, Future JazzПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810D2A0C3D7CE326AF2ECAC12791C3F913B09565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964265   (283653) от 10.12.2015
 
 Bebe Rexha - I Don't Wanna Grow Up (2015) EP [OGG|489-533 кб/с]<Power Pop, Electropop, EDM>
@@ -107,6 +165,41 @@ Train - Christmas In Tahoe (2015) [OGG|448-506 кб/с]<Pop, Traditional Christm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C254E4D4021EF1AC631C64FF742A7FCD01192CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423988   (282261) от 17.12.2011
+
+Susan Boyle - Someone To Watch Over Me (Regular Edition) (2011) [MP3|320 kbps]<Vocal Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_282261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Have To Be There
+02. Unchained Melody
+03. Enjoy The Silence
+04. Both Sides Now
+05. Lilac Wine
+06. Mad World
+07. Autumn Leaves
+08. This Will Be The Year
+09. Return
+10. Someone To Watch Over Me2011Жанр: Vocal PopПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1147A791C0E6D20E69CC9ADF3A063FCDCBA2D505
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,94 +755,6 @@ CD01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0179042CCA999C54E006516130B6CB2A89AECFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265281   (275187) от 27.11.2018
-
-VA - 90'S The Collection 2018 (2018) 2CD [MP3|320 Kbps] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275187.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. MC Sar & The Real McCoy - It's On You (The Ultimate Freshline Allstars Remix)
-02. Corona - Try Me Out (Lee Marrow Eurobeat Mix)
-03. DJ Space'C - Forever Young (International Club Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A5984F58788898A34186C78BD20BED16425751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850965   (275120) от 17.12.2014
-
-VA - Absolute Dance Winter 2015 (2014) 2CD [MP3|320 кб/с]<Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Absolute Dance - более 23 лет является ведущим брендом для современной танцевальной музыки. На сегодняшний день продано более 3 миллионов копий!
-Вот это, наверное, последняя коллекция в этой популярнейшей серии. Встречайте Новый 2015 Год с Absolute Dance Winter.CD1:
-01. OMI - Cheerleader (Felix Jaehn remix)  (3:02)
-02. Calvin Harris feat. John Newman - Blame  (3:31)
-03. Avicii - The Days  (3:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6A5D019EF713B8CB4D257D5D60354C8A9B0A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188152   (274570) от 02.12.2017
-
-Mireille Mathieu - Made in France (2017) [MP3|320 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est si bon
-02. J'aime Paris
-03. L'hyme a l'amour
-04. La mer(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 02:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CCCA3C1CE0B311B2B4DB1013DA4FEFEEE8E632
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1863162   (1063623) от 03.04.2026
+
+VA - Armin van Buuren - A State Of Trance 1271 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	EBENEZER & Lovlee - On My Skin
+02.	Farius & Parallels - Beyond The Light
+03.	Christopher Larkin - Silksong OST Bilewater (BLR Remix)
+04.	KASIA – Simulate (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307FB4EBEA92FF740861B2AA62ACEB0D235CE04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861801   (1062793) от 27.03.2026
+
+VA - Ori Uplift - Uplifting Only Episode 685 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KBK & Grande Piano ft. Agata Pasternak – Mystery Of Tomorrow (Intro Mix)
+02. DreamLife – Mountain Waterfall (Orchestral Uplifting Classic)
+03. LR Uplift – Euphoria
+04. Shadows&Nightmares – Hallucinogen(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D236D46EB35708D67B6FE647A1932C44A93022B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861798   (1062792) от 27.03.2026
+
+VA - Armin van Buuren - A State Of Trance 1270 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discognition – Gotham Summer Returns
+02. Super8 & Tab ft. Anton Sonin – Black Is The New Yellow (Simon Gregory Remix)
+03. Sander van Doorn – Direct Dizko 2024
+04. METODI – A Gut Feeling(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87B74E0CF8C318AAF4359AAEBC34874AB01E654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860357   (1061850) от 20.03.2026
+
+VA - Ori Uplift - Uplifting Only Episode 684 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LR Uplift - Arrival (Intro Mix)
+02. Lost Witness & FAWZY with Yasmin Jane - Gardens of Your Mind
+03. DreamLife - Morning Tears (Orchestral Uplifting Classic)
+04. Eric Senn - Athena (Fan Favorite (683))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C4901F6887968310EBA27BB078278E80AD8DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860265   (1061662) от 20.03.2026
+
+VA - Armin van Buuren - A State Of Trance 1269 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Armin van Buuren & Alle Farben ft. ROSY - Lost In Time
+02.	Mees Salomé & Robby East – Mindstate (Progressive Pick)
+03.	Beaumarchais - Desert Moves
+04.	Eugenio Tokarev - Sun & Moon(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC95498C4A2710233AE5636DE360C1E24F68C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858911   (1060746) от 13.03.2026
+
+VA - Ori Uplift - Uplifting Only Episode 683 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamira & Tsuki Shizumutoki – Jinse (Kaokao Remix)
+02. Doppenberg & MIDI Kittyy – Who You Are
+03. Adip Kiyoi – Your Symphony
+04. Shadows&Nightmares – Self-Transcendence (Fan Favorite (679))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3050150B54CCE90D2A8AFC9D88735A81625CBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858884   (1060745) от 13.03.2026
+
+VA - Armin van Buuren - A State Of Trance 1268 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Susana – Standing With The Light
+02. Morten – Rotation
+03. Beatsole – Into The Light
+04. Derek Vo & Lovlee – Away(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B32690AA178C03A85813B33AE5AA3333DF616DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857544   (1059656) от 06.03.2026
+
+VA - Ori Uplift - Uplifting Only Episode 682 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Project & Hidden Tigress – Blanket Of Stars (Etasonic Remix)
+02. Stoneface & Terminal & Neev Kennedy – Lost (Ciaran McAuley Remix)
+03. Illitheas – Golden Skies (Fan Favorite (679))
+04. Db Mokk – Close To You(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EC4C005602FC44C97151996B9F26EBA027561B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857538   (1059655) от 06.03.2026
 
 VA - Armin van Buuren - A State Of Trance 1267 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -513,238 +745,6 @@ Vintage Culture - Live @ DNA Art Car, Campinas, São Paulo, Brazil (2025-12-06) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4549AE6CC35124C080A7D9A00EB0545BA4AFFDC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848198   (1052814) от 16.01.2026
-
-VA - Armin van Buuren - A State Of Trance 1260 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Above & Beyond and Malou - Letting Go (Drove Mix)
-02.	Max Styler x Three Drives - Greece 2000 (Max Styler Rework)
-03.	EVERI - Last Story
-04.	ReOrder pres. Crowd+Ctrl - Move To The Rhythm(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBAFE92A52BB6ACB35D414D6B7B0DD076C62820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848438   (1052667) от 17.01.2026
-
-VA - Ori Uplift - Uplifting Only Episode 675 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows&Nightmares – Self-Transcendence (Extended Cinematic Intro Mix)
-02. Emanuele Congeddu & Nicolas Marriott – First Kiss (Orchestral Uplifting Classic)
-03. Roman Messer & Cari – Serenity (Alex M.O.R.P.H. Remix) (Fan Favorite (672))
-04. D-Engine – Mirage Pulse(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03822AD14A56C651BDECB50E438F165DC3EF7700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846864   (1051840) от 09.01.2026
-
-VA - Ori Uplift - Uplifting Only Episode 674 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TasteXperience – Perception
-02. Suncatcher & Exolight ft. Emilya Buchan – To The Bitter End
-03. Global Influence – Depth Of My Dreams (Uplifting Classic)
-04. Woody van Eyden & Gil Zambrano & Cheryl Barnes – Embrace The Rainbow (Guitar Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD72E7786FAE6CEF4185B9FD276238C7D105207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846861   (1051839) от 09.01.2026
-
-VA - Armin van Buuren - A State Of Trance 1259 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALOTT – Far From Home
-02. Omnia & UUFO – Hello (Trending Track)
-03. Kyau & Albert & John Grand – Under My Skin (John Grand Remix)
-04. Kudus & Farius – Not Alone Now(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0489EA3A3D59B135CFF116444D7B8D5F29079F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846951   (1051813) от 24.01.2026
-
-Tiesto - Prismatic 001 (2026-01-02) [MP3|320 Kbps] <Dance, Electro Pop, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto & FORS - Bring Me To Life
-02. BLR & Amber Revival - Feeling Good
-03. Xashes & Human Rias - This Is The End
-04. Tiësto - Theme From Norefjell (Ørjan Nilsen Remix)(   Читать дальше...   )Жанр: Dance, Electro Pop, TranceПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD9FC73130037799B33118DE1657F57ABAD7AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846761   (1051648) от 09.01.2026
-
-GOODBOYS - Linked Radio (01-04) (2025) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GOODBOYS & KREAM - Paradise
-02. Duke Dumont & Jay Norton vs. Landmark - Ocean Drive vs. Only Solution (GOODBOYS Edit)
-03. Twisted Moon vs. Danny Tenaglia ft. Celeda - Keep This vs. Music Is The Answer (Dancin' And Prancin') (GOODBOYS Edit)
-04. Bart Skils & Weska - Something More (Joris Voorn Remix)(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286F95FD37921148C72D61065D699EF4266149AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846318   (1051313) от 24.01.2026
-
-VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agents Of Time & CERES - Baby
-02. Argy & Eli & Dani & Peki & ØSHER - Chasing Highs
-03. Cassian & YOTTO & Da Hool - Love Parade  w/Junior Jack - E Samba (Acappella)
-04. Agents Of Time ft. Ross Quinn - Friend Of Mine(   Читать дальше...   )Жанр: Techno, House, TranceПродолжительность: 36:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB848891D5BCC2889E46C1646635480C1FB085D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846171   (1051230) от 06.01.2026
-
-Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techno, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell – Sanctuary (Intro Edit)
-02. Hardwell & Olly James – Lights Out
-03. Hardwell & Olly James vs. Hardwell vs. Tyla – Flatline vs. Spaceman vs. Water (Hardwell Mashup)
-04. Zedd & Foxes vs. Domeno & Michael Sparks – Clarity vs. Locked & Loaded (Hardwell Mashup)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB447124C4115CDE9DD401A73BCF3C2AC24AE69
 ```
 
 https://mybot314.ru/tekegram_catalog/

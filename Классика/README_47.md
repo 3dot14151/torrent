@@ -1,3 +1,264 @@
+###  Публикация: 1594164   (177921) от 01.12.2022
+
+Yevgeny Kissin, Berg, Chopin, Gershwin, Khrennikov - The Salzburg Recital (2022) 2×CD [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177921.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ Alban Berg
+01. Piano Sonata, Op.1
+(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594318   (176580) от 03.12.2022
+
+VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Vyacheslav Gryaznov, Katya Kramer-Lapin - Peer Gynt Suite No. 1, Op. 46 I. Morning Mood (Arr. for 2 Pianos) (3:39)
+04. Maria Nemtsova - The Nutcracker Suite, Op. 71a I. March (Arr. for Piano) (2:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F746852BF458B6AEDDBF6799DBA95160B52F464A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666300   (175804) от 09.10.2023
+
+Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL|tracks] <neoclassical/crossover/art-rock/ethno/progressive>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Конквистадор [00:02:51]
+02. Беатриче [00:02:54]
+03. В моих садах цветы [00:03:18]
+04. Она [00:04:33](   Читать дальше...   )Жанр: neoclassical, crossover, art-rock, ethno, progressiveПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EC3FF8201809C9F5768C52F6297A600822742E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595899   (174467) от 07.12.2022
+
+Igor Ruhadze, Alexandra Nepomnyashchaya - Geminiani: Violin Sonatas, op.1 (2022) 2xCD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174467.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+1 - Violin Sonata No. 1 in A Major, H.13: I. Adagio - Presto - Adagio - Presto - Adagio - Presto – Adagio
+2 - Violin Sonata No. 1 in A Major, H.13: II. Allegro
+3 - Violin Sonata No. 1 in A Major, H.13: III. Grave(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB09C8E56718A081BD155E7C5CFC3C48453E8CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671851   (171008) от 26.10.2023
+
+Sofiane Pamart - Noche (2023) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noche
+02. Corazon
+03. Vera
+04. Miedo(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DD651DE0FEAF4F20CC2D1478EFE380DF0DEF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595301   (169826) от 10.12.2022
+
+Ensemble Labyrinthus - Carmina de morte (2014) [MP3|320 Kbps] <classical, chamber>
+
+>>Классика
+>>Камерная
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rondellus_ Breves dies hominis [00:03:14]
+02 - Conductus_ Ecce torpet probitas [00:05:08]
+03 - Conductus_ O labilis sortis [00:08:00]
+04 - Conductus_ Scribere proposui [00:04:28](   Читать дальше...   )Жанр: classical, chamberПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9156E7210FE2FB50BEA14DFB5B3029ED0B7AFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672365   (169011) от 28.10.2023
+
+Maria Callas - DIVINA : Maria Callas (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CARMEN : Habanera (L'amour est un oiseau rebelle) (4:01)
+02. LA BOHEME : Mi chiamano Mimi' (4:57)
+03. LA BOHEME : O soave fanciulla (4:52)
+04. LA BOHEME : Donde lieta usci' al tuo grido d'amore (3:30)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD37D8F8C20B87C055EB859D2F1EBD875E57DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825357   (167357) от 19.10.2025
+
+PALLADIUM Electric Band - Love Planet (2014) [MP3|320 Kbps] <Instrumental, Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fortune (5:20)
+02. We Rule The World (3:50)
+03. Sunshine (3:38)
+04. Love Planet (3:26)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, PopПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25306E14349EC972049D0203DBB187BCCC9C3ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286731   (166061) от 15.12.2019
+
+Дмитрий Шостакович (D. Shostakovich) - Симфонии №1-15 (The 15 Symphonies)(Геннадий Рождественский)(G. Rozbdestvensky) (2005) [FLAC|Lossless]<Classical> (image + .cue)
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Symphony No.1 In F Minor, Op.10   Allegretto.Allegro Ma Non Troppo
+02 Symphony No.1 In F Minor, Op.10   Allegro
+03 Symphony No.1 In F Minor, Op.10   Lento
+04 Symphony No.1 In F Minor, Op.10   Allegro Molto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 11:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABE7C98D7138A5F12CD38AB38CB66563AB13F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597575   (165838) от 15.12.2022
 
 Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop, Classical Crossover, Christmas>
@@ -478,266 +739,6 @@ VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25046305E7F726B678CA9DE708D73BF5F6A065CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589725   (147865) от 15.12.2012
-
-Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, Мстислав Ростропович - Rachmaninov & Glinka Songs (1976/2006) [FLAC|Lossless]<Опера, вокал>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Памяти Галины Павловны Вишневской и Мстислава Леопольдовича Ростропович1. Rachmaninov - 'Noc pecal'na' (The Night is mournful), op.26 no.12 (1906)
- 2. Rachmaninov - 'Ne poi, krasavica' (Oh, never sing to me again), op.4 np.4 (1890?)
- 3. Rachmaninov - 'Muzyka' (Music), op.34 no.8 (1912)
- 4. Rachmaninov - 'Vesennaja voda' (Spring Waters), op.14 no.11 (1896)(   Читать дальше...   )Жанр: Опера, вокалПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D682CB6716ADEF6604A405AEF3B8F254683E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519178   (146960) от 25.12.2021
-
-VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Loveday Academy Of St Martin In The Fields Sir Neville Marriner - Concerto for Violin and Strings in F minor, Op.8, No.4, R.297 L'inverno 1. Allegro non molto (3:21)
-02. Alan Loveday Academy Of St Martin In The Fields Sir Neville Marriner - Concerto for Violin and Strings in F minor, Op.8, No.4, R.297 L'inverno 2. Largo (2:19)
-03. Alan Loveday Academy Of (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7458F4F8C871F04C4F9F40296ECEF02243B67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271184   (146896) от 25.12.2018
-
-Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adeste Fideles
-02. Ave Maria
-03. Away In A Manger
-04. The First Noel(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC91F61D47127A3060545C0625D1D210DF820BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739745   (143847) от 29.12.2013
-
-Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergolese (2013) [FLAC 2.0|24/88.2|WEB-DL]<Avant-Garde Jazz, Classical Crossover>
-
->>Классика
->>Классика (HD Audio)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ogne pena cchiù spietata (5:58)
-02. Amen / Fac Ut Portem (11:20)
-03. Sinfonia for violoncello (10:03)
-04. Chi disse ca la femmena (4:43)(   Читать дальше...   )Жанр: Avant-Garde Jazz, Classical CrossoverПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4928259673135ED39DCBCBEDAF0A4D04118A775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435521   (143787) от 28.12.2020
-
-Bond - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Contemporary Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143787.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Can't Wait - Vocal Mix (3:51)
-2. Panthera (3:42)
-3. Zadok the Priestess (2:38)
-4. Come Home (3:15)(   Читать дальше...   )Жанр: Classical Crossover, Contemporary ClassicalПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82AE081B6C13CCBCD9DBA0CCDA649DE13CBDB321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969912   (143438) от 29.12.2015
-
-Schubert: Symphony no.8 'Unfinished' - Schumann: Symphony no.4 (Karl Bohm & Orchestra) (1999) [FLAC|Lossless|image+.cue] <Classical, Romantic Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143438.jpg" />
-</div>
-
-
-###  Подробнее
-
-(Schubert) Rosamunde *
-01. Andante (11:55)
-Symphony no.8 in B minor, D.759 "Unfinished" **
-02. Allegro moderato (12:58)(   Читать дальше...   )Жанр: Classical, Romantic Period, SymphonyПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D9819C3FA547B94B67A2956FB6B8B440F3A9E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520159   (143259) от 27.12.2021
-
-Andre Rieu - Happy Together (2021) [MP3|320 Kbps] <Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143259.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Semper Fidelis
-2. You Are My Sunshine
-3. Waves Of The Danube, ARV
-4. Happy Together(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C652F79415293745E6B2AAEC004BC89471D291A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969903   (143117) от 29.12.2015
-
-J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossless|image+.cue] <Classical, Chamber Music, Recitals, Baroque Period, Toccata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toccata for keyboard in F sharp minor, BWV 910 (BC L146) (11:25)
-02. Toccata for keyboard in C minor, BWV 911 (BC L142) (13:13)
-03. Toccata for keyboard in D major, BWV 912 (BC L143) (11:50)
-04. Toccata for keyboard in D minor, BWV 913 (BC L144) (14:26)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Baroque Period, ToccataПродолжительность: 01:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969954   (143100) от 29.12.2015
-
-The Baroque Christmas Album - Various Artists (2005) [APE|Lossless] <Classical, Baroque Period, Renaissance Period, Concerto, Chanukkah, Cantata, Sacred Music, Mass, Motet, Hymn, Oratorio, Carol ...
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Johann Sebastian Bach (1685 - 1750)
-"Nun komm, der Heiden Heiland", BWV 62
-01. Chorus "Nun komm, der Heiden Heiland" (04:31)
-Marc-Antoine Charpentier (1634 - 1704)(   Читать дальше...   )Жанр: Classical, Baroque Period, Renaissance Period, Concerto, Chanukkah, Cantata, Sacred Music, Mass, Motet, Hymn, Oratorio, Carol, Chorale, Concerto Grosso, Pastorale, Kyrie, NoelПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E5B55FDFE6BEA9C8B0AEF3258C0770C11B370B
 ```
 
 https://mybot314.ru/tekegram_catalog/

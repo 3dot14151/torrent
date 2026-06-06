@@ -1,3 +1,90 @@
+###  Публикация: 1021320   (732311) от 29.05.2016
+
+Баста - Баста 5. Часть 2 (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Финальный матч (feat. Смоки Мо)
+02. Виски и кокаин (feat. Нервы & Смоки Мо)
+03. Выпускной (Медлячок)
+04. XTZ(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E26B44E4C391F29365F413952B9C28F3F465037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283856   (731822) от 18.02.2019
+
+UB40 - UB40 (1988) Reissue [FLAC|Lossless|image + .cue] <Electronic, Synth-pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance With The Devil
+02. Come Out To Play
+03. Breakfast In Bed
+04. You're Always Pulling Me Down(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475252E1163360CA1BF8A05AB8753D24828D57FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285152   (724776) от 24.02.2019
+
+Nyctophiliac - Dark Side of the Mental (2016) [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Trip Hop, Dark Jazz>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter The Temple (3:03)
+02. Dark Side Of The Mental (3:35)
+03. Metamanoir (3:42)
+04. Blunted Session (3:45)(   Читать дальше...   )Жанр: Abstract Hop, Trip Hop, Dark Jazz, Experimental Electronic, Lo-FiПродолжительность: 01:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E03F5CE5036B82B31A2DAA74AE6CD636F72D5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023426   (723747) от 05.06.2016
 
 Мот - 92 дня (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
@@ -656,93 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63E51B3AE78ED5B2137B36129919DB5DDE9E1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220555   (703883) от 19.04.2018
-
-Sting & Shaggy - 44/876 (2018) [MP3|320 Kbps] <Reggae, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 44/876 (Feat. Morgan Heritage & Aidonia)
-02. Morning Is Coming
-03. Waiting For The Break Of Day
-04. Gotta Get Back My Baby(   Читать дальше...   )Жанр: Reggae, PopПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFCCFAE87FEFC59F3F740A7CC581B81BC3D74AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220663   (702334) от 20.04.2018
-
-Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Земля мертвых
-02. Желтая стрела (feat. Зараза)
-03. Гири
-04. Огонек (feat. Murda Killa)(   Читать дальше...   )Жанр: RapПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA0E6CE1C88E7315A1742ED67E3C29AD77CF362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402251   (701705) от 14.08.2020
-
-POR.NORAP - Бронетрусы (2019) [MP3|320 Kbps] <Comedy Rap, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Муж на час 4:02
-02. Гуляй нога 3:58
-03. Раненный дракон 4:07
-04. MOROZOFF DEAD 4:29(   Читать дальше...   )Жанр: Comedy Rap, ElectronicПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EA98DE3571FFFC728E5D25C4F8C45878307B19
 ```
 
 https://mybot314.ru/tekegram_catalog/

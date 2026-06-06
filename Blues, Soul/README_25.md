@@ -1,3 +1,61 @@
+###  Публикация: 938199   (484062) от 17.09.2015
+
+Fisherman Bob - Church of the Blues (2015) [MP3|320 кб/с]<Blues, Rockabilly>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Church of the Blues (03:43)
+02. The Blue Man (06:11)
+03. Blow This Town (04:10)
+04. My Backyard (03:16)(   Читать дальше...   )Жанр: Blues, RockabillyПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BAB7E1226BC0B1F37A3769427559C19DAD5734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055884   (483781) от 24.09.2016
+
+Amphibious Zoo Music - Bayou Blues: Southern Fried Guitar Jams (2013) [MP3|320 Kbps] <Slide Guitar Blues, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gator Baiter   (02:21)
+02. Ghetto Street Blues   (04:05)
+03. I'm Ok You Owe Me Money   (02:49)
+04. Whoowee   (02:08)(   Читать дальше...   )Жанр: Slide Guitar Blues, InstrumentalПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAB4FE99E2E15A09539A8093559A677B748DFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405647   (483383) от 30.08.2020
 
 Bobby Rush - Rawer Than Raw (2020) [MP3|320 Kbps] <Blues>
@@ -688,64 +746,6 @@ Arlen Roth - Slide Guitar Summit (2015) [MP3|320 кб/с]<Blues Rock, Slide Guit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D1A2DD2BEA59545AFDEFB35E3DB2711AE5BBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941334   (462724) от 27.09.2015
-
-VA - Blues Guitar Duels (1997) [MP3|256 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Guy & Phil Guy - Girl You're Nice And Clean
-02. Hubert Sumlin & Ronnie Earl - West Side Soul
-03. Smokin' Joe Kubek & Bnois King - Corn Palace
-04. Mike Morgan & Jim Suhler - You're Fine(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7CA314B248A2E07B8A1B4F06BF47BF8FD32C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941041   (462709) от 27.09.2015
-
-Thorbjorn Risager & The Black Tornado - Songs From The Road (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Wanna Leave (04:49)
-02. Paradise (04:59)
-03. Drowning (04:16)
-04. Baby Please Don't Go (03:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76104E923219D49EF7557C1DBE16BC6EF005194
 ```
 
 https://mybot314.ru/tekegram_catalog/

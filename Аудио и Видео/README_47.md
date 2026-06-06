@@ -1,3 +1,61 @@
+###  Публикация: 1497797   (828511) от 14.10.2021
+
+VA - 0815 Lo-Fi Chill Hop, Vol. 3 (2021) [AAC|~301 Kbps] <Jazzy, Chillhop, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CiYou - Slow Fi (3:04)
+02. Jazzy System - Networks (4:05)
+03. Nightbar Jazz - Breath of the City (Radio Mix) (3:13)
+04. Richard Bonnee - Beautiful and Magical (3:11)(   Читать дальше...   )Жанр: Jazzy, Chillhop, LoungeПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A97DA2820339DC55F5BC6D7A2DBFE5720452A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502104   (828510) от 14.10.2021
+
+VA - Playa del Lounge (2010) [AAC|~332 Kbps] <Lounge, Downtempo, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pedro Del Mar - Playa Del Lounge (Intro Mix) (1:15)
+02. Pedro Del Mar & Blue Tente - You Left (Alexei Zakharov Ambient Mix) (6:47)
+03. The Movement - Rainmaker (Chillout Mix) (4:19)
+04. System F, Armin van Buuren - Exhale (Tim Besamusica's Lounge Mix) (4:21)(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 02:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733CAD3A8D1361F67155E1257C66C81EF878A94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502106   (828509) от 14.10.2021
 
 VA - Playa del Lounge 2 (2011) [AAC|~346 Kbps] <Lounge, Downtempo, Ambient>
@@ -687,64 +745,6 @@ VA - Summer Ease: Chillout Your Mind (2021) [AAC|~317 Kbps] <Lounge, Chill Out, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A90FAE36E8216813F2BB833ADC6652702B6E5595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502140   (828242) от 14.10.2021
-
-VA - Chill & Sun, Summer of Your Life, by Smooth Deluxe, Vol. 2 (2021) [AAC|~319 Kbps] <Chill Out, Downtempo, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Esteban - First Snow (4:56)
-02. Lazy Hammock - In Flight (Sax Mix) (10:45)
-03. Placid Larry, Franky Flowerz - Weary Drifter (3:30)
-04. Lounge Deluxe - See Yourself (6:17)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Smooth JazzПродолжительность: 01:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE72563CAA814EA05ED65DB484623316701F1404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498634   (828241) от 14.10.2021
-
-VA - Nu Swing Club (2013) [AAC|~321 Kbps] <Nu Jazz, Broken Beat, Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugarpie And The Candymen - Tell Me Boy (2:45)
-02. Emsy Prank - Backside (Original Mix) (3:12)
-03. Fred Buccini, Ely Bruna - Love (2:24)
-04. Italian Secret Service - Not the Same (4:30)(   Читать дальше...   )Жанр: Nu Jazz, Broken Beat, SwingПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90BD6A687328A2FFA2E1A779F92D2BC182FF7E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

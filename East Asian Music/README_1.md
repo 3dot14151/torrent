@@ -1,3 +1,32 @@
+###  Публикация: 981348   (952511) от 31.01.2016
+
+Kanae Nozawa - Planet (2014) [MP3|320 кб/с] <Instrumental Folk, New Age, Relax>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шикарный оркестровый инструментал с соло на китайском народном музыкальном струнном инструменте - Niko!1. Planet
+2. shizuku
+3. 水月
+4. 星の祭(   Читать дальше...   )Жанр: Instrumental Folk, New Age, RelaxПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C14923D31901B2787CFB4E87F742E20D66A5E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362565   (947840) от 24.02.2020
 
 BTS - Map of the Soul: 7 (2020) [FLAC|Lossless|tracks + .cue] <K-pop, Pop Rap>
@@ -700,35 +729,6 @@ Halozy - 37 альбомов (2009-2016) Touhou Vocal, Instrumental /Doujin/ [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3215A083545457EC3E7D1847B6EB822ED647CC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798238   (861906) от 25.02.2017
-
-ArsMagnA: Ariabl'eyeS | -LostFairy- | Seraph - 22 альбома (2011-2016) [FLAC|Lossless|tracks] <Symphonic Rock, Gothic>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2016.04.24 (ARS-027) Ariabl'eyeS — 残響のコフィン (M3-37)
-2016.10.30 (ARS-028) -LostFairy- — 光と闇のフラグメント (M3-38)
-2016.10.30 (ARS-029) Ariabl'eyeS — 終劇のロマネスク (M3-38)Тип издания: DoujinЖанр: Symphonic RockПродолжительность: 00:09:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D0F926573577727DE0BE6B58D939C10C402680
 ```
 
 https://mybot314.ru/tekegram_catalog/

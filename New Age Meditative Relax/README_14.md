@@ -1,3 +1,32 @@
+###  Публикация: 918951   (584880) от 17.07.2015
+
+Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maple Love
+02. Mythos
+03. The Unforgettable Love Affair
+04. Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919429   (584030) от 18.07.2015
 
 Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumental, Meditation>
@@ -744,35 +773,6 @@ Deuter - Sattva Temple Trance (2018) [MP3|320 Kbps] <New Age, Meditative, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5470585B8BF05D70FE5E9F177427697AE44DF817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045623   (556912) от 25.08.2016
-
-Aythar - The God Particle (2016) [MP3|320 Kbps] <Ambient, Space>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sirens Of Titan (10:46)
-02. The God Particle (8:20)
-03. Return to the Moon (7:57)
-04. REM Phase (5:37)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12EBD6B49E82CE980015DFFB160AEDB361C9BE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

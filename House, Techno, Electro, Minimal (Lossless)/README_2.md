@@ -1,3 +1,206 @@
+###  Публикация: 1607684   (1043936) от 27.01.2023
+
+VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nick Newman -  A Happening  (6:39)
+02.  Oliver Harper -  Strawberry Thief  (8:12)
+03.  Dastan  -  Observer  (6:51)
+04.  Bodaishin, Thales Senses -  Chants Of Whales  (7:44)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic HouseПродолжительность: 01:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA39D72570894420467DD8F681B294C9EDA04A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608046   (1043813) от 28.01.2023
+
+Satin Jackets - Reunion (2022) [FLAC|Lossless|tracks + .cue] <House, Deep House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For What We Have (4:01)
+02. Move On (ft.Panama) (4:27)
+03. First Thing (ft. Tailor) (4:00)
+04. Coffee and Feels (4:08)(   Читать дальше...   )Жанр: House, Deep House, Nu-DiscoПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9A829989C692E6010B56C89B3FCA3EE64DCDFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608476   (1043634) от 30.01.2023
+
+VA - Dialtone Records - 15 Years Anniversary (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Chillwave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aradya -  Mayahuel  (6:40)
+02.  Naturae -  Comfort Room  (8:12)
+03.  Juani Bria -  Daydreaming  (7:54)
+04.  Deejaguar -  Jamaican Paradise  (8:37)(   Читать дальше...   )Жанр: Deep House, Organic House, ChillwaveПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633B032B0D4D04498289E4538D54BB821D1E0365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608704   (1043555) от 31.01.2023
+
+VA - FG Top10: January 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Freegrant, Slow Fish -  The Climb (Extended Mix)  (6:58)
+02.  Kamilo Sanclemente, Zalvador -  Hypnotized (Extended Mix)  (8:29)
+03.  JUNIOR (SL) -  Normative Truth  (7:21)
+04.  Axel Giova -  Scorpio (Zoo Brazil Remix)  (6:25)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5103C1592E7D314205CDDBB5AB167E37A5B0B864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609205   (1043366) от 02.02.2023
+
+Stanisha - Slow (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Organic House, Downbeat, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bakuta (Original) (9:19)
+ 02. Coco (Original) (6:33)
+ 03. Crnilo (Original) (7:42)
+ 04. Dolak (Original) (6:59)(   Читать дальше...   )Жанр: Deep Techno, Organic House, Downbeat, MinimalПродолжительность: 02:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FCA4C79AC73B84CA5ECC576A3D35D5DC7AB223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609500   (1043242) от 03.02.2023
+
+Marsh - Endless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pneuma (4:18)
+ 02. Blue (feat Leo Wood) (4:11)
+ 03. Reminiscent (4:28)
+ 04. Touch The Sky (feat Simon Doty) (4:31)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433342E8B149B599F037140EB2B27DF65DFC314C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436674   (1042995) от 01.01.2021
+
+Jean-Michel Jarre - Welcome To The Other Side (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opening (VR Live)
+02. Oxygene 2 (JMJ Rework of Kosinski Remix)
+03. The Architect (VR Live)
+04. Oxygene 19 (VR Live)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EDC5C4BBF812C1F283A8E94C0E4143154510C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436919   (1042818) от 02.01.2021
 
 VA - Nine Years Of Techno: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -536,206 +739,6 @@ VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4914DA1969F1FD807F180C7251C0B1F78A11166C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441681   (1037513) от 22.01.2021
-
-VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anas M - Dubz (Im'pulse Remix) (07:28)
-02. Artyom Kozlov - Clouds (06:24)
-03. CGeorge - Unjustified Sadness (09:53)
-04. COR100 - Contact (Bolgarin Deep Mix) (24Bit) (08:54)(   Читать дальше...   )Жанр: Deep House, Deep Techno, Minimal, AmbientПродолжительность: 04:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E0F2FEEDA7ACE9405C8831C62331849C169D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441945   (1037179) от 23.01.2021
-
-VA - Genix Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jody Wisternoff – The Bridge (Chicane Extended Rework) (05:47)
-02. Supermodels From Paris – Keep On (Komytea Extended Mix) (06:46)
-03. Genix – Mr. H2O (Extended Mix) (05:46)
-04. Stephen J. Kroos – Formalistick (Extended Mix) (06:42)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCEEE29C73355C211DE6BD4B99E6DB5F44378F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442132   (1036947) от 24.01.2021
-
-VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442381   (1036618) от 25.01.2021
-
-ZHU, Tame Impala - My Life (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Life (Kyle Watson remix) (05:44)
-02. My Life (Blond:ish remix) (07:00)
-03. My Life (Brian Cid remix) (07:12)
-04. My Life (Finnebassen remix) (05:13)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EA6A3DD078CC82938417F52CA477BEBFAE060A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442379   (1036609) от 25.01.2021
-
-Bob Moses, ZHU - Desire (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire (Vintage Culture & Kiko Franco Remix) (05:46)
-02. Desire (Vintage Culture & Kiko Franco Remix Edit) (03:46)
-03. Desire (Charlotte de Witte Remix) (07:52)
-04. Desire (Solomun Remix) (06:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F081E866EDD5FCBCD0DE4D6128F6B2FD6DBF4111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442820   (1036348) от 26.01.2021
-
-VA - Kirill Matveev pres. 25 MixCult Dancefloor Booms (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etzu Mahkayah - Don't Dribble (06:40)
-02. Artyom Kozlov - Clouds (06:24)
-03. Dima Kovadloff - HD (Deepkomplekt Remix) (06:04)
-04. COR100 - Micro Lab (08:42)(   Читать дальше...   )Жанр: Tech House, Deep House, Deep Tech, MinimalПродолжительность: 02:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDDE05D302A13284DA3BB6F8128EF0E3BEEFFFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198968   (1036094) от 03.03.2023
-
-Late Night Alumni - The B-Sides (2012) Compilation [FLAC|Lossless|tracks + .cue] <Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden (Acoustic) (2:49)
- 02. Hope (5:03)
- 03. A Whole New World (3:01)
- 04. You Can Be The One (Live) (3:10)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AEDF2C5E080732770ECEA5BA962D8EEA03C6BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

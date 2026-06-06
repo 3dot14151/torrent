@@ -1,3 +1,154 @@
+###  Публикация: 1751939   (103991) от 28.09.2024
+
+David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Compilation Album [MP3|320 Kbps] <Alternative Rock, Folk Rock, Country Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 16 Horsepower - American Wheeze
+02. 16 Horsepower - Black Bush
+03. 16 Horsepower - Black Soul Choir
+04. 16 Horsepower - Dead Run(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Country RockПродолжительность: 01:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763514   (102816) от 01.12.2024
+
+Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, Psychedelic rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chun Li's Spinning Bird Kick (I Bet You Look Good On The Dancefloor EP 2005)
+02. 505 (Favourite Worst Nightmare 2007)
+03. 2013 (AM 2013)
+04. American Sports (Tranquility Base Hotel & Casino 2018)(   Читать дальше...   )Жанр: Indie rock, Post punk, Psychedelic rock, AlternativeПродолжительность: 03:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0DE5C1AC386D4A2B36EAEB54BE54ABC81A0ECB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490520   (102529) от 01.05.2012
+
+Чиж & Co - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 — Автобус
+ 02 — В старинном городе О.
+ 03 — Вечная молодость
+ 04 — Мышка (Колыбельная хиппи)
+ 05 — Русская (Хочу чаю)
+ 06 — Глазами и душой
+ 07 — Houchie Coochie Man
+ 08 — Она не вышла замуж...
+ 09 — Такие дела
+ 10 — Глупенькая песня (Ассоль)(   Читать дальше...   )2012Жанр: RockПродолжительность: 04:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76AA934B949AF3BEBEF74486604767C97EF5576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768763   (100645) от 29.12.2024
+
+VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alter Bridge - Show Me A Sign
+002.Corroded - Dust
+003.Disturbed - Mine
+004. Lacuna Coil - I Like It(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 06:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C0C72A910EFFED13A04136156FDED669A43A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768772   (100624) от 29.12.2024
+
+VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100624.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 10 Years - Selling Skeletons
+002. Three days grace - The end is not the answer
+003. Bullet For My Valentine - Breaking point
+004. Celldweller - Birthright(   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, Progressive RockПродолжительность: 06:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB07E215FFE296D411F56AF62584D86FDAB4A809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768699   (100619) от 29.12.2024
 
 VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
@@ -612,151 +763,6 @@ VA - Rock Love Songs (2024) [MP3|320 Kbps] <Rock, Hard Rock, Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F7B2C69643D95734875EEA7B53A45176EE8F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736350   (49828) от 16.07.2024
-
-VA - Instrumental guitar (2024) [MP3|320 Kbps] <Rock, Instrumental, Flamenco>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jay Price - Shooting Star [02:08]
-002. Guitar Instrumentals - Back in Black (as made famous by AC/DC) [04:21]
-003. Flamenco Guitar Masters - Song For A Guy [05:19]
-004. Guitar Instrumentals - Sin City (as made famous by AC/DC) [04:46](   Читать дальше...   )Жанр: Rock, Instrumental, FlamencoПродолжительность: 08:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FD9A26BA597CA463A8661C4A6AB6429AE152CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737357   (49107) от 23.07.2024
-
-VA - Music of Vikings, Scandinavians, Pagans, Celts and the Middle Ages (2024) 2CD [MP3|320 Kbps] <Celtic, Folk, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heldom - Vaknan [03:31]
-02. Vikings Main Title - If I Had a Heart ("Vikings" Main Title) [03:49]
-03. Danheim, Heldom - Blodfest [03:32]
-04. Gealdyr - Voluspa [03:37](   Читать дальше...   )Жанр: Celtic, Folk, RockПродолжительность: 09:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1CC3C926BF102B43CB17541D8CB761127864A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742527   (46327) от 19.08.2024
-
-VA - Fantasy Medieval Celtic Music (2024) [MP3|320 Kbps] <Celtic, Folk, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46327.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Corvus Corax, Sami Yli-Sirnio - Sverker (Era Metallum - Single Edit) [03:46]
-002. Perly i Lotry - Song of the Vikings (My Mother Told Me) [02:08]
-003. Lorne Balfe, Assassin's Creed - Assassin's Creed III Main Theme [03:07]
-004. Enigma - Return To Innocence [04:16](   Читать дальше...   )Жанр: Celtic, Folk, RockПродолжительность: 08:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A937FA072782BE80835F70ADD36F05A79D9D8661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748997   (43797) от 12.09.2024
-
-VA - The Open Hearts. Compilation (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43797.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chanel Beads - Unifying Thought
-002. Coldplay - Speed Of Sound
-003. Harrison Storm - Better With You
-004. Zach John King - The Way I See You(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 09:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27E39C6FD771EE5845A2BCD8EAC40FDF3D787B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748672   (43623) от 14.09.2024
-
-Pink Floyd - Gilmour Age Compilation (2024) [MP3|320 Kbps] <Progresive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43623.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pink Floyd - Cluster One [05:56]
-002. Pink Floyd - What Do You Want from Me [04:22]
-003. Pink Floyd - Poles Apart [07:04]
-004. Pink Floyd - Marooned [05:29](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 17:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BA2A4E3F913A5DB8C57D40A9D66F0B0FEFF6C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

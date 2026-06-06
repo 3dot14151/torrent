@@ -1,3 +1,32 @@
+###  Публикация: 1007994   (819167) от 16.04.2016
+
+VA - Rap Ballads: Experimental Hip-Hop and Jazz Rap (2016) [MP3|320 кб/с] <Rap, Hip-Hop, House>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evan Laflamme - So Sax Without Sax
+02. Dr Freebs - Take Cover
+03. Edouard Andre Reny - Halo
+04. Eddie Caldwell - Price of Promises(   Читать дальше...   )Жанр: Rap, Hip-Hop, HouseПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6DD6E949725F2E4BEA1024165D569AEA2CE26C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382892   (815438) от 13.05.2020
 
 VA - Best Funk Of All Time (2020) [MP3|320 Kbps] <R&B, Soul & Funk>
@@ -717,35 +746,6 @@ VA - Rap Trap Nation Play (2018) [MP3|320 Kbps] <Rap, Trap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C35C3DAB5FA8E03DBABCE25A81B91416DE48CE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395410   (755475) от 10.07.2020
-
-VA - Lost In Paradise: Sunny Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Riddim, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755475.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mungo's Hi-Fi X Eva Lazarus - Gasoline
-002. Tanya Stephens - The Goodbye Song
-003. Kingston Express - Straight From The Pram
-004. Beenie Man - Preacher's Daughter(   Читать дальше...   )Жанр: Reggae, Ska, Riddim, SoulПродолжительность: 07:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81119D9CEC4CA9E0DEDD566FB1C44E0AAE6FDDA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

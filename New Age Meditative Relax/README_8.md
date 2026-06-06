@@ -1,3 +1,32 @@
+###  Публикация: 1216592   (749422) от 31.03.2018
+
+Singular Mind - Find Myself (2017) [MP3|320 Kbps] <Ambient, Chill Out, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never change 2:30
+02. Wander 5:20
+03. Skyfall 4:48
+04. Inside 4:15(   Читать дальше...   )Жанр: Ambient, Chill Out, DowntempoПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66078CB839089A74D7E10BB896E69734E34030F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216784   (747839) от 01.04.2018
 
 VA - Impressions from Da Vinchi (2006) 3CD [MP3|320 Kbps] <New Age, Enigmatic>
@@ -716,35 +745,6 @@ The Native American Chanters - Native American Chants & Dances - The Native Amer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F19B7D047E3F75E5CF7EC742116A97521996F116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285352   (716679) от 28.02.2019
-
-Moreza - Fragrance (2019) [MP3|320 Kbps] <New age, Nuevo Flamenco, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fragrance (5:28)
-02.King Of Guitarras (feat. Lorenzo De Medici) (4:44)
-03.Love Story (4:29)
-04.Miss Guitar (5:42)(   Читать дальше...   )Жанр: New age. Nuevo Flamenco, ChilloutПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797DCAF72F5D0FA2A4E5DBE4E6947405FC56E3D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

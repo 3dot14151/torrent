@@ -1,3 +1,61 @@
+###  Публикация: 663576   (742822) от 07.06.2013
+
+Webern - Complete Webern: Boulez (2000) [FLAC|Lossless]<Classical, Modern, Avant-garde, Symphony, Chamber>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестидисковое собрание произведений Веберна в исполнении Пьера Булеза и Берлинской филармонии.·2 Pieces for Cello and Piano (1899)
+01 (1) Langsam
+02 (2) Langsam·Slow Movement for String Orchestra (1905)
+01 - Langsam, mit bewegtem AusdruckЖанр: Classical, Modern, Avant-garde, Symphony, ChamberПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA6C36048A025DAD57E095AB9FF606FD9CE3AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282910   (742224) от 14.02.2019
+
+Yann Tiersen - All (2019) [MP3|320 Kbps] <Neo-classical, Contemporary>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742224.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tempelhof
+2. Koad
+3. Erc’h
+4. Usal Road(   Читать дальше...   )Жанр: Neo-classical, ContemporaryПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EAB42500168E3871FA4533ED53565329D7011A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 784140   (740716) от 07.05.2014
 
 VA - Pure... classical (2011) Box Set, 4 CD [FLAC|Lossless]<Classical>
@@ -688,64 +746,6 @@ VA - Beach Dating (2018) [MP3|320 Kbps] <Vocal, Indie, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB67324C24F70F89DA7C2E67E085E4E768D510CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220333   (705893) от 18.04.2018
-
-Johannes Bornlof - The 50 Greatest Epic Piano Pieces (2018) [MP3|320 Kbps] <Classical, Piano>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. River Flows In You
-02. Ambre
-03. Comptine d'un Autre Été
-04. Début(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 03:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E355482D0367ED961E4E9BEF83D403762FCD713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469887   (704258) от 07.05.2017
-
-Vanessa Mae - My New Classic (2012) [MP3|320 кб/с]<Pop, Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contradanza
-02. Aurora
-03. Picante
-04. Toccata And Fugue In D Minor(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03A717E11F27309EE7B1A8533C12C747446F51C
 ```
 
 https://mybot314.ru/tekegram_catalog/

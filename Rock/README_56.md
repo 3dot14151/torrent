@@ -1,3 +1,178 @@
+###  Публикация: 552973   (445682) от 27.09.2012
+
+Smokie - Greatest Hits (2006) [MP3|320 кб/с]<Soft-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445682.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+Продолжительность:00:51:20
+01. If You Think You Know How To Love Me (3:59)
+02. I'll Meet You At Midnight (3:22)
+03. Don't Play Your Rock'n'Roll To Me (3:22)
+04. All My Life (3:34)
+05. Listen To Your Radio (3:33)
+06. Scream You Guitar (3:42)
+07. Like An Eagle (4:05)
+08. Lyin' In The Arms Of The One You Love (3:48)(   Читать дальше...   )Жанр: Soft-RockПродолжительность: 02:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17BC184099A052A2CDADFFBCBCB2ED4873FAB27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243512   (445500) от 08.10.2010
+
+Florence And The Machine - Lungs (2009) [MP3|320 kbps]<Pop Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445500.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:12] 01.  - Dog Days Are Over
+[03:52] 02.  - Rabbit HeartЖанр: Pop Rock, FolkПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570205   (445221) от 16.08.2022
+
+ESEL - 2 Relises (2020-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ass [00:05:22]
+02. Galoppah [00:03:18]
+03. Donkey Business [00:06:55]
+04. Trabant [00:04:38](   Читать дальше...   )Жанр: Heavy Psych, Stoner, DoomПродолжительность: 2 CD, 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99910378E6278ACDEDDF0B6C4B8A7462A8F439E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409497   (445137) от 17.09.2020
+
+Doctors Rock - 6 альбомов (2011-2013) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Ga Ga (Cover Version)
+02. I Want to Break Free (Cover Version)
+03. Show Must Go on (Cover Version)
+04. These Are the Days of Our Life (Cover Version)(   Читать дальше...   )Жанр: RockПродолжительность: 05:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C42211BBE17BF8505527DD5A435FDC7AD52B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 296036   (444329) от 16.08.2022
+
+Smokie - Дискография (1975-2010)[MP3|320 kbps]<Rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smokie (первоначально англ. Smokey, созвучно со словом англ. smoky, дымный, копчёный, прокуренный) — известная английская группа, основанная в 1975 году в Брэдфорде, графство Йоркшир, получившая большую известность в Европе в 1970-х годах.Жанр: RockПродолжительность: 21:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E10C689C9C20097B1F6BDDFEE08CBE0396CA0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322723   (443987) от 31.08.2019
+
+Nirvana - Live and Loud (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Friendly Unit Shifter
+02. Drain You
+03. Breed
+04. Serve The Servants(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88524CFD505A4FBFEAF5AD8FFC7B5D5D38A291A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544405   (443811) от 28.09.2012
 
 SAGA - 2 альбома  [MP3|320 кб/с]<Rock, Progressive Rock, Symphonic Rock, AOR>
@@ -596,186 +771,6 @@ Bad Company - Rock 'N' Roll Fantasy: The Very Best Of Bad Company (2015) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84D5317091A9A6C45BE70ECDFDE32E33FAB45E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410733   (431918) от 23.09.2020
-
-Nick Mason's Saucerful Of Secrets - Live At The Roundhouse (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic/Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431918.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Interstellar Overdrive (Live at The Roundhouse) (05:50)
- 02. Astronomy Domine (Live at The Roundhouse) (04:12)
- 03. Lucifer Sam (Live at The Roundhouse) (03:13)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic/Space RockПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C6A795BEF53ED1C5802A23B5F0C46271575BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555646   (431870) от 03.10.2012
-
-Erick Hovey - Blues Farm (2009) [MP3|128 кб/с]<Blues, Rock, Swamp, Country, Roots>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431870.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ball And Chain (05:47)
-2. Know Who You Are (03:56)
-3. Soda Pop Girl (03:51)
-4. Patchouli (03:15)
-5. Runnin With A Full Moon (04:15)
-6. Fight That Monkey (05:35)
-7. Baby Come Home (03:56)
-8. Missing Part (02:48)
-9. I'm Through (03:06)
-10. Talkin Bout Love (03:35)(   Читать дальше...   )Жанр: Blues, Rock, Swamp, Country, Roots, SwingПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3BDB3B50C99A68C2F03F95616D46DC2EA9AE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165824   (430807) от 14.09.2017
-
-Atlantis - Atlantis (1972) Reissue, 2008, Universal [MP3|320 Kbps] <Krautrock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Get Up
-2. Big Brother
-3. Rock 'N' Roll Preacher
-4. Maybe It's Useless(   Читать дальше...   )Жанр: Krautrock, Prog RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050667476F95A60D31BE896FA9A5CB8CE90519D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165896   (430299) от 14.09.2017
-
-Ringo Starr - Give More Love (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're on the Road Again
-02. Laughable
-03. Show Me the Way
-04. Speed of Sound(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D800CDA69E3B3E82D0D0329F875A017BFE68165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165923   (430292) от 14.09.2017
-
-Chris Norman - Don't Knock the Rock (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Knock the Rock
-02. Crawling up the Wall
-03. Sun Is Rising
-04. You Are the Light(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C795C457DD1266273C17DE76AA3AC150EA70678B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250003   (429131) от 26.09.2018
-
-Creye - Creye (2018) Japanese Edition [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429131.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Holding On (4:34)
- 2. Nothing To Lose (4:12)
- 3. Different State Of Mind (3:07)
- 4. Never Too Late (3:42)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3A98D3C2A985258FEA7CC7E1FBC955810F6FE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

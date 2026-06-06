@@ -1,3 +1,108 @@
+###  Публикация: 481701   (99444) от 12.04.2012
+
+Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only If for a Night
+02. Drumming Song
+03. Cosmic Love
+04. Breaking Down
+05. Never Let Me Go
+06. Try a Little Tenderness
+07. No Light, No Light
+08. Jackson (feat. Josh Homme)
+09. What the Water Gave Me
+10. Dog Days Are Over(   Читать дальше...   )Жанр: Acoustic, Indie-PopПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C35ACF7C228D1EA497EB84E8F9C0B40B04F6690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475254   (98091) от 30.03.2012
+
+Duffy - Endlessly (2010) [MP3|320 кб/с]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Boy (3:27)
+02. Too Hurt To Dance (3:16)
+03. Keeping My Baby (2:50)
+04. Well, Well, Well (2:43)
+05. Don't Forsake Me (4:01)
+06. Endlessly (2:59)
+07. Breath Away (4:12)
+08. Lovestruck (2:52)
+09. Girl (2:27)
+10. Hard For The Heart (4:58)2010Жанр: Pop, SoulПродолжительность: 00:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355DEB371587CDA94FAC730D75A745FD67D1C692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472848   (97654) от 25.03.2012
+
+Alice de Selys - In A Heartbeat (2012) [MP3|320 кб/с]<Pop, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In A Heartbeat
+02. Hollywood Drive
+03. Your Heart
+04. Siren Call
+05. Fucked Up Love
+06. What You've Got
+07. Sexpionage
+08. The Big Talk
+09. Like A Bird
+10. Drowning DownЖанр: Pop, LoungeПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1230ADA773366ABF365B405DE610B55B45FFE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465899   (96359) от 11.03.2012
 
 Alex Band - We've All Been There [Deluxe Edition] (2010) [MP3|320 кб/с]<Alt. Rock | Pop Rock>
@@ -795,111 +900,6 @@ Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDFB63D70AB19C44049014708D23FC59F5FD1167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465083   (81043) от 09.03.2012
-
-Ice MC - Disco Collection (2001) [MP3|320 кб/с]<Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laika
-02. Scream
-03. Easy
-04. OK Corral
-05. Dolce Vita
-06. Gone With The Wind
-07. Cinema
-08. Think About The Way
-09. It's a Rainy Day
-10. Russian Roulette(   Читать дальше...   )2001Жанр: EurodanceПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66687A10653F15C2EEEB30C4398E8C1ED4F03B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464810   (81030) от 09.03.2012
-
-Alphaville - 18 Legendary Hits (2003) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81030.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wishful Thinking Physical 5:52
-2. Sounds Like A Melody 4:23
-3. Guardian Angel 4:11
-4. Big In Japan 3:52
-5. Forever Young 3:42
-6. Sensations 3:58
-7. Jerusalem 3:32
-8. Control 3:32
-9. Soul Messiah 4:52
-10. Jet Set 3:33(   Читать дальше...   )2003Жанр: Pop, DiscoПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3E4B25582975BFEAE1004EC74D695B4E997765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464852   (80961) от 09.03.2012
-
-Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames Of Love (4:03)
-02. Bolero (4:06)
-03. Slice Me Nice (5:27)
-04. Lady Of Ice (4:38)
-05. L.A.D.Y. O. (4:23)
-06. Chinese Eyes (4:29)
-07. Latin Fire (4:07)
-08. Bodyguard (6:27)
-09. Fools Cry (5:37)
-10. Way Of Love (4:26)(   Читать дальше...   )2007Жанр: Disco, PopПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686800487AE1B343E3EDA7D1B14F9EFABFC46FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

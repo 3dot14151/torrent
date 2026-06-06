@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1871275   (1069605) от 
+###  Публикация: 1874064   (1071681) от 31.05.2026
+
+VA - The Orient Collective: Sacred Stories (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Slick - Searching (5:08)
+02. Erhan Yılmaz - The Night Long Way Down (4:58)
+03. Divenitto - Goa (6:43)
+04. Erhan Yılmaz - Fifteen Seconds (6:10)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C422AA181F860EEE7220FE2AFDF1EF1154013C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872546   (1070335) от 23.05.2026
+
+VA - The Orient Collective: Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antea Minerva, Marco Mateus, Tibetania - Exodus (5:12)
+02. bahri bekil, Tibetania - East & West (4:31)
+03. Tamer ElDerini, Tibetania - Lafta (5:50)
+04. Kaisser Bouzriba, Tibetania - Yallah - Yallah (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C72F09B0F83EB9389C3861619003A6915E738E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871275   (1069605) от 16.05.2026
 
 VA - The Orient Collective: Voices of the Ancients (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
@@ -28,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869754   (1068509) от 
+###  Публикация: 1869754   (1068509) от 08.05.2026
 
 VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
@@ -688,64 +746,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38A60833FE6116FD23FCE31085A78404CEACC2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454438   (1026120) от 16.03.2021
-
-Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indie Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - When I Die
-02 - Gallipoli
-03 - Varieties of Exile
-04 - On Mainau Island(   Читать дальше...   )Жанр: Balkan Folk, World, Indie FolkПродолжительность: 04:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34580A29F2AE22A73343F8621266D5EE287BCAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168355   (1025688) от 18.03.2021
-
-Deep Forest - 15 альбомов (1992-2020) [FLAC|Lossless|image + .cue|tracks] <Ambient, World, New Age, Ethnic Electronica>
-
->>След.
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Forest (пер. с англ. — «дремучий лес») — музыкальная группа, состоящая из двух французских музыкантов, Эрика Муке (Eric Mouquet) и Мишеля Санчеса (Michel Sanchez). Они пишут музыку в новом стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Фактически музыканты (   Читать дальше...   )Список альбомов:
-1992 - Deep Forest
-1994 - Dao Dezi World Mix
-1995 - Boheme(   Читать дальше...   )Жанр: Ambient, World, New Age, Ethnic ElectronicaПродолжительность: 15:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33937C717717DC94C83C718A026C1F9A521B004B
 ```
 
 https://mybot314.ru/tekegram_catalog/

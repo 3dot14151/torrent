@@ -1,3 +1,95 @@
+###  Публикация: 1682956   (129911) от 09.12.2023
+
+Kylie Minogue - Extension (2023) The Extended Mixes [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+01 - Various Albums
+02 - Extension (The Extended Mixes)Жанр: PopПродолжительность: 2CD, 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D5A25312A6C5E1AE98A97CABC1713BA464492B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489945   (129762) от 01.05.2012
+
+James Morrison - The Awakening (2011) [MP3|320 кб/с]<Soul, Adult Contemporary, Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In my dreams
+02. 6 weeks
+03. I won't let you go
+04. James Morrison, Jessie J/Up
+05. Slave to the music
+06. Person I should have been
+07. Say something now
+08. Beautiful Life
+09. Forever
+10. The Awakening(   Читать дальше...   )2011Жанр: Soul, Adult Contemporary, Pop, FolkПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3543B3BE5AEF7C0BB4B4E48166E92B75759079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684324   (127640) от 16.12.2023
+
+VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris - My Way (3:39)
+02. Rema - Calm Down (3:39)
+03. Hamza - Nocif (3:49)
+04. SDM - Bolide allemand (2:56)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676DC2CBBAC03776D835E0437F5243BE21CFCE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685964   (126897) от 20.12.2023
 
 VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -658,93 +750,6 @@ Johnny Hates Jazz - Turn Back The Clock (1988) [OGG Vorbis|480 Kbps] <Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0722E48E1424B9A73CED807D508D756B55F3084D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694500   (121002) от 25.01.2024
-
-VA - 100 Hits Ultimate Number 1s (2016) 5 CD [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Jacksons - Show You the Way to Go
-02.  Bay City Rollers - Bye Bye Baby
-03.  Tony Orlando & Dawn - Knock Three Times
-04.  Middle of the Road - Chirpy Chirpy Cheep Cheep(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57BC8F35C77219B2482D1C93C7049F0D222B4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694612   (120835) от 26.01.2024
-
-VA - 100 Hits Supersonic 70's (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock, Latin, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eric Carmen - All By Myself
-02.  Harry Nilsson - Without You
-03.  Sad Cafe - Every Day Hurts
-04.  Smokie - If You Think You Know How to Love Me(   Читать дальше...   )Жанр: Pop, Rock, Latin, Funk / SoulПродолжительность: 05:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27B8253BAB7A80CF3D9DCF7CCC003F4FA318DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694727   (120795) от 26.01.2024
-
-VA - Bravo Hits 107 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tones And I - Dance Monkey
-02.  DJ Snake & J Balvin &Tyga - Loco Contigo
-03.  Lena X Nico Santos - Better
-04.  Ava Max - Torn(   Читать дальше...   )Жанр: Electronic, Hip Hop, Pop, RockПродолжительность: 02:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F66A25C1D08313ACB325226BDB4412227B47A39
 ```
 
 https://mybot314.ru/tekegram_catalog/

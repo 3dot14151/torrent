@@ -1,3 +1,61 @@
+###  Публикация: 1299447   (599605) от 01.05.2019
+
+Rabassa - Requiem (Harmonia del Parnàs) (2007) [FLAC|Lossless|image + .cue] <Classical sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599605.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lamentació 2a. de la Feria V
+
+Missa defunctorum, for double chorus, 2 flutes, 2 violins & continuo:
+2. Introitus(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131053C36028793974736D98F4C810C4149F46AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038813   (599294) от 30.07.2016
+
+Johannes Brahms - Symphonies Nos. 1,2,3,4. Tragic Overture, Op. 81, Academic Festival Overture, Op. 80 (2014) [FLAC|Lossless|image + .cue] <Classical, orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No.3 In F Major, Op.90
+1.I. Allegro Con Brio (13:38)
+2.II. Andante (8:58)
+3.III. Poco Allegretto (6:58)(   Читать дальше...   )Жанр: Classical, orchestralПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A58943C3BCA8DA3EC62D0DD1EC66AECFD963DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526126   (599136) от 23.07.2012
 
 Antonio Lucio Vivaldi - Mandolin concertos RV 532, 425, 558 Violin concertos RV 583, 522, 581: I Solisti Veneti conductor Claudio Scimone (1970-1976)/1996, Erato Disques/[FLAC|Lossless]<Baroque>
@@ -494,6 +552,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040338   (587299) от 04.08.2016
+
+Il Bell'Accordo Ensemble - Tessarini: Trio Sonatas Op. 12 / Two Flute Sonatas (2008) [FLAC|Lossless|tracks] <Classical, Chamber Music>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trio Sonata for flute, violin & continuo in G major, Op. 12/1
+01. Trio Sonata Op.12 No.1 in G - 1.Vivace    03:36
+02. Trio Sonata Op.12 No.1 in G - 2.Largo    03:18
+03. Trio Sonata Op.12 No.1 in G - 3.Allegro    02:07(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8103E50160E4ED0A863255445570F38A0E30DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040367   (587294) от 04.08.2016
+
+Christophe Coin, Il Giardino Armonico - Vivaldi:"Il Proteo" - Double And Triple Concertos (1995) [APE|Lossless|image + .cue] <Classical, Baroque>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto In D Major; RV 564 For 2 Violins, 2 Violoncellos,
+Strings And Basso Continuo 
+01. Strings and Basso Continuo RV564 - I...    04:31
+02. Strings and Basso Continuo RV564 - I...    02:32(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A082EB3D6D3EED1B4570DE580EFEF9345C81E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918421   (586836) от 15.07.2015
 
 Vivaldi - Concertos For Two Violins (Viktoria Mullova, Giuliano Carmignola & Venice Baroque Orchestra) (2008) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Baroque Period, Concerto>
@@ -552,6 +668,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918686   (585734) от 16.07.2015
+
+Bach - The Six Brandenburg Concertos (2CDs) (2010) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Baroque Period, Concerto, Concerto Grosso>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto IV, en Sol Majeur, BWV 1049
+01. Allegro (06:53)
+02. Andante (03:17)
+03. Presto (05:08)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Baroque Period, Concerto, Concerto GrossoПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA740E0B419A96C9E5B38C9AF2EBDD7AC024029B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040845   (585280) от 06.08.2016
+
+Le Concert Des Nations, Jordi Savall - Antonio Vivaldi: La Viola Da Gamba In Concerto (2003) [FLAC|Lossless|tracks] <Classical, Baroque>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto Con Violino Principale E Viola Da Gamba Obbligata,
+Archi E Continuo (La Maggiore RV 546) 
+01. Allegro   03:13
+02. Andante   02:11(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E993EA3B2763FADBB969FA09270209DB85A836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918999   (584663) от 17.07.2015
 
 Martin Jacoby - Performs Ludovico Einaudi (2014) [MP3|320 кб/с]<Classical, Piano, Instrumental>
@@ -574,177 +748,6 @@ Martin Jacoby - Performs Ludovico Einaudi (2014) [MP3|320 кб/с]<Classical, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E33E14FF7EB13A807762F973F34E5B0CA9249D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041000   (583261) от 08.08.2016
-
-Musica Pacifica - Fire Beneath My Fingers (2008) [FLAC|Lossless|tracks] <Classical, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Allegro    02:23
-02. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Largo    01:38
-03. Vivaldi Concerto in F Major 'La Tempesta di Mare' - Presto    02:18
-04. Tartini Concerto in A Major - Allegro    07:27(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AA4CA545D2CF4DB1D09EE4222C61569E2602D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358029   (582590) от 05.07.2011
-
-Рахманинов - Полное собрание оркестровых сочинений [5CD] (2007) [FLAC|Lossless]<Classical>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 05:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4301B09C1211776E84F5031A6F77BC7B28C932BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041589   (581289) от 10.08.2016
-
-Franz Joseph Haydn - Complete String Quartets (The Aeolian String Quartet) (1997) 22CD Box Set [MP3|320 Kbps] <Classical, Quartet>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581289.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-  1. String Quartet In E-Flat Major, Op. 0: I. Presto
-  2. String Quartet In E-Flat Major, Op. 0: II. Menuetto
-  3. String Quartet In E-Flat Major, Op. 0: III. Adagio(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE8E02C52053960488942CB960164434F37E342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920299   (580122) от 22.07.2015
-
-Grieg - Lyric Pieces (Balzs Szokolay) Vol.1 (1995) [FLAC|image +.cue]<Classical, Romantic Period, Orchestral, Symphonic, Suite, Character Piece, Waltz, March, Impromptu, Elegy>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Halling Op.38-4 (00:49)
-02. Melodie Op.38-3 (01:43)
-03. Halling Op.47-4 (01:16)
-04. Canon Op.38-8 (04:33)(   Читать дальше...   )Жанр: Classical, Romantic Period, Orchestral,Symphonic, Suite, Character Piece, Waltz, March, Impromptu, ElegyПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D483F20D3A3F601B5B70D46D5A3ACCD75C6E0B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042462   (578075) от 13.08.2016
-
-Trevor Pinnock, English Concert - Antonio Vivaldi: Six Flute Concertos, Op.10 (1988) [FLAC|Lossless|tracks] <Classical, Baroque>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Concerto No.1 in F major "La tempesta di mare", RV 433 - I. Allegro  02:54
-02.  Concerto No.1 in F major "La tempesta di mare", RV 433 - II. Largo  01:48
-03.  Concerto No.1 in F major "La tempesta di mare", RV 433 - III. Presto  02:06
-04.  Concerto No.2 in G minor "La notte", RV 439 - I. Largo  02:02(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7E334A156F1FC66B22693A0CBF309D15B4A17D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920808   (577342) от 24.07.2015
-
-Torelli - The Original Brandenburg Concertos (Kah-Ming Ng & Charivari Agrable) (2009) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Baroque Period, Sonata, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerti musicali (12), for strings & continuo, Op. 6
-
-01.Concerto No.1 in G major- Presto - Adagio (01:50)
-02. Concerto No.1 in G major- Allegro (01:12)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Baroque Period, Sonata, ConcertoПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7ACE765E2F5E9E39451301B266829098911F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 908373   (634194) от 14.06.2015
+
+Ash - Kablammo! (2015) Deluxe Edition [MP3|320 кб/с]<Indie Rock, Alternative, Powerpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Juvenilia
+2. Terraform
+3. This Time Tomorrow
+4. Anything Is PossibleЖанр: Indie Rock, Alternative, PowerpopПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9517F13F6DE2CA3FA82785C2BCE247DFD6A5421D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228751   (633914) от 02.06.2018
 
 TIGRESS - Human; Like It Is; Who Cares? (2015-2018) 3 EP [MP3|320 Kbps] <Alternative Rock, Pop Rock, Female Vocal>
@@ -729,35 +758,6 @@ The Armed - Untitled (2015) [MP3|320 кб/с]<Chaotic Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA6C513212BD3D6A290717442713586A6498E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911398   (616430) от 23.06.2015
-
-Ducktails - St. Catherine (2015) [MP3|320 кб/с]<Indie, Surf, Chillwave, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616430.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Disney Afternoon
-2. Headbanging In The Mirror
-3. Into The Sky
-4. Heaven's Room(   Читать дальше...   )Жанр: Indie, Surf, Chillwave, PsychedelicПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEDEEF908958D6258767D6B137293DB90BCB741
 ```
 
 https://mybot314.ru/tekegram_catalog/

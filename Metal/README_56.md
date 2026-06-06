@@ -1,3 +1,73 @@
+###  Публикация: 361306   (577276) от 10.07.2011
+
+X Opus - The Epiphany (2011) [MP3|320 kbps]<Symphonic Power Metal / Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terrified (05:43)
+ 02. On Top Of The World (03:56)
+ 03. Pharaohs Of Lies (06:22)
+ 04. I’ll Find The Truth (04:19)
+ 05. In The Heavens (05:38)
+ 06. The Epiphany (Opus Benedictus Interlude) (01:50)
+ 07. I Will Fly (07:09)
+ 08. Forsaken (Requiem Of The Forsaken) (10:39)
+ 09. Angels Of War (04:56)
+ 10. Never Forgotten (06:58)Жанр: Symphonic Power Metal / Progressive MetalПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94577F11F5BABA6F799366B2B4AF339C05AA2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358543   (576095) от 10.07.2011
+
+Megadeth - Дискография (12 альбомов) + Live Albums (4 альбома) (1985-2010) [MP3|320 kbps]<Thrash Metal>
+
+>>След.
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+1985 - Killing Is My Business... And Business Is Good!
+1986 - Peace Sells... But Who's Buying
+1988 - So Far, So Good... So What
+1990 - Rust In Peace
+1992 - Countdown To Extinction
+1994 - Youthanasia
+1997 - Cryptic Writings
+1999 - Risk
+2001 - The World Needs A Hero(   Читать дальше...)Жанр: Thrash/Heavy/Speed MetalПродолжительность: 13:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB2A6D2E6C2D3D9F24FEA6EBA2CE6A03B1435F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458638   (575672) от 31.05.2022
 
 Asmodai - 3 Relise (2021-2022) [MP3|320 Kbps] <Industrial Metal, Witch House>
@@ -694,64 +764,6 @@ Mantus — это немецкий дуэт, возглавляет которы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0F422E5E363D44762E0CD6BEAE5A9B09A30741B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923514   (562704) от 01.08.2015
-
-Kataklysm - Of Ghosts And Gods (2015) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaching The Asylum
-02. The Black Sheep
-03. Marching Through Graveyards
-04. Thy Serpent's Tongue(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F272D1F6E3BA4E0112446644C1C1C20B38980FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235455   (560445) от 11.07.2018
-
-A Sound Of Thunder - It Was Metal (2018) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560445.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Phantom Flight (5:28)
- 2. Lifebringer (5:38)
- 3. Atlacatl (5:13)
- 4. The Crossroads Deal (1:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A180B156324AFFAAE48453869FA7564BABD998
 ```
 
 https://mybot314.ru/tekegram_catalog/

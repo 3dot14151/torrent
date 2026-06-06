@@ -1,3 +1,145 @@
+###  Публикация: 159116   (292502) от 20.12.2009
+
+Boney Nem - 40 лучших композиций (до 2008) [MP3|192]<Панк рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Daddy Cool
+02 - В мире животных
+03 - We are the world, we are the children
+04 - It's My Life(   Читать дальше...   )Жанр: Панк рокПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079848   (291984) от 05.12.2016
+
+Крематорий - Live in Sexton (21.01.1993) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Крематорий
+02. Лепрозорий
+03. Последний шанс
+04. Клубника со льдом(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4D31F7A5787B7C7007E57535DAB3ECEDCCC1D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079472   (290158) от 06.12.2016
+
+Медвежья икра - Сборник (2010-2015) [MP3|128 Kbps] <Рок, фолк>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. И на камнях растут деревья (256 Kbps)
+02. Кен и Барби (256 Kbps)
+03. Весна (256 Kbps)
+04. Камни (256 Kbps)(   Читать дальше...   )Жанр: Рок, фолкПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AAB2D9FF224E4A38D40F67CE51A9BF37C6ED67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263402   (288010) от 19.11.2018
+
+VA - Back In Your Life (2018) [MP3|320 Kbps] <Alternative, Punk, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288010.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. They Might Be Giants - Theme From Flood
+002. A Vulture Wake - Collateral Damage
+003. Camiches - Espero Nadie Ocupe Mi Lugar
+004. Wax Chattels - It (Live At Part Time Punks)(   Читать дальше...   )Жанр: Alternative, Punk, Punk RockПродолжительность: 09:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F669CCBA7271B858670550BD2DD2E1FA1A09A22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080297   (287581) от 07.12.2016
+
+VA - Alterportal HITS - Vol. 1-97 (2008-2016) [MP3|32 -320 Kbps] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative, Metal, RockПродолжительность: 06:14:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DBBBAEEDCA9729D8AE592FBD65433655517200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963455   (287320) от 08.12.2015
 
 VA - The Air That I Breathe (2015) [MP3|320 кб/с]<Rock, Indie Rock, Alternative>
@@ -604,151 +746,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB1AE430D8DFBFC82AEF71558EAE2B517B2FC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190978   (265849) от 11.12.2017
-
-VA - Hard Rock Division Vol.02 (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Torous - Sideline
-002. Accept - Pandemic
-003. Art Nation - Ghost Town
-004. Civilization One - Land In Flames(   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87812E32A7B5163ACA42CE4AA1E39753171F116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190992   (265845) от 11.12.2017
-
-VA - Heavy Metal Collections Vol. 2 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265845.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01.The Rods - Hurricane (1998) (4:45)
-02.Black Sabbath - Turn Up The Night (1996) (3:40)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 05:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6044E3363C882FE9C5D22FD1335EAB6D8D57DF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191010   (265764) от 11.12.2017
-
-VA - Heavy Metal Collections Vol. 4 (6CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265764.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. King Diamond - At the Graves (1989) (8:58)
-02. Innerwish - Spacerunner (1998) (4:31)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 07:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46DEB293AF28435FF365F821FD3D9B6107FB231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191045   (265093) от 12.12.2017
-
-VA - Maximum Alternative (2017) [MP3|320 Kbps] <Rock Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265093.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rainbow - Love's No Friend
-002. Dreamcar - After I Confessed
-003. Anathema - 32.63N 117.14W
-004. Mallory Knox - Giving It Up(   Читать дальше...   )Жанр: Rock AlternativeПродолжительность: 10:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1CAEA5508A28F520A56D71FE2B90A5F8563A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191099   (265036) от 12.12.2017
-
-VA - Classic Rock Antems (2017) [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Accept - Balls To The Wall
-002. Bad Company - Bad Company
-003. Joy Division - New Dawn Fades
-004. Nickelback - How You Remind Me(   Читать дальше...   )Жанр: Classic RockПродолжительность: 11:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1775A4316E9F6D88718B6D698A6174C705BE069E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1233794   (576226) от 02.07.2018
+
+Kristine - Kristine (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Love (4:50)
+02. The Danger (3:40)
+03. Summer Long Gone (4:17)
+04. The Rhythm of Love (3:40)(   Читать дальше...   )Жанр: Synthwave, Retrowave, Synth-popПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A8D54F4CA0E5E9AF33D5625C6B2FD41B41B8B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303717   (567449) от 24.05.2019
+
+MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SKURM - Baa (Long Away) (MRUKS Remix)
+02. SKURM - VIT16 (MRUKS Remix)Жанр: Funky, RetrowaveПродолжительность: 00:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CA597B385026B2585231EF1E6B1995B8ADDE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304037   (567445) от 24.05.2019
 
 Com Truise - Persuasion System (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
@@ -687,64 +743,6 @@ Dance With The Dead - Loved To Death (2018) [FLAC|Lossless|WEB-DL|tracks] <Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EDF91AB9F1756FF4D803DAFB50CE7ACD21DD15D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314729   (517137) от 16.07.2019
-
-A Flock Of Seagulls - Inflight - The Extended Essentials (2019) Remix [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ran (So Far Away) (07:46)
-02. Modern Love Is Automatic (07:20)
-03. Space Age Love Song (05:46)
-04. Wishing (If I Had A Photograph Of You) (08:34)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD9DB2A3DA54186BFAF9B3D52F23B32E7B4C1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930313   (516194) от 22.08.2015
-
-Alphaville - So8os (Soeighties) Presents - Curated By Blank & Jones (2014) [FLAC|image + .cue] 2CD Remastered<Synth-pop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big In Japan (Extended Re-Mix) 07:26
- 02. Sounds Like A Melody (Special Long Version) 07:43
- 03. Forever Young (Special Dance Version) 06:10
- 04. Jet Set (Jellybean Mix) 06:32(   Читать дальше...   )Жанр: Synth-pop, ElectronicПродолжительность: 02:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCEF8D0D01E930571C60358EBF2FB6838B01C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

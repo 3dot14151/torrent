@@ -1,3 +1,32 @@
+###  Публикация: 1827088   (186110) от 21.10.2025
+
+Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образов
+26200.6584.250915-1905.25h2_ge_release_svc_refresh_CLIENT_CONSUMER_A64FRE_ru-ru.iso
+windows11_business_editions_version_24h2_updated_sep_2025_64_dvd_e1e7fc35.iso
+windows11_business_editions_version_23h2_updated_sep_2025_x64_dvd_59189188.iso.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F4907D913C49CFA879A8866243BB25AE2B47E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680456   (133987) от 29.11.2023
 
 1С Бухгалтерия предприятия 3.0.144.49 на платформе 8.3.23.1912 [Ru/En]

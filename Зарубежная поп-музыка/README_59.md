@@ -1,3 +1,32 @@
+###  Публикация: 1331160   (334997) от 13.10.2019
+
+Ian Mitchell Band - Lonely Nites (1979) LP [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely Nites (3:37)
+02. Suddenly You Love Me (3:17)
+03. Going Back (4:22)
+04. Having A Good Time (3:56)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B08FD98F59ACE359C76970D27B4E931406B8B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258661   (334600) от 31.10.2018
 
 VA - Hits From The Dancefloor (2018) [MP3|320 Kbps] <Funky, Vocal, Club, Nu Disco>
@@ -713,35 +742,6 @@ Sarah Brightman - Fly (1996) [OGG Vorbis|484 Kbps] <Rock, Pop, Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE711268CAEBDACA0DD2A1AC9A562379CE289CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582100   (324591) от 08.10.2022
-
-Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harem
-02. What A Wonderful World
-03. It's A Beautiful Day
-04. What You Never Know(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1E9F62EA8ABF110AF5944B182B0E1DC8E5014C
 ```
 
 https://mybot314.ru/tekegram_catalog/

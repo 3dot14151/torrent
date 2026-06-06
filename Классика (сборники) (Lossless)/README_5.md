@@ -1,3 +1,32 @@
+###  Публикация: 1805279   (12426) от 05.07.2025
+
+VA - Classical Music Golden Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - 3 Gymnopédies No. 1, Lent et douloureux (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Misha Fomin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:28)
+04. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1494993B7E5051742F64A65DF4164F7ED9533BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805829   (12017) от 09.07.2025
 
 VA - Classicworks: Best of Classical (2000) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Classical>

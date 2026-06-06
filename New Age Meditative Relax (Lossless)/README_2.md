@@ -1,3 +1,32 @@
+###  Публикация: 621565   (962698) от 20.02.2013
+
+Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be Light (York Remix)
+02. Far Above The Clouds (York Remix)
+03. Ommadawn (Mike Oldfield & York Remix)
+04. Guilty (Mike Oldfield & York Remix)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360558   (960739) от 15.02.2020
 
 David Arkenstone - Celtic Spa (2020) [FLAC|Lossless|WEB-DL|tracks] <New age, Folk, Celtic>
@@ -716,35 +745,6 @@ Peng Jing - A Good Day (2004) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C422EA87B244F556B8EDEE26FB4AB4A9BC948AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096132   (920863) от 23.01.2017
-
-Shastro - Satsang (2017) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lotus [00:09:48]
-02. A New Dawn [00:08:51]
-03. Dance of the Swans [00:14:10]
-04. Holding Hands [00:10:45](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2203AB3F0A22F60DAE51333B31F3A83A45EEA698
 ```
 
 https://mybot314.ru/tekegram_catalog/

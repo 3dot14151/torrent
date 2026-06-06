@@ -1,3 +1,32 @@
+###  Публикация: 1177898   (358518) от 27.10.2017
+
+Kelly Clarkson - Meaning Of Life (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Minute (Intro)
+02. Love So Soft
+03. Heat
+04. Meaning of Life(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A729784BAE3A93D314690143B731D5FEB06BA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256444   (356791) от 21.10.2018
 
 Alexandra Stan - The Best (2018) [MP3|320 Kbps] <Dance, Pop>
@@ -728,35 +757,6 @@ Kate Boy - One (2015) [MP3|320 кб/с]<Alternative, Synthpop, Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A68B09EEAB00E5667D16F07F79BB3C755FF7AE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954537   (342153) от 07.11.2015
-
-Bjork - Vulnicura Strings (2015) [MP3|320 кб/с]<Pop, Experimental, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mouth Mantra
-02. Lionsong
-03. Black Lake
-04. Atom Dance(   Читать дальше...   )Жанр: Pop, Experimental, AcousticПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61FF050EFCB33B7E373BBBE68DDEB34CC54D1F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

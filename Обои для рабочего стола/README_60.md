@@ -1,3 +1,29 @@
+###  Публикация: 561437   (406158) от 17.10.2012
+
+Wallpaper & Pictures: 3D Art Wallpapers: Collection#1 [Графика]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wallpaper & Pictures: 3D Art Wallpapers: Collection#1
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF28F3C5F38202C67CAC21EFE1A184480760A55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561551   (406104) от 17.10.2012
 
 [Wallpapers] WideScreen с нескольких сетей... update_28  (1680х1050-9000х6384)
@@ -687,32 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:789517E6597CB70C3B1060B7557A78E0A6F7E7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565439   (401193) от 25.10.2012
-
-Best HD Wallpapers Pack (24.10.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF962C0E8903685B70FEDCC2EA1C8089B40B924
 ```
 
 https://mybot314.ru/tekegram_catalog/

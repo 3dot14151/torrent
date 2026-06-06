@@ -1,3 +1,55 @@
+###  Публикация: 1822371   (100774) от 06.10.2025
+
+Промты - SevenUnited LLC - 437 Midjourney Creative Portrait Prompts: Vol 2 - 9146519 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор из 437 промтов Midjourney с примерами изображений для создания творческих портретов: часть 2.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1CAA92C280E932AF1DDFE475B09D1DFCA453CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822118   (94572) от 05.10.2025
+
+Промты - SevenUnited LLC - 335 Midjourney Prompts for Dark Fantasy Art - 6051441 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 335 настраиваемых промтов Midjourney для темного фэнтезийного искусства. Каждая подсказка включает 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D59B843BCD1089291DA1584C7DFEE37E3704E788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821894   (91212) от 04.10.2025
 
 Промты - SevenUnited LLC - 386 Midjourney Prompts for Horror: Vol 2 - 2986730 [TXT, JPG]
@@ -631,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9218475D60C3CA1BC332EE834002A9DFE1F3AAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798622   (17126) от 24.05.2025
-
-Картинки - jaceyadrian - Creative Fabrica - Deep Purple Mandala Inspired Wallpaper [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изображения в стиле тёмно-фиолетовой мандалы.Формат: JPGРазрешение файлов: 11783 x 11783
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3A8CC1DF99E3C8DCB2F667C1A5787AB2269FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804899   (12781) от 02.07.2025
-
-Картинки - LunaGirl - Vintage Advertisements, Posters & Trade Cards [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти 1000 изображений VINTAGE ADVERTISING ART and EPHEMERA: викторианские торговые карточки, старинные рекламные объявления, антикварная печатная реклама, плакаты в стиле модерн, патриотические плакаты времен Первой мировой войны и многое, многое другое — тщательно организовано, многие изображения с датами.Формат: JPGРазрешение файлов: Разное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA4A95D2E013ED06E0165D90420A0BB97AC7E07
 ```
 
 https://mybot314.ru/tekegram_catalog/

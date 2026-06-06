@@ -1,3 +1,64 @@
+###  Публикация: 1231814   (602770) от 22.06.2018
+
+VA - Disco De Ouro 18/19 (2018) [MP3|320 Kbps] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602770.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+
+01. Quim Barreiros - A Feira
+02. Emanuel - És A Minha Vida(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:36
+
+01. Irmãos Verdades - É Demais
+02. José Malhoa - Há Baile Na Aldeia(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A6E67681DC6D3A65E7B432C30571C626C18A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232421   (600048) от 24.06.2018
+
+VA - Ballerina: The Tribute to Shanghai (2017) [MP3|320 Kbps] <Synth-pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machinista - Bang Bang (3:31)
+02. Saft - Ballerina (4:16)
+03. Electric City Cowboys - Flight 69 (3:28)
+04. OctoLab - Fallen Angel (3:57)(   Читать дальше...   )Жанр: Synth-pop, Italo-DiscoПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF58BBF04083B953A438BDECAF06FAB332ED436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298911   (599758) от 01.05.2019
 
 VA - I Love Disco - Grand Prix 70's (2010) [MP3|320 Kbps] <Electronic, Italo Disco, Disco>
@@ -726,64 +787,6 @@ VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [MP3|320 кб/с]<Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E30C231B4B14FC1B78DA7CC55EE2C17232206783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550759   (591637) от 12.05.2022
-
-Walter Murphy - Phantom Of The Opera (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уолтер Энтони Мерфи-младший - американский композитор, аранжировщик, пианист, музыкант, автор песен и музыкальный продюсер. Он наиболее известен благодаря инструментальной диско-адаптации Пятой симфонии Бетховена, которая возглавила чарты в 1976 году и была включена в саундтрек Saturday Night Fever. Последовали дальнейшие слияния классики и диско, такие как "Полет (   Читать дальше...   )01. Introduction (0:34)
-02. The Phantom Of Your Dreams (3:43)
-03. Dance Your Face Off (3:38)
-04. I'm Your Man (3:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F206C9BE133BB3D735817A8131A9DE8C2FD2BA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550737   (591600) от 12.05.2022
-
-VA - Eurodisco 80's Maxi Hits & Raritites, Vol. 2 (2020) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Lime - I Don't Wanna Lose You (Extended Dance Remix) (6:39)
-02. London Boys - I'm Gonna Give My Heart (Special Long Remix Version) (9:23)
-03. Fun Gang - Just for Fun (Radio Remix) (4:03)
-04. Geff Harrison - Bad New York City (Special Mix) (6:12)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92B21FA3396267AFE6C86764425AD175644B53F
 ```
 
 https://mybot314.ru/tekegram_catalog/

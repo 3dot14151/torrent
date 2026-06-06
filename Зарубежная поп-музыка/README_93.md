@@ -1,3 +1,119 @@
+###  Публикация: 1750817   (42748) от 22.09.2024
+
+VA - 70s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abba - Dancing Queen
+02. Lynyrd Skynyrd - Sweet Home Alabama
+03. John Travolta - You're The One That I Want (From “Grease”)
+04. Gloria Gaynor - I Will Survive (Single Version)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755A6663C398F68E9A1CF558DFE5D778B4166E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750969   (42729) от 22.09.2024
+
+VA - Mega-Mix Dance Hits Vol. 1 (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Acid, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hithouse - Jack To The Sound Of The Underground (Big Mix)
+02. Capella - Helyom Halib (Euro-Acid Mix)
+03. 2 U Hi! - Go 'Head (Fat Mix)
+04. Hithouse - Move Your Feet (Acid Mix)(   Читать дальше...   )Жанр: Electronic, Acid, Synth-popПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3599E4D55D21AB8E269305C7EDA46F6C130F75E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750807   (42727) от 22.09.2024
+
+VA - DJ Hits Platinum 97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scooter - The Age of Love
+02. Bellini - Samba De Janeiro
+03. Tic Tac Toe - Mr. Wichtig
+04. Chilli & Carrapicho - Tic, Tic, Tac(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131DCCC8532867B3478A228FDF69BB23993DF9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750950   (42718) от 22.09.2024
+
+Cher - Forever Fan (2024) [MP3|320 Kbps] <Pop-Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe (3:59)
+02. If I Could Turn Back Time (4:12)
+03. Walking In Memphis (3:56)
+04. Song for the Lonely (3:21)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 01:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59CF1D2F4E7C6EB51F3D4FF32A4B70290B4738E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750940   (42711) от 22.09.2024
 
 VA - 90s Best of by uDiscover (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
@@ -626,122 +742,6 @@ Smokie - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Pop Rock, Rock, Soft Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C03B8B1F0B281C8D287E9FD810498E5DAD6B35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757159   (39168) от 26.10.2024
-
-Gazebo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunatic
-02. Masterpiece
-03. I Like Chopin
-04. Telephone Mama(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C99C0B99A028D39C0F1BA1B13EBEFEA924504F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757512   (39092) от 27.10.2024
-
-VA - HITS WE ALL KNOW (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Locked out of Heaven (3:53)
-02. Icona Pop - I Love It (2:34)
-03. Roxette - The Look (3:57)
-04. Coldplay - Viva La Vida (4:02)(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A73497C95D3A67BC857F6F96F5608C15F52DF46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757783   (38922) от 29.10.2024
-
-Pupo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Su di noi
-02. Gelato al cioccolato
-03. Come sel bella
-04. Ciao(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949F67BC31570148941229D12CEC57B4483B49B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760724   (37064) от 16.11.2024
-
-VA - Sex Music 2024 [MP3|320 Kbps] <Pop, RnB, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaniLeigh - Tasty (2:30)
-02. Two Feet - I Feel Like I'm Drowning (3:05)
-03. Jujuboy - James Bond (2:22)
-04. Muni Long - Made For Me (3:08)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 03:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B991134DAD4EE75A0DFFC828F9789C4DD10AAB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

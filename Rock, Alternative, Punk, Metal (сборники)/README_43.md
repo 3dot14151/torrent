@@ -1,3 +1,148 @@
+###  Публикация: 1515819   (167814) от 09.12.2021
+
+VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чаще всего в рок музыкальных произведениях есть момент, когда все инструменты затихают, оставляя лишь электрогитару, которая играет эпическое соло. Эти отрывки в композициях высоко ценятся не только среди любителей и слушателей рока, но и среди самих музыкантов, так как во время соло, гитарист «не прикрыт» и не заглушен другими инструментами. Он не имеет права на (   Читать дальше...   )001. Ya Tseen - At Tugáni
+002. Møaa - Lam
+003. Maxпmo Park - All Of Me
+004. David Bowie - Running Gun Blues(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EDB33641CF5F29B32A016582F76BD66DC5E7DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672791   (167706) от 29.10.2023
+
+VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - Good Riddance (Time of Your Life) (2:33)
+02. Coldplay - Sparks (3:47)
+03. Disturbed - The Sound of Silence (4:08)
+04. Stone Temple Pilots - Plush (Acoustic Version) (4:49)(   Читать дальше...   )Жанр: RockПродолжительность: 04:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4C8897F9B75E4E95E1CAF61A9A344E7462F4E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516086   (166572) от 10.12.2021
+
+VA - Blues Rock Collection (2021) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part I:
+01. Pepe Ahlqvist And The Sunset Boulevard - Don't Leave Me Again (04:25)
+ 02. Dr.Feelgood - Second Opinion (03:23)
+ 03. Bobby Blue Bland - Sad Street (06:40)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C318A0B5F5B9D02B96D133B590D7CC8124C26D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346109   (164482) от 18.12.2019
+
+VA - Not Dead Yet: Modern Rock Compilation (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164482.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ouzo Bazooka - Sleep Walk
+002. Hippo Campus - Bubbles
+003. Hodera - If You Want Me To
+004. Per Frost - Furious Machines(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5D8E811768C0FEA117FB2A786204AB20FCF810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432450   (164170) от 17.12.2020
+
+VA - The True Story (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник отличного хард рока, который отлично подойдет для всех любителей жесткого, но мелодичного звучания. Монументальные, мелодичные композиции накатывают как волны настраивая слушателя на мысли философского содержания.001. Dead Man's Chest - Dear God
+002. Roadsaw - Under The Devil's Thumb
+003. Dripback - Blessed With Less Than Nothing
+004. The Acacia Strain - The Lucid Dream(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 09:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8637FD589624FC3D817EB322756B05D9DCE48895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516957   (163323) от 14.12.2021
 
 VA - Rock Legends 70s от ALEXnROCK часть 2 (2021) [MP3|320 Kbps] <Rock>
@@ -600,151 +745,6 @@ David Hallyday - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23BCF5868A60058242B3968ED58762780BBCF189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347709   (148656) от 24.12.2019
-
-VA - Animalistic: Hard Rock Review (2019) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148656.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Duneeater - Stigma 66
-002. Gran Duca - All Hail The Autowagen
-003. Senchineru - Creep
-004. Let Them Hang - Network In Blood(   Читать дальше...   )Жанр: Hard Rock, Hardcore, MetalПродолжительность: 08:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954E8AE069CD0D877D09A5A1841059247ABCFA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271683   (148469) от 24.12.2018
-
-VA - Rock in Auto Vol 4. (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saving Abel - Addicted (3:43)
-02. 12 Stones - Hey Love (3:53)
-03. AC / DC - You Shook Me All Night Long (3:30)
-04. Adelitas Way - Last Stand (3:42)(   Читать дальше...   )Жанр: RockПродолжительность: 06:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A7C5999061B031079F1613EBC653D4C9171C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086794   (147936) от 26.12.2016
-
-VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electronic>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Karma Police 04:22
-02 Burn The Witch 03:41
-03 Creep 03:56
-04 Reckoner 04:51(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 02:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01368BEDB1A4F423EDE877457101D809FCF800A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969118   (147010) от 27.12.2015
-
-VA - Рок впрок 4 (2015) [MP3|320 кб/с] <Рок, Поп-Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мара - За мной
-02. J-МОРС - Не край
-03. Ракоший Нелч - Куда уходят кумиры
-04. Pauca Verba - Ничего(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B881978F63BABC1B15E6431AD5D4C5686DC2D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519813   (145395) от 26.12.2021
-
-The BossHoss - Compilation (2021) [MP3|320 Kbps] <Rock/Country/Rockabilly>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like It Like That
-02. My Country
-03. Stallion Battalion
-04. Sex on Legs(   Читать дальше...   )Жанр: Rock/Country/RockabillyПродолжительность: 05:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3E5938B74B222EC7EA07EF2FEAABAE60CFB8A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

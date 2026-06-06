@@ -1,3 +1,67 @@
+###  Публикация: 1053212   (526529) от 16.09.2016
+
+Eruption - Leave A Light (1978) Remastered, 2016, Big Break Records [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave A Light (I'll Keep A Light In My Window) (06:48)
+02. Sweet Side (03:54)
+03. Up And Away (03:10)
+04. Left Me In The Rain (03:57)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3BC443070752F77D4B3BB7F47310FD2F5E40FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371249   (523685) от 04.08.2011
+
+A-ha - 25 (The Very Best of A-ha) 2CD (2010) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move To Memphis (Single Version)
+02. Dark Is The Night For All
+03. Cold As Stone (Re-Mix)
+04. Angel In The Snow (Edit)
+05. Shapes That Go Together
+06. Summer Moved On
+07. Minor Earth Major Sky (Niven's Radio Edit)
+08. The Sun Never Shone That Day (Radio Edit)
+09. Velvet
+10. Forever Not Yours(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 372360   (521156) от 07.08.2011
 
 Sabrina - All of Me (1988) [APE|Lossless]<Italo dance>
@@ -749,76 +813,6 @@ Arabesque - The Best - Легенды дискотек 80-х (2008) Compilation[
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7EC65D7ED592B54C89F3C83632AE7C67080B946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543711   (493435) от 06.09.2012
-
-VA - Italo Dance Club (2005) 2CD[FLAC|Lossless]<Disc, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Phaser - Touch And Go [03:44]
-02. *Miss A. - Somwhere Over The Rain [03:43]
-03. Electric Girl - Forever [04:48]
-04. A-Deejay - You Got To Let The [02:55]
-05. Smash Maker - La Cucaracha [03:34]
-06. W.N.D. - Words [03:15]
-07. Aladin feat. In Nomine Patris Rmx - Aladin [03:14]
-08. Robin A. - California Dreaming [03:10]
-09. Mc Pizzamen - Mamma Maria [03:58]
-10. DJ Albertinos - Boys [03:06](   Читать дальше...   )Жанр: Disc, PopПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543985   (493162) от 06.09.2012
-
-VA - Disco Discharge. Disco Boogie (2010) 2CD[FLAC|Lossless]<Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toto featCheryl Lynn - Georgy Porgy (Special 12' Disco Mix) [05:08]
-02. Terri Wells - You Make It Heaven (Original 12' Mix) [05:26]
-03. Illusion Orchestra - Autumn Leaves (Original 12' Mix) [04:27]
-04. Deodato - Night Cruiser (Original 12' Mix) [06:16]
-05. Skyy - Call Me (Original 12' Mix) [06:21]
-06. Maxine Singleton - You Can't Run From Love (Original 12' Club Mix) [06:42]
-07. Conquest - Give It To Me (If You Don't Mind) (Original 12' Mix) [06:54]
-08. DTrain - Keep On (Francois Kevorkian 12' Remix) [09:28]
-09. Nick Straker Band - Straight Ahead (Original 12' Mix) [06:43]
-10. Alisha - Baby Talk (Special 12' Remix by Shep Pettibone) [06:47]Жанр: Disco, PopПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

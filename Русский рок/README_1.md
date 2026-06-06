@@ -1,32 +1,3 @@
-###  Публикация: 1843753   (1049505) от 21.12.2025
-
-Ананасов и Ко - Знак солидарности (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1049505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А зори здесь тихие...
-2. Амундсен
-3. Камикадзе (попадают в рай)
-4. Альенде(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67589D045573D647EADA6CCDDB7401C775025B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843215   (1049106) от 19.12.2025
 
 Павел Пиковский - Для красоты (2025) Deluxe Edition [MP3|320 Kbps] <Rock>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1049106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1049106.jpg" />
 </div>
 
 
@@ -62,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1049024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1049024.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Sicarios - Крысиный король (2023) [MP3|320 Kbps] <Progressive Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4C63A0DF51C5560CF6290883A8212C94E7965D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602492   (1046123) от 05.01.2023
+
+Радиант - Легенды далёких миров (2022) [MP3|320 Kbps] <Power Metal, Symphonic Metal, Metal Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Пролог [00:04:11]
+02 - Радиант [00:04:38]
+03 - Первый шаг [00:04:41]
+04 - Долг и честь [00:05:18](   Читать дальше...   )Жанр: Power Metal, Symphonic Metal, Metal OperaПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539C41BBEB28DA81BD94C2778DCCAEAE46E6B78A
 ```
 
 https://mybot314.ru/tekegram_catalog/

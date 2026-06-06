@@ -1,3 +1,61 @@
+###  Публикация: 1121881   (799626) от 03.04.2017
+
+VA - Italo Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799626.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Reale Accademia – Beautiful Witch (04:51)
+2. Galvanica – Nightlights In Japan (06:16)
+3. Bryan Baker – Niagara Falls (06:14)
+4. Keepers – Notty Girl (07:56)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF65085502307875A744A9158D65023D4C1840A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121923   (799614) от 03.04.2017
+
+VA - Italo Disco - The Lost Legends Vol. 5 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799614.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mod-it – Physical Fascination (05:18)
+2. Paul Boy – Lucky Guy (05:15)
+3. Lettieri – Melody (06:04)
+4. Joe Car – Dancing Dode (06:18)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382CC84914FABBE968AFF098C0CEE4DA9D739A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506756   (799492) от 01.11.2021
 
 Milano 84 - Monochromatic (2021) [MP3|320 Kbps] <Italo-Disco, Italo-Pop, Nu-Italo>
@@ -686,64 +744,6 @@ VA - From Russia With Italo Disco Vol. I-VIII (2012-2014) 10CD, Compilation, Ful
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DEDB9CE679FF0552D5930DC197B4BC43F33CFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012251   (794283) от 30.04.2016
-
-VA - Disco 80's Maxi Club Hits Vol. 1-3 (Remixes & Rarities) (2012) [MP3|320 кб/с] <Italo Disco, Eurodisco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Albert One - Heart On Fire (Special Maxi Mix) (05:33)
-02 Baltimora - Living in the Background (Maxi Mix) (06:06)
-03 David Lyme - You Are My Desire (Maxi Mix) (05:57)
-04 Den Harrow - You Have a Way (Maxi Mix) (05:51)(   Читать дальше...   )Жанр: Italo Disco, Eurodisco, SynthpopПродолжительность: 03:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BA880E56407BB849283C38DC039BF6307AA107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386948   (793627) от 30.05.2020
-
-Hot Sauce - Baby Tenderness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Tenderness (3:06)
-02. May Be (3:43)
-03. Funky Train (3:10)
-04. Conga (2:45)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE4B690E1A98CFD50C3AED5A0481316F8231974
 ```
 
 https://mybot314.ru/tekegram_catalog/

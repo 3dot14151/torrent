@@ -1,3 +1,38 @@
+###  Публикация: 407677   (348216) от 12.11.2011
+
+ZONE - 4 albums (2002-2006) Discography [FLAC|Lossless]<J rock,girl.band>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_348216.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. fortune
+ 2. mind
+ 3. Kaze no hajimaru basho
+ 4. Ai hana
+ 5. Once Again
+ 6. JET
+ 7. GO!
+ 8. Like
+ 9. Kuso to genjitsu no yoake
+ 10. ROCKING(   Читать дальше...   )2002-2006Жанр: J Rock,girl.bandПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579478   (336413) от 27.09.2022
 
 The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -133,6 +168,41 @@ Yonin Bayashi - Ishoku-Sokuhatsu (1974) Reissue, Unofficial Release, 2009, Erebu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE1B3A8AEC543EC8B3634FF7784AB36E8AE1AA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 267910   (297770) от 09.12.2010
+
+COBRA - 2 album's (1996-2000) [FLAC|Lossless]<C rock,blues rock,girls band>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.YUAN
+02.忘记我
+03.影子
+04.周末
+05.迷途的羔羊
+06.床
+07.日子
+08.瘾
+09.等待
+10.无所谓(   Читать дальше...)Жанр: C rock,blues rock,girls bandПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,61 +752,6 @@ Nuclear Idiots - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2255EAC8842385BB1CBEBEC6DCA71387C68DCC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669392   (172067) от 20.10.2023
-
-Babymetal - Babymetal Begins - The Other One - Black Night & Clear Night (2023) The One Limited Edition, 2023, BMD Fox Records [FLAC|Lossless|tracks + .cue] <J-Metal, Modern Metal, Kawaii Me ...
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Black Night (DISC 01)
-Black Night (DISC 02)
-Clear Night (DISC 03)(   Читать дальше...   )Жанр: J-Metal, Modern Metal, Kawaii MetalПродолжительность: 4CD, 02:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097E95C7E8D7FE5299B56FB4C5FAFB8CA680F7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596779   (169071) от 11.12.2022
-
-Dragon Guardian - Destiny of the Sacred Kingdom (2012) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OvertureЖанр: Symphonic Power MetalПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379E5A9DD79B420D6128A68DCDCE5DD8BBDDA133
 ```
 
 https://mybot314.ru/tekegram_catalog/

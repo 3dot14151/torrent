@@ -1,25 +1,25 @@
-###  Публикация: 1270888   (153293) от 21.12.2018
+###  Публикация: 1344735   (168455) от 12.12.2019
 
-Adele - 100% Adele (2018) [MP3|320 Kbps] <Pop>
+VA - Новый Год 2020 (2019) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Hello
-2. Someone Like You
-3. Send My Love (To Your New Lover)
-4. Water Under The Bridge(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:35
+01. Моральный кодекс - Москва новогодняя 8:02
+02. Мумий Тролль - С Новым годом, крошка! 5:05
+03. Григорий Лепс - Новый год 4:34
+04. Emin - Первый снег 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 03:56:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4D5F6DEE9864E70777E1A86B9FDFEBB2555A892
+magnet:?xt=urn:btih:0808A15A02CC6A176D3DE6463EF5239C6FCF5637
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825720   (151694) от 17.10.2025
+###  Публикация: 1345090   (167807) от 13.12.2019
 
-Romantic Dreams - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+VA - My Lyric Soul: Romantic Music Compilation (2019) [MP3|320 Kbps] <Pop, Lyric>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Your Soul
- 02 - Start Again
- 03 - Butterflies Inside My Heart
- 04 - Inhale the Future, Exhale the Past(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:31:42
+001. Duncan Laurence - Love Dont Hate It 2:51
+002. A Great Big World - Fall On Me 4:23
+003. Adda - Plang In Hohote 3:30
+004. Amanda Batista - Ti Sento 3:27(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 09:05:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99B790363D0F8A37EBE709B10DF968A2DD38F1C2
+magnet:?xt=urn:btih:447DA3FAABA57174D51C28B96E84F95496152CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271191   (151435) от 22.12.2018
+###  Публикация: 1515836   (167691) от 09.12.2021
 
-VA - Русское радио Хит-парад Золотой граммофон 21.12.2018 [MP3|320 Kbps] <Pop>
+VA - National Pop Dance Music Vol.27 (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Денис Клявер - Когда ты станешь большим
-02. #2Маши - Босая
-03. Руки Вверх - К Черту Эту Гордость
-04. Ирина Дубцова - Факт(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:50
+Очередной 27-й сборник лучших хитов народной попсы в проекте National Pop Dance Music уже готов к прослушиванию. Как полагается Вас ожидает 150 самых популярных песен с различных уголков мира, которые непременно создадут вам хорошее настроение и подарят целых девять часов самой классной музыки001. Kizz Daniel - Pipa
+002. Truck Stop - Morgen Gleich Morgen
+003. Tunng - Woman
+004. Jack Symes - Good Morning(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 09:02:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAD6F8601A6B7688561CE87C298F35E178B798A8
+magnet:?xt=urn:btih:A6B56964123C10322D923A649D4443B8C146C0DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825915   (150732) от 18.10.2025
+###  Публикация: 1431453   (167653) от 13.12.2020
 
-VA - Осень на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
+VA - National Pop Dance Music Vol.12 (2020) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sabrina Carpenter - Tears (2:40)
-02. Сергей Лазарев - Тут или Там (3:25)
-03. Shouse & Cub Sport - Only You (2:57)
-04. Ava Max - Don’t Click Play (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:07
+Это активная, бодрящая, воодушевляющая музыка, ведомая силой и духом. Её можно использовать на тренировке в спортзале или при пробежке в парке. Она поможет ощутить яркую бурлящую жизнь внутри себя, единство силы и воли для достижений и побед в спорте.001. Vize X Imanbek - Brother Louie
+002. Lucky Luke - Cooler Than Me
+003. Showtek, Spree Wilson - The Weekend
+004. Regard - Secrets(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:05:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5861D27584D065F4383495FBC328A6C930E8EA1C
+magnet:?xt=urn:btih:D53769FC9FEECF077E13C8C3283A65D1FD3805F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086799   (149457) от 25.12.2016
+###  Публикация: 1345413   (167306) от 14.12.2019
 
-VA - 100 Самых красивых Новогодних песен (2016) [MP3|320 Kbps] <Pop, Dance, Rock>
+VA - German Top 100 Single Charts 13.12.2019 [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elvis Presley - If Every Day Was Like Christmas
-02. Аркадий Хоралов и Аурика Ротару - Новогодние игрушки
-03. John Lennon & Yoko Ono - Happy x-mas (War is over)
-04. Александр Маршал и Вячеслав Быков - Новый год(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 06:14:11
+01. Nimo & Hava - KEIN SCHLAF
+02. Samra - COLT
+03. Tones and I - Dance Monkey
+04. Apache 207 - Roller(   Читать дальше...   )Жанр: PopПродолжительность: 05:20:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42E38E4DB9FC97BF514437A315C5198F131261D6
+magnet:?xt=urn:btih:1F5B35D3D07B157134044C1320A97600F0EA41E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 969011   (149387) от 26.12.2015
+###  Публикация: 1431746   (165559) от 15.12.2020
 
-VA - Covers Mix (2015) [MP3|320 кб/с] <Pop>
+VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lionel Pillods - Tu es de ma famille (5:29)
-02. Tifany Kell - Mistral gagnant (3:00)
-03. La Malice - Where Is My Mind (2:32)
-04. Lore - Mistral gagnant - Derniere danse (4:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:06
+Когда на смену открытым танцплощадкам пришли дискотеки с зеркальными шарами - мы узнали о существовании Диско. Синтезатор вытеснил пианино из наших квартир. Выходных ждали, что бы зажечь на танцполе. Ритм 120 ударов в минуту - становился комфортным. Мы хотели быть похожими на звезд в стиле диско. Добавьте блеска и бесшабашности в свою жизнь. Слушайте и непременно (   Читать дальше...   )001. Sneaky Sound System - Can't Help
+002. Stewart Birch - Like The Rays From The Sun
+003. Phenomenal Handclap Band - Judge Not
+004. Finger Lips - Pink(   Читать дальше...   )Жанр: DiscoПродолжительность: 10:39:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C27BB769684A345190D7DCB8CD6862752117323
+magnet:?xt=urn:btih:6F0A32ECF5680860B60F3E8C6B8B4D8B0459CF60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271633   (148744) от 24.12.2018
+###  Публикация: 1597852   (164891) от 16.12.2022
 
-VA - German Top 100 Single Charts 31.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+VA - Top Dance Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Electro Pop, Indie Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ava Max - Sweet But Psycho
-002. Mariah Carey - All I Want For Christmas Is You
-003. Sido - Tausend Tattoos
-004. Mero - Baller los(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:34:27
+01. David Guetta, Bebe Rexha - I'm Good (Blue)
+02. KSI, Tom Grennan - Not Over Yet (feat. Tom Grennan)
+03. LF SYSTEM - Afraid to Feel
+04. Oliver Tree, Robin Schulz - Miss You(   Читать дальше...   )Жанр: Synthpop, Disco, Electro Pop, Indie DanceПродолжительность: 01:30:49 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59F1C9528934CB0B072C3F5B2822144A19095F92
+magnet:?xt=urn:btih:E103E8BC8610F433BCBB160BA6381CBE601F7384
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519122   (148674) от 24.12.2021
+###  Публикация: 1597879   (164786) от 16.12.2022
 
-VA - A Wave Of Positivity: Pop Dance Project (2021) [MP3|320 Kbps] <Pop, Dance>
+VA - 100 Club Hits - Edition 2023 (2022) [MP3|320 Kbps] <Electro Pop, Dance, Future House, Groove>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данную сборку можно рекомендовать для тех, кто находится в поисках вдохновения. Ведь общий настрой треков этого сборника наполнен оптимизмом. В этот момент хочется радоваться жизни, танцевать и показать всем, что ты в отличном настроении. То, что нужно для максимального заряда перед выходными!001. Dazz & Calvo - Alone Together
-002. Stylove - I Feel Alive (Extended Mix)
-003. Atb feat Ben Samama - Like That
-004. DJ Bobo - There Is A Party(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:51:15
+001. Klaas - Ocean Eyes
+002. Hight - I'm with You
+003. Dino Mileta - Up
+004. The Disco Boys - Promised Land(   Читать дальше...   )Жанр: Electro Pop, Dance, Future House, GrooveПродолжительность: 04:38:14 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C354E1E07B37CC30D6E348D951E546F8309C715A
+magnet:?xt=urn:btih:433578816DF4576DB9CA3C7D0C403C7235BD723D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271780   (148636) от 24.12.2018
+###  Публикация: 1598110   (164054) от 17.12.2022
 
-VA - Billboard Year End Hot 100 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+VA - German Top 100 Single Charts 16.12.2022 [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Drake - God's Plan
-002. Ed Sheeran - Perfect
-003. Bebe Rexha;Florida Georgia Line - Meant to Be (feat. Florida Georgia Line)
-004. Camila Cabello;Young Thug - Havana(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:54:58
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. Shakin' Stevens - Merry Christmas Everyone
+04. Brenda Lee - Rockin' Around The Christmas Tree(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4354B865D4C9B58795E8D41C9AE9A71E1AF7CB7
+magnet:?xt=urn:btih:F32C01285D0AC85899E0403F3CDF99D4DA115916
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086738   (148450) от 26.12.2016
+###  Публикация: 1673710   (163123) от 03.11.2023
 
-VA - Big Love 20 от Love Radio (18.12.2016)  [MP3|320 Kbps] <Pop>
+ORS / Orlando Riva Sound - Compilation (2023) [MP3|320 Kbps] <Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye
-02. Макс Барских - Туманы
-03. Elvira T - Такси
-04. DJ Snake feat. Justin Bieber -Let Me Love You(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:44
+01.  Fire On The Water
+ 02.  Indian Reservation
+ 03.  Body To Body Boogie (Late Nite Tuff Guy Edit)
+ 04.  The Blaze(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:46:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4922AF7875716A044A377DD59E45853F9B6B3683
+magnet:?xt=urn:btih:CD5FD6E276F47C7C43EAF002CAC33E24C841FEE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086760   (148363) от 26.12.2016
+###  Публикация: 1432748   (162900) от 18.12.2020
 
-VA - Начинаем отмечать! №1 (2016) [MP3|256-320 Kbps] <Pop>
+VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ленинград – Начинаем отмечать (#EDDIESMILE Remix)
-002. Стас Михайлов - Там За Горизонтом
-003. Tiana - Без Лишних Истерик
-004. Анжелика Агурбаш Feat. Арамэ - Было И Прошло(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:23
+01. 1er Discopera - Fickle Love (1978) (4:14)
+02. A' La Carte - Heatr Full Of Soul (1983) (3:38)
+03. Alain Chamfort - Manureva (1979) (6:44)
+04. Azoto - Soft Emotion (1980) (5:41)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 06:34:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0EA392CA74AB6A52E2345D1B8B2AE8AFABBB0B6
+magnet:?xt=urn:btih:16310883A84306BD471C922C6B1E7D2531996739
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271749   (148339) от 24.12.2018
+###  Публикация: 1517497   (162285) от 16.12.2021
 
-VA - Новогодняя Дискотека Руки Вверх 2019! (2018) [MP3|320 Kbps] <Pop, Dance>
+VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Руки Вверх - К чёрту эту гордость
-02. Пацаны - Я не буду писать…
-03. Турбомода - Не люблю
-04. ПОТЕХИН БЭНД - Маски(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:10
+Музыка не стоит на месте и в канун уходящего года артисты успевают не только подготовится к праздникам, но и выпустить свои новинки. Предлагаем вам сборник из 170 свежих треков популярно-танцевального формата, здесь Вы найдете все самое новое и интересное - возвращение уже почти забытых исполнителей, интересные дуэты, хиты новых исполнителей и много хорошей качественной (   Читать дальше...   )001. Mo' Jive - Dixieland
+002. Five Steps Beyond - That Kind Of Day
+003. X-Perience - Never Look Back
+004. Joan Armatrading - Already There(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 09:43:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BC2F75F2E2F44D7897452B049781FD99D1635CD
+magnet:?xt=urn:btih:2836153C4FB14640F38969E3B559C4C0F4190DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271688   (148294) от 24.12.2018
+###  Публикация: 1824607   (162281) от 18.10.2025
 
-VA - Shazam Хит-парад Russia Top 100 Итоговый 2018 [MP3|320 Kbps] <Pop, Dance>
+Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. MARUV & Boosin - Drunk Groove
-002. Tom Walker - Leave a Light On
-003. Dynoro & Gigi D’Agostino - In My Mind
-004. G-Eazy - Him & I (feat. Halsey)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:35
+01 - The Day
+ 02 - Stay Forever
+ 03 - Je Danse
+ 04 - You’re My Heart(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:35:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:122C231D99EF3196B6BA1239DCF52681E04CA78C
+magnet:?xt=urn:btih:5ADBCBCA090EBABEA5F708620157AB990872F78F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519395   (148223) от 24.12.2021
+###  Публикация: 1517739   (162127) от 16.12.2021
 
-VA - Music for Speed (2021) [MP3|320 Kbps] <Pop, Dance>
+VA - Discolandia (2021) [MP3|320 Kbps] <Disco, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 220 KID feat. Lany-Stupid Feelings (Jonasu Remix)
-002. About That-Who Let The Dogs Out (feat. Evalina)
-003. ALAMPA-Stand Still
-004. Alan Walker,Imanbek-Sweet Dreams(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:34:24
+Горячий коктейль популярных танцевальных композиций в диско сборнике "Discolandia". Сотня треков заводной музыки, которые и не грех добавить в свою персональную медиатеку.001. Jam Tronik - Wish You Where Here
+002. Jam Tronik - Stand By Me
+003. Robert Hill - Hold Me Again
+004. Discotron - Dance Of Disco(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 07:26:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0958F5CAEECE2E258453F6ED12386ACA6C00DEE
+magnet:?xt=urn:btih:A1897B6F87C94CC2B627CDFDA4073098AECAC62E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519433   (148167) от 24.12.2021
+###  Публикация: 1517744   (162122) от 16.12.2021
 
-VA - Discolandia Party 2 (2021) [MP3|320 Kbps] <Disco, Electro Disco, Remixes>
+VA - Disco Is Alive 3 (2021) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Музыка в стиле диско никогда не выйдет из моды. Неспроста же многие ди-джеи часто создают ремиксы на популярные хиты диско. Представляем вам мега-сборник таких песен, состоящий из сотни треков диско музыки новой генерации, который несомненно понравится не только молодому поколению, но и позволит вспомнить дискотеки тех лет более зрелым слушателям.001. DJ Ross - Lupin
-002. Natasha Kitty Katt - Edgarrr!
-003. Veno - Rise Am
-004. Reece Johnson - M.A.R.S.(   Читать дальше...   )Жанр: Disco, Electro Disco, RemixesПродолжительность: 08:49:24
+01. Amanda Lear - Enigma (Give A Bit Of Mmh To Me) (1978) (5:10)
+02. Arabesque - Bye, Bye My Love (1980) (3:31)
+03. B.B. Jackson - Super Boogie (1977) (3:48)
+04. Barbara Law - Take All Of Me (1979) (7:23)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 05:39:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AFBDE85A28AC79B536F399D9C1EFADA1549B639
+magnet:?xt=urn:btih:0024BB831EE61BA558D0FF5B72F4D5354ECBEC82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271789   (148015) от 24.12.2018
+###  Публикация: 1517526   (162106) от 16.12.2021
 
-VA - Club Dance Ambience Vol.169 (2018) [MP3|320 Kbps] <Dance, Club, House>
+VA - The Christmas Songs 2022 (2021) [MP3|320 Kbps] <Pop, Rock, R&b, Soul>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. #2Маши - Мама, я танцую  (DJ Alexander & DJ Alex Work Radio Reboot)
-002. 5&Dime x Teddy Junior feat. Lea Lou - We Are Lovers (Original Mix)
-003. Agua Sin Gas By Antoine Clamaran - Nobody (Original Mix)
-004. Antonia, Erik Frank - Matame  (Asher Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:32:30
+Невзирая на величину своей "Звёздности", раз в год артисты самых различных музыкальных жанров и стилей исполняют свои песни посвящённые самому желанному празднику! В предлагаемом Вашему вниманию тематическом сборнике собраны песни известных и не очень певцов в текстах песен которых они хотят подарить нам радость ожидания этого светлого праздика и надежду (   Читать дальше...   )001. The Spinners - The Twelve Days Of Christmas
+002. Kathie Lee Gifford - It's Beginning To Look Like Christmas
+003. Laura Pausini - Astro Del Ciel
+004. Agnes, Måns Zelmerlöw - All I Want For Christmas Is You(   Читать дальше...   )Жанр: Pop, Rock, R&b, SoulПродолжительность: 09:03:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CB35E33B7D96FF3AAB8BB33F4871EB9D417CC7F
+magnet:?xt=urn:btih:24DE716C52282C17AC97B7C26B8C91EA695EBC41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 209412   (147929) от 24.12.2018
+###  Публикация: 1824010   (162016) от 19.10.2025
 
-VA - Дискотека "Белые розы" В Обработке DJ (2010) [MP3|256 kbps]<Disco-Pop>
+Sofia Bellini - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Юра Шатунов - Белые Розы (Dj Smash Remix)
-02. Vengerov & Fedoroff Feat. Михаил Круг - Владимирский Централ (Remix)
-03. Светлана Разина - Музыка Нас Связала (Dj Groove Remix)
-04. Энжек Vs Ms. Пугачева - Журавлик(   Читать дальше...   )Жанр: Disco - PopПродолжительность: 07:10:18
+01 - Colori D’autunno
+ 02 - Dolce Vita
+ 03 - Passione E Destino (Version 2)
+ 04 - La Felicità Sei Tu(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:35:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A941BBA433052838526544AFB0519DC5D18D72C7
+magnet:?xt=urn:btih:A6214FA58BD00FD5DB9243237588197E25D9DF1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086802   (147864) от 26.12.2016
+###  Публикация: 1674112   (161266) от 05.11.2023
 
-VA - Zaycev net. Декабрьский Тор 100 (2016) [MP3|320 Kbps] <Pop>
+Rose Laurens - Compilation (2023) [MP3|320 Kbps] <Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Аполлинария - Новогодняя!
-02. LP - Lost On You
-03. Monatik - Кружит
-04. Ost Up (Остап) - С Новым Годом!(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:13
+01.  American Love
+ 02.  La Difference
+ 03.  Jouets cass s
+ 04.  Quand Tu Pars(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F67DC6BC303CD9D23E79C84447B535BA2A623609
+magnet:?xt=urn:btih:3A0440EE86E41BB9666B432E76B1BAE3F234783F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 969568   (147384) от 27.12.2015
+###  Публикация: 1675052   (160544) от 07.11.2023
 
-VA - Hit Music от Мяу (декабрь 2015) (2015) [MP3|112 - 320 кб/с] <Pop>
+VA - Chill Hits 2 (2023) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DNCE - Cake By The Ocean (13:35)
-02. Madcon feat. Ray Dalton - Don't Worry (03:36)
-03. Алексей Воробьев - Сумасшедшая (Apollo DeeJay remix) (03:02)
-04. PSY feat. CL Of 2NE1 - Daddy (03:51)(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:34
+001. Jessie Murph - Always Been You (2:08)
+002. Jessie Murph - Pray (2:25)
+003. Jeremy Zucker - always, i'll care (2:27)
+004. Wasia Project - ur so pretty (2:24)(   Читать дальше...   )Жанр: PopПродолжительность: 07:07:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:929FA1E9364D8A51BAB47E6F76AD0658D8AE02A8
+magnet:?xt=urn:btih:5BEAEFA42C25AA84F7ACB5F456DCE17741EF1D8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271856   (146526) от 25.12.2018
+###  Публикация: 417840   (160523) от 07.11.2023
 
-VA - Новогодняя сотка 2019 (2018) [MP3|320 Kbps] <Pop>
+VA - Кавказ Бомба Hits (2011) [MP3|256-320 kbps]<Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. #2Маши-Мама, Я Танцую
-002. 5sta Family-Так Бывает II
-003. A-Sen-Губы Любят
-004. Burito-Штрихи(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:01
+01. Альбина Токова - Горный ветер
+02. Азамат Биштов и Мурат Тхагалегов - Сердце
+03. Рамазан Кайтмесов - От меня не уйти
+04. Анастасия Аврамиди и Мурат Тхагалегов - Вянут розы в снегу(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4828DD9F27BD8CF4AB8D3A182AAF052260F30FBE
+magnet:?xt=urn:btih:6A34020052FF9B08A39998A1B75F5915AE669D82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519746   (146491) от 25.12.2021
+###  Публикация: 1599552   (159819) от 23.12.2022
 
-VA - Русское Радио. Лучшее '2021 (25.12.2021) (2021) [MP3|320 Kbps] <Поп>
+VA - Ultimate Party Classics Dance (2022) [MP3|320 Kbps] <Electropop, Future House, Nu Disco, Eurodance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Русское радио» — российская и международная радиостанция, вещающая в некоторых странах СНГ и дальнего зарубежья как международная. Отличается от других подобных станций трансляцией песен на русском языке, хотя есть исключения, где пропорции иностранных и русских слов в песнях могут доходить до соотношения 50/50.001. Кристина Орбакайте - Новый год, Come On
-002. Дмитрий Колдун - Потому что новый год!
-003. Ассорти - Три белых коня (Ayur Tsyrenov Remix)
-004. Саша Круглова - Зима(   Читать дальше...   )Жанр: ПопПродолжительность: 18:41:55
+01. Avicii - Levels (Radio Edit)
+02. Felix Jaehn, Jasmine Thompson - Ain't Nobody (Loves Me Better)
+03. Taio Cruz - Dynamite
+04. Naughty Boy, Sam Smith - La La La(   Читать дальше...   )Жанр: Electropop, Future House, Nu Disco, EurodanceПродолжительность: 03:09:55 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:564A8D84F02CF75EAD2C30B8ADB47A5A1DA5B961
+magnet:?xt=urn:btih:F706884577D96BF74DB1E3AAB67CCD8F447B7C3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087417   (146408) от 27.12.2016
+###  Публикация: 1599544   (159794) от 23.12.2022
 
-VA - Новогодние подарки. Лучшие песни (2016) [MP3|320 Kbps] <Pop>
+VA - Mega Hits Des Jahres (2022) [MP3|320 Kbps] <Synth-pop, Disco, Neo Soul, British Hip Hop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Поющие гитары — Цыганочка
-02. Кристина Збигневская — Пока ты не сказал
-03. Vitas — Без тебя
-04. Владимир Ворон & Галина Пахомова — Вернись, любовь(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:49
+01. Glass Animals - Heat Waves
+02. Taylor Swift - Anti-Hero
+03. Imagine Dragons, JID, Arcane, League Of Legends - Enemy (from the series Arcane League of Legends)
+04. James Hype, Miggy Dela Rosa - Ferrari(   Читать дальше...   )Жанр: Synth-pop, Disco, Neo Soul, British Hip HopПродолжительность: 04:22:23 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6C49260C625E652E17309D58C40599E7C6BF088
+magnet:?xt=urn:btih:7F8643C7CB5D1C8817F79545F765D68B428B22C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 739442   (145782) от 28.12.2013
+###  Публикация: 1599564   (159775) от 23.12.2022
 
-Александр Малинин - MP3 Play (2013) [MP3|320 кб/с]<Поп>
+VA - Dance Compliance Bests (2022) [MP3|320 Kbps] <Dancecore, Synthpop, Eurobeat, Hard Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Если бы не ты
-02. Нет пути назад
-03. Вьюга
-04. Моя Россия(   Читать дальше...   )Жанр: ПопПродолжительность: 04:46:19
+01. Danceteria - I Turn To You (Timster & Ninth Remix)
+02. Beat Alliance - Cold Brew
+03. Chaoz & Marced - Light Up My World (Extended)
+04. DeeMania - Complicated (Sunvibez remix)(   Читать дальше...   )Жанр: Dancecore, Synthpop, Eurobeat, Hard DanceПродолжительность: 02:59:44 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E2B927FC369E654DDB47436B91ABF88AEF2F34E
+magnet:?xt=urn:btih:4A91F7EB841FED15B8F6D657180186E23DD94297
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 739511   (145661) от 28.12.2013
+###  Публикация: 1599569   (159596) от 24.12.2022
 
-Roxette - 25 Best Songs (2012) [MP3|~245 кб/с]<Pop, Rock>
+VA - Luxury Disco - Ultimate House Grooves (2022) [MP3|320 Kbps] <Funky, Indie Dance, Groove, Nu Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Look 1988
-02. Joyride 1991
-03. How Do You Do! 1992
-04. Neverending Love 1986(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:42:22
+01. 2LOVERS - 2 the Ground  (Radio Mix)
+02. 2LOVERS - Strings  (Radio Mix)
+03. Animist - Two!
+04. Bond - Disco Moves Ya(   Читать дальше...   )Жанр: Funky, Indie Dance, Groove, Nu DiscoПродолжительность: 01:48:04 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97B93C35286A569607E97DB663AD6C388420C7DC
+magnet:?xt=urn:btih:477D9E70F51F1FA8052F1C5B3BD176E0028CAA93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087259   (145414) от 28.12.2016
+###  Публикация: 1675690   (159415) от 10.11.2023
 
-VA - Взрывной Хит-Парад выпуск № 4 (2016) [MP3|256 Kbps] <Pop>
+VA - Хиты Авторадио (2023) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.Sunsay Feat. Тося - Поезд 3:34
-002.Альбина - Не Со Мной 3:09
-003.N.A.O.M.I. (Наоми) - Надо Бы 3:05
-004.Eric Prydz Feat. Rob Swire - Breathe 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+001. 5УТРА - Давай сбежим (Искорки) (2:59)
+002. ANNA ASTI - Космически (3:28)
+003. Mari Kraimbrery - Моя красивая, стой (Из реалити-шоу Новые Пацанки) (3:45)
+004. NILETTO - Не вспоминай (2:53)(   Читать дальше...   )Жанр: PopПродолжительность: 05:27:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B180E44F61D8FEFA1773BE28C79677D2A8C800E5
+magnet:?xt=urn:btih:D8C7C96AB6CAC881035A2D2EEA4A97B8D0F89E2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087291   (145359) от 28.12.2016
+###  Публикация: 1599266   (159323) от 25.12.2022
 
-VA - Музыкальные новинки. Only Best Hits № 3 (2016) [MP3|256 Kbps] <Pop>
+Bishop Briggs - Compilation (2022) [MP3|320 Kbps] <Pop, Dark Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.Bodybangers - Sunglasses At Night 3:56
-002.Регина Тодоренко - Не Обижу 2:58
-003.Drake - Two Birds One Stone 3:59
-004.Таша Белая - Море Пополам 2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+01. Be Your Love (West Coast Massive Remix)
+02. Tempt My Trouble
+03. Dark Side
+04. River(   Читать дальше...   )Жанр: Pop, Dark PopПродолжительность: 01:06:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A18A58A85B17C42CB288E47061C061BBCA9AFD99
+magnet:?xt=urn:btih:311D732B0624D3C174CC6270563DCBADECAC6CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1361020   (958123) от 17.02.2020
+
+Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the Beginning (4:40)
+02. Catch My Fall (4:39)
+03. Devil in Heaven (3:43)
+04. I Don't Want to Lie Anymore (5:33)(   Читать дальше...   )Жанр: Electronic, Synthpop, EBM |Продолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F1D1C7C42C27883FBB1D29CE6C9735C6F97176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979737   (953020) от 31.01.2016
+
+Northern Lite - Letters & Signs (Part Two) (2010) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Japan [6:00]
+ 02. Wicked Mess [4:36]
+ 03. Run (feat. Chapeau Claque) [3:15]
+ 04. Home [4:06](   Читать дальше...   )Жанр: Synthpop, Rock, ElectronicПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C58A1804E760CC2094E7B69CC824594F5A2542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361784   (951994) от 21.02.2020
 
 Depeche Mode - Mode (2020) 18 СD, Box Set, Compilation, Limited Edition, Numbered [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
@@ -693,64 +751,6 @@ Camouflage - Sensor (2003) [FLAC|Lossless|image + .cue] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD23EA50A644FFFC5D6C25019D128A2629DFD614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098485   (908597) от 30.01.2017
-
-Animotion - Obsession - The Best Of Animotion (1996) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock, Synthpop, 80s>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsession (5:37)
- 02. Let Him Go (4:28)
- 03. I Want You (4:38)
- 04. I Engineer (4:15)(   Читать дальше...   )Жанр: Pop-Rock, Synthpop, 80sПродолжительность: 01:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E273AC7B3CA1233048A79ED55BC3E38A77BAECFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100038   (900965) от 03.02.2017
-
-Dance With The Dead - B-Sides: Volume 1 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Out (2:36)
- 02. Banshee (5:25)
- 03. That House (4:46)
- 04. Stoic (3:40)(   Читать дальше...   )Жанр: Synthwave, RockПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E9964E0FF00A9C85F7AF4973E5C6E63F9CC186
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1014512   (776152) от 08.05.2016
+
+Deuter - Ocean Waves (2012) [FLAC|Lossless|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bali    16:58
+02. Cannes    15:33
+03. Lanzarote    12:57
+04. Nice    10:07(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5B0FC45B147FA010726A6675790768A261E4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212372   (776083) от 11.03.2018
 
 Brian Crain - Piano and Night (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
@@ -716,35 +745,6 @@ Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C040631310DA7E4BDE5E2AD372563A042AD30F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018812   (752259) от 22.05.2016
-
-Kory Caudill - Tree of Life (2015) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginnings    06:26
-02. Around the World    05:32
-03. Walz of Life    04:37
-04. Time    05:28(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF79874C8CF5CD57F74DCED9F0E6F2E491F029F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

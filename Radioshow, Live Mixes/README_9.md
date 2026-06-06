@@ -1,3 +1,235 @@
+###  Публикация: 1131755   (707096) от 06.05.2017
+
+VA - Ori Uplift - Uplifting Only 221 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE 219: Ikerya Project & O.B.M. Notion Feat Danny Claire - Goodbye
+02. Susana - Only Summer Knows
+03. Manuel Rocca & Illitheas - Enchanted
+04. Syntouch & Angel Falls - Alone (Plutian Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9BFAC008EFE0A593747A8C3B821CB218BBBCCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220869   (700668) от 21.04.2018
+
+VA - Markus Schulz - Global DJ Broadcast - In Bloom (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Emma Hewitt - Safe from Harm (Markus Schulz In Bloom Mix)
+02. Protoculture vs. Delacey - In the Air of Manticore (Markus Schulz Mashup)
+03. Dave Neven & Ellie White - Try for Me
+04. Gareth Emery & Standerwick featuring Haliene - Saving Light(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B75310DE77D4D4302C957BB9AAB889DDF70970A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220877   (700660) от 21.04.2018
+
+VA - Ori Uplift & Ellez Ria - Uplifting Only 271 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE 254: AirLab7 & Javii Wind - Last Adventure (DreamLife Remix)
+02. RAM ft. Stine Grove - RAMore (Daniel Skyver Remix)
+03. Eric Senn - Osiris (Extended Mix)
+04. FAN FAVORITE 227: Derek Palmer & Cassandra Grey - Awake (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09D9090F9EB9A760183A61F159B8F490EAE7DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220895   (700652) от 21.04.2018
+
+VA - Aly & Fila - Future Sound of Egypt 544 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hazem Beltagui - Reasons To Love (Extended Mix)
+02. iiO - Rapture (Hot TuneiK Remix)
+03. D-Formation - Anbar (Original Mix)
+04. Eelke Kleijn - The Method (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 01:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C44EEDF96AEA9B2C8C0BBC6BB0D60AB4F65DC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132736   (698968) от 10.05.2017
+
+Aly & Fila - Future Sound Of Egypt 495 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Robert Nickson - Every Sun (Factor B's Perfect Sunrise Remix)
+02.London Grammar - Big Picture (Ciaran McAuley Rework)
+03.Driftmoon feat. Laurie Ann Haus - Felix (Ferry Tayle Remix)
+04.Arctic Moon - Nocturnal Horizons (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0E586DE7DD273A149FACB31C263DCF451EBD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288225   (697863) от 10.03.2019
+
+VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB & Markus Schulz - Heartbeat (Festival Mix)
+02. Above & Beyond vs. Armin van Buuren - Show Me Love
+03. Bobina & Christina Novelli - Saviour
+04. Katrin's World - Memories(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DA8DF159AA40483C247EE56D357C92E3BD1451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287748   (697769) от 10.03.2019
+
+VA - ASOT 900 Pre Party @ Poema RAW, Utrecht (2019-02-23) [MP3|256-320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. JD Love B2B Will Renville @ Elevation Audio Pres. ASOT 900 Pre-Party, Club Poema Utrecht, Netherlands 2019-02-23 (00:47:30):
+
+01. Sasha - Xpander (Intro)
+02. Terk Dawn - Barent Blue (Mongoto Remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F9BBB340D84B09A5015CA2D83FCD046FBB811A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287811   (697762) от 10.03.2019
+
+VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697762.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Sixth Sense Live @ ASOT900 After Party, Poema RAW 24/02/19:
+01. Ace Da Brain - Time
+02. Chakra - Home (Above & Beyond Remix)
+03. Blank & Jones - Nightclubbing (Wippenberg remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 04:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040D8136EE01A8D864DF91AEA09EDE46375FB31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403180   (694404) от 18.08.2020
 
 ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressive House>
@@ -512,236 +744,6 @@ Aly & Fila - Future Sound Of Egypt 498 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A27EF419C7A6BD2FDBCB0126F6486D32E76DE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225473   (660816) от 15.05.2018
-
-VA - Markus Schulz & Andy Moor - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Ben Gold - New Republic
-02. Markus Schulz & JES - Calling for Love
-03. Cristoph & Quivver - In Name Only(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39220FCBB083B365D15CB894ADD04F8772141BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225467   (659759) от 16.05.2018
-
-VA - Aly & Fila - Future Sound of Egypt 546 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha feat. Polica - Out Of Time (Original Mix)
-02. Dezza - Law of Attraction (Original Mix)
-03. Stan Kolev - Oblivion (Extended Mix)
-04. Matan Caspi & Ziger - Templar (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D1C07F2F865BD7EFCC9AC5806ED66A6D4183C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225475   (659756) от 16.05.2018
-
-VA - Aly & Fila - Future Sound of Egypt 547 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Kamilo Sanclemente - Secret Garden (Original Mix)
-02.Lucas Rossi - Singularity (Original Mix)
-03.Ezequiel Arias - Passenger (Original Mix)
-04.Boss Axis - Fango (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B327D71E933D8567B7D02B562F03F1C14EF3838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139588   (659301) от 03.06.2017
-
-VA - Ori Uplift - Uplifting Only 225 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. FAN FAVORITE: illitheas - Shine (Intro Mix)
-2. Susana - Only Summer Knows
-3. Ana Criado - Still There's You (A.R.D.I. Remix)
-4. Daniel Vitellaro Ft' Tina K - All I Need (Amos & Riot Night Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDCBBFC79A2E3FC86D6579189A6548C66F03BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226198   (657073) от 19.05.2018
-
-VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. DT8 Project - ClimbЖанр: Trance,Progressive TranceПродолжительность: 02:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08BB4C255A2EC360A8B4134D78EC849128027DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226222   (657072) от 19.05.2018
-
-VA - Aly & Fila - Future Sound of Egypt 548 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amari & Nico Morano feat. Jinadu - Desire (Eelke Kleijn Extended Remix)
-02. Darin Epsilon - Niflheim (Original Mix)
-03. Matter - Star. Rock. (Lanvary Remix)
-04. SEQU3L - Jelly Bell (Paul Angelo & Don Argento Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58500E38A0E48EA2F73FD052C5BD124BF61C5897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226252   (655847) от 20.05.2018
-
-VA - Ori Uplift & DJ Ruby - Uplifting Only 275 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeitam Osheen - Anck Su Namun (Intro Mix)
-02. PRE-RELEASE PICK: Roman Messer & Betsie Larkin - Unite (Steve Allen Extended Remix)
-03. Orla Feeney feat. Susan McDaid - Can't Give Up (Estigma & Pinkque present Hybrid Theory Remix)
-04. Christopher Corrigan - Sleepless Nights (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D5F90B9D025B5B1932319737D0395B198F4310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140663   (654878) от 07.06.2017
-
-Aly & Fila - Future Sound Of Egypt 499 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Thomas & White-Aker - Red Skies (Original Mix)
-02. Ferry Corsten - Blueprint (Original Mix)
-03. DIM3NSION - The Energy (Extended Mix)
-04. Stoneface & Terminal - North Cape (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C2F960FA287EE3578796BE98B770EB7F5AF420
 ```
 
 https://mybot314.ru/tekegram_catalog/

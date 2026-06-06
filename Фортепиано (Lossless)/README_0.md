@@ -1,3 +1,32 @@
+###  Публикация: 999254   (864344) от 22.03.2016
+
+Chopin - 4 Ballades, Prelude, 4 Scherzi (Ashkenazy) (2000) [FLAC|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ballade no. 1 in G minor, op. 23
+02 Ballade no. 2 in F major, op. 38
+03 Ballade no. 3 in A-flat major, op. 47
+04 Ballade no. 4 in F minor, op. 52(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608B83D840200BAE6750B5C1BD98672F9BD6011E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002037   (850257) от 30.03.2016
 
 Стравинский, Шостакович, Каретников - Piano Music (Анатолий Ведерников) (2005) [FLAC|Lossless|tracks] <Classical, Piano>
@@ -713,35 +742,6 @@ Piano Sonata No.16 In A Minor, D.845
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26FBE8C84E177A4BB86C11DA89F7FFEEC1B6D1D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905566   (649266) от 06.06.2015
-
-Schubert - The Piano Sonatas (Wilhelm Kempff) (Vol.2) (2000) 3CDs [FLAC|Lossless]<Classical, Romantic Period, Sonata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata No. 4 in A minor, D. 537 (Op. posth. 164)
-01. Allegro ma non troppo (07:32)
-02. Allegretto quasi Andantino (06:10)
-03. Allegro vivace (04:41)(   Читать дальше...   )Жанр: Classical, Romantic Period, SonataПродолжительность: 03:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96777A398870580785418F568E8E0DE92AAD44F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

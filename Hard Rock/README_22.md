@@ -114,6 +114,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565536   (399958) от 26.10.2012
+
+Black Country Communion - Afterglow (2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_399958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Train (4:17)
+02. This Is Your Time (4:32)
+03. Midnight Sun (5:18)
+04. Confessor (5:08)
+05. Cry Freedom (5:09)
+06. Afterglow (6:06)
+07. Dandelion (4:02)
+08. The Circle (7:01)
+09. Common Man (5:27)
+10. The Giver (5:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48683D066297770747D84A94172F59CD25D50080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567166   (396708) от 29.10.2012
 
 Aerosmith - Music From Another Dimension! (2012) [MP3|320 кб/с]<Hard Rock>
@@ -731,35 +766,6 @@ Electric Angels - Electric Angels (1990) [MP3|320 кб/с]<Hard Rock, Glam>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFE7A72322C5FE400667B1F317762DA06B24C741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070218   (369013) от 06.11.2016
-
-Rakel Traxx - Dirty Dollz (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Can't You See   (02:52) 
-  02| I Need Your Love Tonight   (04:29) 
-  03| You'll Never Stop The Game   (04:59) 
-  04| Red N' Hot   (04:09) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916EA643EA219D1042EB67599F4B5CE5569D9382
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 979947   (957420) от 28.01.2016
+
+The Casualties - We Are All We Have (2009) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Carry On The Flag
+02 - We Are All We Have
+03 - Heart Bleeds Black
+04 - Rise And Fall(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8592AB6840CE18AD5D75B9B6A189F347C7057EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980000   (957415) от 28.01.2016
 
 The Casualties -  For the Punx (1997) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
@@ -709,35 +738,6 @@ VA - A Tribute To Rancid: Hooligans United (2015) 2CD [MP3|320 кб/с]<Punk, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4A64E2C8321B757502F8D4D203D7060E082C3DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095171   (926003) от 20.01.2017
-
-Starset - Vessels (2017) [MP3|320 Kbps] <Alt. Rock, Electronic, Symphonic>>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Order
-02. Satellite
-03. Frequency
-04. Die For You(   Читать дальше...   )Жанр: Alt. Rock, Electronic, Symphonic>Продолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE470F81FC1A5A224DF714F30DDAA907B823756
 ```
 
 https://mybot314.ru/tekegram_catalog/

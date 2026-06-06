@@ -1,3 +1,61 @@
+###  Публикация: 818488   (539475) от 04.09.2014
+
+Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T.I. & Lil Wayne - Wit Me
+02. Ciara Feat. Nicki Minaj - I'm Out
+03. Tinie Tempah Feat. 2 Chainz - Trampoline
+04. Jay Sean Feat. Rick Ross - Mars(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FC65D9F6E97D52CE52949A38E90E600412E1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818371   (539467) от 04.09.2014
+
+Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicki Minaj - Pound The Alarm
+02. Timbaland Feat. Ne-Yo - Hands In The Air
+03. Tulisa - Young
+04. Alexandra Burke - Let It Go(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45ACA999CED0157B17C1D13A94344CACC2A4800E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924887   (536924) от 08.08.2015
 
 Сборник видеоклипов -  русские  Хиты (2015) HDTVRip [H.264/1080p]
@@ -667,58 +725,6 @@ Maria Lapiedra - Tapame, Tapame (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A20664FA32F15F0ABE8D307119C2BB21827F38D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537924   (509693) от 23.08.2012
-
-Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59117D2670C996059562B2FF76F66E815B953E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537920   (509642) от 23.08.2012
-
-Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73BF4239372819909194FA784A0925981A78BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

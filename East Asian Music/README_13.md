@@ -1,3 +1,143 @@
+###  Публикация: 567367   (394904) от 31.10.2012
+
+R Shitei - 6 альбомов, 2 компиляции, 16 синглов (2006-2012) [MP3|128-320 кб/с]<J-Rock, Visual kei>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394904.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-Rock, Visual keiПродолжительность: 00:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AC5E73286AACA9F84A59D591F0677D0E30E43A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567384   (393590) от 01.11.2012
+
++Plus - 2 альбома, 5 синглов (2009-2012) [MP3|256-320 кб/с]<J-Pop, J-R&B>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393590.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-Pop, J-R&BПродолжительность: 00:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCE6AB3E49E0AB8CD1FB6946A575BDDA930A587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569172   (389995) от 05.11.2012
+
+Arc - 4 альбома, 4 компиляции, 12 синглов (2005-2011) [MP3|128-320 кб/с]<J-Rock, Visual kei, Oshare kei>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389995.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-Rock, Visual kei, Oshare keiПродолжительность: 00:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719766D3A82B060F6802D537CA2B399B5E5254E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571817   (387867) от 07.11.2012
+
+VA - Time And Tide (1995) [MP3|320 кб/с]<Instrumental, Ethnic>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387867.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:36) 01. Time And Tide
+(3:27) 02. Dreams Do Not Have To Remember
+(3:10) 03. Wo Shi Chi Qing Wu Xian
+(3:02) 04. Aspirations Of Libertine
+(3:29) 05. Caporiccio
+(4:28) 06. What To Pursue In My Life
+(3:28) 07. Pian Pian Xi Huan Ni
+(3:54) 08. Don't Decorate Your Dream
+(3:59) 09. Silence Is Good Everywhere
+(2:56) 10. Wang Ri Qing(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C237E0C6B0777EB4D59EC771019335E25A265B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833066   (387167) от 21.10.2014
+
+EdelSounds - 2 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Pop>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387167.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012.05.27 Evening Wind (Reitaisai 9)
+2013.10.12 Retrospection (Kouroumu 9)Жанр: Touhou, Vocal, Doujin Ongaku, J-PopПродолжительность: 00:01:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531BC67F43CAF20BECFE32CB71C1FE22AAF212C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833063   (387164) от 21.10.2014
 
 signum/ii - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Pop, Electronic>
@@ -647,156 +787,6 @@ MELL - MIRAGE (2010) [FLAC|Lossless]<J-pop, J-Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178327   (352850) от 29.10.2017
-
-VA - NieR: Automata Original Soundtrack (2017) [FLAC 2.0 24/48|Lossless|tracks] <Soundtrack>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 岡部啓一           - 意味_無_ジュニーク・ニコール		[00:02:38]
-02. 岡部啓一           - 遺サレタ場所_斜光			        			[00:06:21]
-03. 岡部啓一	      - 穏ヤカナ眠リ									[00:06:49] (   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 04:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:428DBE6CBAA0FA8C9762588EC0D49B0A0FE9F57B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408287   (352615) от 10.11.2011
-
-Chiyomaru SHIKURA - THE WORKS ~Chiyomaru Shikura Music Collection~: VA (2008-2009) [FLAC|Lossless]<J pop-rock/Game/Anison>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_352615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 追想のディスペア いとうかなこ
-02. 磔のミサ ファンタズム(榊原ゆい)
-03. flower of bravery fripSide
-04. その先にある、谁かの笑顔の为に (   Читать дальше...   )Жанр: J pop-rock/Game/AnisonПродолжительность: 01:09:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577965   (350174) от 21.09.2022
-
-Sigh - Shiki (2022) [FLAC|Lossless|image + .cue] <Avant-garde, Black Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350174.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Kuroi Inori
-2.	Kuroi Kage
-3.	Shoujahitsumetsu
-4.	Shikabane(   Читать дальше...   )Жанр: Avant-garde, Black MetalПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C8AC0E2AD0D825186144CB2CE43594FA554648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407677   (348216) от 12.11.2011
-
-ZONE - 4 albums (2002-2006) Discography [FLAC|Lossless]<J rock,girl.band>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_348216.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. fortune
- 2. mind
- 3. Kaze no hajimaru basho
- 4. Ai hana
- 5. Once Again
- 6. JET
- 7. GO!
- 8. Like
- 9. Kuso to genjitsu no yoake
- 10. ROCKING(   Читать дальше...   )2002-2006Жанр: J Rock,girl.bandПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578210   (347917) от 22.09.2022
-
-Seikima-II - Bloodiest (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Letter From A Dead End
-02. Run Run Run!
-03. Noroi No Syananana
-04. kouryoutarushinsekai(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1A321848CDD2699B31A486DDFFB75E2488C4D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

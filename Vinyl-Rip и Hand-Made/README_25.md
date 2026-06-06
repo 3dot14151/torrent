@@ -1,25 +1,23 @@
-###  Публикация: 686820   (601064) от 06.08.2013
+###  Публикация: 946750   (607458) от 23.04.2022
 
-БГ - Живьем в Темяшкинхолле (1982) [FLAC 2.0 24/192|image (OpenReel-Rip)]<Singer/Songwriter>
+Эдита Пьеха и ансамбль п/у А. Броневицкого - Поёт Эдита Пьеха (1960) [FLAC 2.0 24/48|tracks (Shellac-Rip)]<Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_601064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Стучаться в Двери Травы (3:06)
-02. Опираться о Платан (4:13)
-03. Десять Прекрасных Дам (4:31)
-04. Сторож Сергеев (2:57)(   Читать дальше...   )Жанр: Singer/SongwriterПродолжительность: 01:13:31
+01. Не верю я песне
+02. Упрямая мелодияЖанр: PopПродолжительность: 00:04:06
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:47321DCFF92100F0C1DCB192C08E1FA48E574E34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547993   (601023) от 01.05.2022
+###  Публикация: 942971   (607453) от 23.04.2022
 
-Frankie Laine - Frankie Laine's Greatest Hits (1975) Compilation [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop>
+Валерий Меладзе и группа Мистикана - Live Olimpic Moscow (1997) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Pop-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 I Believe
-A2 Your Cheatin' Heart
-A3 Jalousie
-A4 That's My Desire(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:51
+01.	Увертюра
+02.	Как Ты Красива Сегодня
+03.	Река Времени
+04.	Странница-Осень(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:59:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
+magnet:?xt=urn:btih:6061A21F70283F17B60FCDFB48696300F2ED176D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152515   (599863) от 02.05.2022
+###  Публикация: 844684   (607448) от 23.04.2022
 
-Karat - Schwanenkönig (Schwanenkonig) (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+Glenn Miller And His Orchestra - Glenn Miller Plays Selections From The Glenn Miller Story And Other Hits (Original Recording) (1956) [FLAC 2.0|24/96 (Vinyl Rip)]<Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Tanz Mit Der Sphinx
-A2 Mitternacht-Blues
-A3 Magisches Licht
-A4 Der Boxer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:52
+A1	Moonlight Serenade
+Written-By – Glenn Miller
+A2	American Patrol
+Written-By – Meacham, J. Gray(   Читать дальше...   )Жанр: Jazz/Big BAnd, SwingПродолжительность: 00:46:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C498842D7398C7EAA03C7A1CCE58F37006DACF8
+magnet:?xt=urn:btih:8150C1AF10A4FE3A53FF560DA9DB217CA0F3E2B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150936   (599858) от 02.05.2022
+###  Публикация: 1038521   (606596) от 28.07.2016
 
-Ольга Пирагс - Спасибо, Музыка, Тебе (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+The Traveling Wilburys - The Traveling Wilburys Collection (2007) 3LP Vinyl Boxset, Remastered, Deluxe Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip]<Pop Rock, Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Два Стрижа
-02. По Коням
-03. Дождевые Кольца
-04. Не Забыть Нам(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:37:10
+01. Handle with Care (3:20)
+02. Dirty World (3:30)
+03. Rattled (2:59)
+04. Last Night (3:51)(   Читать дальше...   )Производство: Wilbury Records, Rhino Records - R2 167868Жанр: Pop Rock, Classic RockПродолжительность: 01:39:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C72EBB761AEF6F73201CE9988F99C5CCB97E8FF
+magnet:?xt=urn:btih:D59E7FC728411C25A96B48DACBD0DD5759D573FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152267   (599856) от 02.05.2022
+###  Публикация: 1546483   (606113) от 24.04.2022
 
-P.R. Computer - P.R. Computer (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Electronic, Synth-pop, Modern Classical>
+VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Folk>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Jól Hangolt Computer (Well Tempered Computer)
-A2 Északi Fény (Arctic Light)
-A3 Az Inga (The Pendulum)
-A4 Hajtóvadászat (Chase)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Modern ClassicalПродолжительность: 00:34:57
+01. Хор Московских Студентов - Амурские Волны
+(слова народные)
+Худ. рук. В. Соколов
+02. Хор Московского Городского Управление Трудовых Резервов - Березка(   Читать дальше...   )Жанр: FolkПродолжительность: 00:13:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80BC4B0B34970F0A4D3008032A6FE1F4BCA0A196
+magnet:?xt=urn:btih:C240B8BDB80E89D342FB1C3A1C4F73B7104DCF9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152547   (599584) от 02.05.2022
+###  Публикация: 1059832   (605809) от 24.04.2022
 
-VA - Марк Минков - Парад Планет (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
+Трио Леонида Чижика - Джордж Гершвин: Популярные Мелодии (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Post Bop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-А1 Алла Пугачева - Если звёзды молчат
-А2 Алла Пугачева - На дороге ожидания
-А3 Яак Йоала - Из памяти уходят имена
-А4 Алла Пугачева - Не отрекаются любя(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:37:22
+01. Лебедь
+02. Не Для Меня
+03. Присмотри За Мной, Мой Пастушок
+04. Будьте Добры(   Читать дальше...   )Жанр: Jazz, Post BopПродолжительность: 00:40:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEF68BEEF591E17BF984C46C9DC63AE19769CAB5
+magnet:?xt=urn:btih:2F8FD220B73130F0574CC2BD6F4AE5083DEE0A4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +170,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152314   (599576) от 02.05.2022
+###  Публикация: 1059823   (605808) от 24.04.2022
 
-Ricchi E Poveri - Богатые и Бедные (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+Sy Oliver/Сай Оливер - Только Для Танцоров (1990) Переписи с пластинок 1940-х годов [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Мама Мария · Mamma Maria
-A2 Бедные · Poveri
-A3 Чудесный Вечер · Magnifica Serata
-A4 Недоразумение · Malinteso(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:50
+01. Только Для Танцоров
+02. Четыре Или Пять Раз
+03. Ничего, Кроме Любви
+04. Шарманщик(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:44:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75CB0D755309422EF95806E839EEE2273AAECDB7
+magnet:?xt=urn:btih:E54A5A8CB9938DBFD862DCBF68C914F74853E951
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,27 +199,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548628   (598193) от 03.05.2022
+###  Публикация: 1059782   (605675) от 24.04.2022
 
-Triosphere - Studio Albums (3 releases) (2006-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
+Олег Газманов, Родион Газманов - Эскадрон (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Triosphere — норвежская Power/Progressive Metal группа из Тронхейма, созданная в 2004 году вокалисткой и басисткой Идой Хаукланд и гитаристом Мариусом Сильвером Бергесеном.2006 - Onwards
-2010 - The Road Less Travelled
-2014 - The Heart of the MatterЖанр: Power/Progressive MetalПродолжительность: 02:54:50
+A1 Эскадрон
+A2 Свежий Ветер
+A3 Есаул
+A4 Путана(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6D71D32F46155D77744B0DB554E85F5A157A2AE
+magnet:?xt=urn:btih:E58CD0C02A4F4A8AECE95C3A27EBE9158D999559
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +228,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039077   (597791) от 31.07.2016
+###  Публикация: 1059562   (605672) от 24.04.2022
 
-Ленинградский Ансамбль Джазовой Музыки п/у Д. Голощекина - 15 Лет Спустя (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
+Вальдо де лос Риос (Waldo De Los Rios) - Волшебная Музыка (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Easy Listening,  Romantic>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Приятным Звуком
-02. Я Люблю Тебя, Порги
-03. Это Могло Случиться С Тобой
-04. Мне Бы Полюбить Тебя(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:31
+A1 Все Говорят · Everybody's Talkin'
+A2 Жан · Jean
+A3 Капли Дождя Продолжают Падать На Мою Голову · Unas Gotas De Lluvia Sobre Mi Cabeza
+A4 Химена · Jimena(   Читать дальше...   )Жанр: Easy Listening,  RomanticПродолжительность: 00:33:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58444272C6F14D7C056D84BCD585DA3887E4694F
+magnet:?xt=urn:btih:0498125CF5859DAA37F01F967D1187657E18F26C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162379   (597751) от 03.05.2022
+###  Публикация: 1546722   (604588) от 25.04.2022
 
-Pat Boone · Пэт Бун - April Love · Любовь В Апреле (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+Ольга Вардашева и Людмила Невзгляд - Холодный Вечер (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604588.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Любовные Письма На Песке
-02. Звездная Пыль
-03. Они Не Могут Взять Это У Меня
-04. Бернадина(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:36:36
+01. Холодный Вечер
+(А. Морозов, обработка В. Литвиненко - М. Рябинин)
+02. Как Забыть Тебя
+(музыка и слова В. Литвиненко)(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
+magnet:?xt=urn:btih:F7F38F28C330AEAE26BED0BF0C52988A91D6394A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +286,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039176   (597630) от 31.07.2016
+###  Публикация: 1546708   (604420) от 25.04.2022
 
-Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image|Vinyl-Rip]<Album Rock>
+Акварели - Рыжее Лето (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Every Little Thing (3:45)
- 02. Don't Let Go (3:02)
- 03. Lift Me Up (3:38)
- 04. Nobody Home (3:54)(   Читать дальше...   )Жанр: Album RockПродолжительность: 00:37:04
+01. Рыжее Лето
+(Ю. Антонов - Л. Дербенёв)
+02. Потеряешь — Я Найду
+(Ю. Саульский - В. Харитонов)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9B40376CB55FF08130DE88DC89A60AF3D1DFBA2
+magnet:?xt=urn:btih:ECD25BA8D42890F5564D5324E60A5077B89E5F4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +315,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171052   (597590) от 03.05.2022
+###  Публикация: 1546695   (604322) от 25.04.2022
 
-VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
+Поют ВИА «Веселые Ребята», «Метроном», «Орфей», «Здравствуй, Песня» (1979) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Modjo - Lady (Hear Me Tonight)
-02. Spiller - Groovejet (If This Ain't Love) (Radio Edit)
-03. Billie Piper - Day & Night
-04. Camilla Brinck - Bye Bye forever(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:28
+01. Веселые Ребята - Ветер Шумит
+(Р. Майоров – А. Монастырев, О. Писаржевская)
+02. Метроном - Все Будет
+(Р. Майоров – В. Харитонов)(   Читать дальше...   )Жанр: PopПродолжительность: 00:11:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
+magnet:?xt=urn:btih:BB41BBF4B261DDD2E9860AAE102F6BE5445ADFA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +344,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162073   (597588) от 03.05.2022
+###  Публикация: 1296681   (604066) от 22.04.2019
 
-Argo/ Арго - Discophonia/Дискофония (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
+Steps - Step One (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Europop, Euro House>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 A1
-A2 A2
-A3 A3
-A4 A4(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:54
+A1 Steptro
+A2 Last Thing On My Mind
+A3 5,6,7,8
+A4 One For Sorrow(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 00:44:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC5137EDBBB84445E7956DAAAABB28F35A3E8041
+magnet:?xt=urn:btih:23CA163EA6D6E4DDC4AD2742BFB805C6D61DD4A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +373,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172599   (597582) от 03.05.2022
+###  Публикация: 1297237   (604035) от 22.04.2019
 
-VA - Heavenly Bodies: Original Motion Picture Soundtrack (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock, Soundtrack>
+Владимир Кузьмин - Звёздная Коллекция (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Soft Rock, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Bonnie Pointer - The Best In Me
-A2 Sparks - Breaking Out Of Prison
-A3 The Tubes - Out Of Control
-A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, SoundtrackПродолжительность: 00:38:25
+Сторона А:
+01. Пороги
+02. Я не забуду тебя (Сибирские морозы)
+03. Когда меня ты позовёшь(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:10:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
+magnet:?xt=urn:btih:8C9FC68084896F933C1152CA4D25072D23287B29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +402,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314976   (597581) от 03.05.2022
+###  Публикация: 1089383   (603217) от 27.04.2022
 
-Middle Of The Road - It's the Middle Of The Road (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop-Rock>
+VA - RETROспектива, часть II: Эстрадные оркестры II (1937-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side 1:
-01. Yellow Boomerang
-02. Universal Man
-03. See The Sky(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:39
+01. Инструментальный секстет - Тополь (медленный вальс)
+02. Инструментальный секстет - Цветущий май (фокстрот)
+03. Венгерский джаз-секстет п.у. Т. Балаша - Чай вдвоем (румба)
+04. Венгерский джаз-секстет п.у. Т. Балаша - Серебряная гитара (танго)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
+magnet:?xt=urn:btih:64CDE915717A0E4E70712072D67FB8BAD86BF598
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,56 +431,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039325   (597369) от 31.07.2016
+###  Публикация: 1297720   (603074) от 24.04.2019
 
-Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On Ridin' (3:43)
-02. Flyin' High (3:20)
-03. Roller (4:41)
-04. Free 'n' Easy (3:06)(   Читать дальше...   )Производство: Bronze Records, EMI-Toshiba - WBS-71017Жанр: Hard RockПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDFFC492D13357BC3A0CEF1CB27C731BA894362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299572   (595897) от 03.05.2019
-
-ZZ Top - Hit Collection 2000 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Texas Blues>
+Michael Jackson - Blood On The Dance Floor. HIStory In The Mix (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Hip Hop, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603074.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Side A:
-01. My Mind is Gone
-02. Just Got PaidЖанр: Blues Rock, Texas BluesПродолжительность: 01:17:37
+01. Blood On The Dance Floor
+02. Morphine
+03. Superfly Sister(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 01:16:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA9BC1DE0C466BC3F64B5398EDB5229BC15D7852
+magnet:?xt=urn:btih:055C536E63D35F4664ADD40727E1030D19E3D026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,28 +460,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039541   (594676) от 02.08.2016
+###  Публикация: 1297746   (603066) от 24.04.2019
 
-VA - Famous Jazz Pianists/Знаменити Джаз Пианисти (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
+Rainbow - Ballads (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Bill Evans - Време За Любов (Time For Love)
-A2 Art Tatum - Блус В Сърцето Ми (Blues In My Heart)
-A3 Bill Evans - Среднощно Настроение (Midnight Mood)
-A4 Art Tatum - Хумореска (Humoresque)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:38:22
+Side A:
+01. Cath The Rainbow
+02. Maybe Next Time
+03. Tearin' Out My Heart(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DABD8BC7D5A01F33BC91F52D3EAD1DEA6C0C8E2E
+magnet:?xt=urn:btih:63C363EDBC6FB7F794D9E001C20555E7E031C2BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +489,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210967   (594606) от 05.05.2022
+###  Публикация: 1297726   (603054) от 24.04.2019
 
-Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
+Guns'N'Roses - The Ballads (1992) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Я напишу письмо
-02. Играйте простую мелодию
-03. Однажды летним днем
-(И. Берлин)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:34
+Side A:
+01. Don't Cry
+02. Patience
+03. November Rain(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
+magnet:?xt=urn:btih:4A2EE2D772F394935C13F2D352C86BC1C0D8BB95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,28 +518,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039533   (594577) от 02.08.2016
+###  Публикация: 1547522   (602418) от 29.04.2022
 
-VA - Famous Jazz Singers/Знаменитые Джазовые Вокалистки (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Soul-Jazz, Smooth Jazz, Jazz-Funk>
+Форум - Три альбома (1987-1992) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Synth-pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Dinah Washington - Willow, Weep For Me
-A2 Ella Fitzgerald - April In Paris
-A3 Nancy Wilson - The Boy From Ipanema
-A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: Soul-Jazz, Smooth Jazz, Jazz-FunkПродолжительность: 00:35:45
+A1 Зови Меня, Иди Ко Мне
+(В. Сайко – Л. Виноградова)
+A2 Серые Глаза
+(В. Сайко – Д. Панфилов)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:56:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
+magnet:?xt=urn:btih:7CCDA5F64130E86C81410FDC4D0186C4D0B7964D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,28 +547,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039535   (594568) от 02.08.2016
+###  Публикация: 1547836   (602027) от 30.04.2022
 
-VA - Famous Jazz Singers/Знаменитые Джазовые Вокалисты (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Smooth Jazz, Jazz-Funk, Swing>
+Оризонт - Между Нами Снег (1984) ЕР [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Louis Armstrong - I Get A Kick Out Of You
-A2 Nat King Cole - Stardust
-A3 Frank Sinatra - I've Got You Under My Skin
-A4 Tony Bennett - I've Grown Accustomed To Her Face(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, SwingПродолжительность: 00:36:35
+01. Между Нами Снег
+(В. Шаинский - С. Алиханов, А. Жигарев)
+02. Песня Куклы
+(В. Шаинский - С. Алиханов, А. Жигарев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C9C3382778439949BC6EDAB0034DD6BE31F43BB
+magnet:?xt=urn:btih:6727DDBAB1C47846FA52E37E23D51591DA2BD391
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +576,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039556   (594516) от 02.08.2016
+###  Публикация: 1547850   (602019) от 30.04.2022
 
-Московский Диксиленд "Капелла Дикси" (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixieland>
+Людмила Сенчина - Аист На Крыше (1986) ЕР [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Олимпийский Сувенир
-02. Негритянская Песня
-03. Две Забытые Мелодии
-04. В Раздумье(   Читать дальше...   )Жанр: Jazz, DixielandПродолжительность: 00:40:33
+01. Бумажный Cамолетик
+(В. Севастьянов – А. Римицан)
+02. Сновидение
+(Л. Доброва – Н. Денисов)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:11:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0C29062D77F0B1F8A3577109D6BD00F8AF65079
+magnet:?xt=urn:btih:03BADACA99BB5CB1DF36ABC97B831A628AE4F280
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,28 +605,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039521   (594514) от 02.08.2016
+###  Публикация: 1127112   (601971) от 30.04.2022
 
-Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
+VA - RETROспектива, часть XVIII. Зарубежные исполнители II (1930-1969) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-А1 Тайна (Mystery)
-А2 Посвящение Махавшину (Dedication To Mahavishnu)
-В1 Свет На Пути (Light On The Way)
-В2 Сюита В Фа Миноре (Suite In F Minor)Жанр: Jazz, FusionПродолжительность: 00:34:01
+01. Анс. ''Филипинки'' (Польша) - Пити-пити
+02. Вок. дуэт "Сестры Пинац" (Япония) - Кусочек счастья
+03. Пилар и Элен Гарсиа (Испаия) - Девушка из Малаги
+04. Гуальтиеро Мизиано (Италия) - Душа и сердце(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:57:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
+magnet:?xt=urn:btih:64E0A7817962C1675FCE0D75B0081BAF5343C3F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +634,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 806923   (594171) от 22.07.2014
+###  Публикация: 1127117   (601967) от 30.04.2022
 
-Van Halen - 1984 (1984)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+VA - RETROспектива, часть XIX. Зарубежные исполнители III (1930-1969) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. 1984 (1:07)
-A2. Jump (4:04)
-A3. Panama (3:33)
-A4. Top Jimmy (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:20
+01. Лолита Торрес (Аргентина) - Страдания любви (самба-песня)
+02. Гуальтиеро Мизиано (Италия) - Огненная луна
+03. Пилар и Элена Гарсиа (Испания) - Колумбина
+04. Жижи Марга (Румыния) - Это прекрасно (фокстрот)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:56:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
+magnet:?xt=urn:btih:081C4F9BBCD987819C2DA407F4F31920DDF4EBEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +663,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150247   (594036) от 15.07.2017
+###  Публикация: 1134776   (601963) от 30.04.2022
 
-VA - Песни На Стихи Андрея Вознесенского (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Rock>
+VA - RETROспектива часть XX. Зарубежные исполнители IV (1955-1962) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Николай Гнатюк - Танец На Барабане
-A2 Ольга Пирак - Два Стрижа
-A3 Петер Тилс - Белый Шиповник
-A4 Яак Йоала - Подберу Музыку(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:25
+01. Джика Петреску (Румыния) - Тебя я полюбил, Москва
+02. Джика Петреску (Румыния) -Я тебя люблю (на румынском языке)
+03. Виктор Симон (Бразилия) - Карнавал в Рио (на португальском языке)
+04. Виктор Симон (Бразилия) - Площадка в Яйя (на португальском языке)(   Читать дальше...   )Жанр: Pop, Retro
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
+magnet:?xt=urn:btih:BE66C27B17D5DF7B2609ED8FC6E6497062986E66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -721,28 +692,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548801   (593957) от 06.05.2022
+###  Публикация: 1122116   (601962) от 30.04.2022
 
-The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+VA - Мелодии экрана, 9 серия (1962) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 It's The Talk Of The Town
-A2 You're An Old Smoothie
-A3 Buttons And Bows
-A4 Let's Put Out The Lights (And Go To Sleep)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:29:05
+01. Вокальный квартет - Песня подруг (из к.ф. ''Девчата'')
+02. Люсьена Овчинникова и Николай Погодин - Старый клён (из к.ф. ''Девчата'')
+03. Оркестр - Липси (из к.ф. ''Озорные повороты'')
+04. Майя Кристалинская - Позови меня (из к.ф. ''Мальчик мой'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:30:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
+magnet:?xt=urn:btih:3C871B9FA6E8EE259BECE614FB616DC4419B1FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126527   (601959) от 30.04.2022
+
+VA - RETROспектива, часть XVII. Зарубежные исполнители I (1939-1967) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анс. "Филипинки" - Валентина
+02. Пиляр и Элена Гарсия - Пичирильо
+03. Предраг Гойкович - Маленькая девочка
+04. Луиджи Ионеско - Тюльпаны(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FD43E55A64EF0B77E42C5304BA11003F404DF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

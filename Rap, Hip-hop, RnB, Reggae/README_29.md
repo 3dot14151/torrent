@@ -1,3 +1,61 @@
+###  Публикация: 1617208   (201673) от 07.03.2023
+
+Элджей - SAYONARA Боль (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Окошки
+02. Punks Not Dead
+03. Алка-зельтцер
+04. Sayonara bоль(   Читать дальше...   )Жанр: Рэп, Rap, Hip-HopПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F52403E3801EBB3447A7BCAC8872951A0F8528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620923   (200981) от 22.03.2023
+
+Sam Smith - Gloria (2023) [FLAC|Lossless|tracks + .cue] <Contemporary R&B, Vocal>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me More (03:23)
+02. No God (03:17)
+03. Hurting Interlude (00:18)
+04. Lose You (03:10)(   Читать дальше...   )Жанр: Contemporary R&B, VocalПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4216BA4CF3787BDF69B0C20DFC25B6A0F4FAE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 83256   (200328) от 03.04.2023
 
 Т9 - Вдох - Выдох (2008) [MP3|320 kbps]<Hip-Hop|R`N`B>
@@ -20,32 +78,6 @@
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B4ABBE43016F205B6035C87EE0225E622858F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626931   (199754) от 16.04.2023
-
-Noize MC - Кооператив «Лебединое озеро» (2023) Single [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кооператив «Лебединое озеро»Жанр: Rap, Hip-HopПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BEC50BBA610630B16D92AFBB538334FBFF9CC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,35 +368,6 @@ Don Letts - Outta Sync (2023) [MP3|320 Kbps] <Dub Reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98CADE9FE5AB0AB1A9373BE56D914C5A3DA8B297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665124   (183132) от 29.09.2023
-
-The Brand New Heavies - Never Stop... The Best of (2023) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <R&B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Never Stop (Single Radio Edit) (3:35)
-02. Dream Come True (Dave Lee Mix) (3:34)
-03. Got to Give (4:28)(   Читать дальше...   )Жанр: R&BПродолжительность: 02:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23879C2AAA9C51782C86D00692599D20F96C6B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

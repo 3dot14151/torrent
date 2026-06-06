@@ -1,3 +1,87 @@
+###  Публикация: 1531583   (666281) от 17.03.2022
+
+Microsoft Windows 10.0.19044.1526, Version 21H2 (Updated February 2022)  - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
+
+Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1526.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1072D6799297A0965099DEB5E7F15DA853296461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537780   (665112) от 18.03.2022
+
+Microsoft Windows 10.0.19044.1586 Professional Version 21H2 (Updated March 2022) x64 by SLMP [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ созданный на основе открытого (на GitHub) ответвления проекта SLMP: Windows 10 DISM Scripts. Оптимизация образа путем удаления предустановленных пакетов программ-мусора, отключение задач обновления, отключение Защитника и другие мелкие изменения. Все это производится стандартными средствами (командами DISM, запросами CMD и изменением ключей реестра).Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446595EE116AEF57959E800B2BED4FACE92DB89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903154   (658414) от 30.05.2015
+
+Recovery USB-Flash for Lenovo Z5070 / Windows 8.1 (х64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658414.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Lenovo_Z5070_W81.tib,
+записанный на ноутбуке Ideapad Z5070 (59421881) с помощью программы Windows Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления системы к заводским настройкамЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CC6A3CBE3D393367E106A14F3B723BEEC90FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 336952   (657452) от 28.05.2011
 
 Microsoft Windows 7 SP1 Updated (12.05.2011) - Оригинальные образы от Microsoft MSDN [Ukrainian]
@@ -611,85 +695,6 @@ Microsoft Windows Server 2012 R2 Essentials with Update 3 - Оригинальн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03D287B5B9E5B330B8EEE3C7D1D56F47449C4685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916656   (590254) от 09.07.2015
-
-Microsoft Windows XP Home with Service Pack 3 - Оригинальные образы от Microsoft MSDN [Multi/Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows XP Home являясь самой лучшей платформой для работы с цифровыми мультимедийными материалами, является наиболее удачным выбором для пользователей домашних компьютеров и любителей компьютерных игр.
-Поддержка данного программного обеспечения закончилась 8 апреля 2014 года.Язык интерфейса: Русский, Английский и другие (Multi26)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A280CFB8B76B0A543F56564A481B336A55A49D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916694   (590251) от 09.07.2015
-
-Microsoft Windows XP Professional with Service Pack 3 - Оригинальные образы от Microsoft MSDN [Multi/Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows XP Professional создана на основе программного ядра, которое использовалось в операционных системах Windows 2000 и Windows NT Workstation. Это ядро, которое называется ядром NT, позволило сделать операционную систему XP более эффективной, безопасной та стабильной по сравнению с системами Windows Me, Windows 98 и Windows 95. Пользователи, которые раньше работали (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие (Multi26)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAE172DF9716629FDF213501E1E13A063C7DACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916740   (590250) от 09.07.2015
-
-Microsoft Windows XP Professional VL with Service Pack 3 - Оригинальные образы от Microsoft MSDN [Multi/Ru] (26хCD)
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows XP Professional создана на основе программного ядра, которое использовалось в операционных системах Windows 2000 и Windows NT Workstation. Это ядро, которое называется ядром NT, позволило сделать операционную систему XP более эффективной, безопасной та стабильной по сравнению с системами Windows Me, Windows 98 и Windows 95. Пользователи, которые раньше работали (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие (Multi26)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE6F5DB27B8D716F638D60AF5694900CBBA0C64
 ```
 
 https://mybot314.ru/tekegram_catalog/

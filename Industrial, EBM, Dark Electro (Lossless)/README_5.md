@@ -57,6 +57,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334344   (296817) от 28.10.2019
+
+IDK (Daniel Myer) - IDK ONE (2019) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Industrial, Techno, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BeLow (05:01)
+ 02. kS 1 (06:08)
+ 03. dEsTroy tO cReAte (05:07)
+ 04. miNd fuCk (04:53)(   Читать дальше...   )Жанр: Breaks, Industrial, Techno, ExperimentalПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6795D4296EF0C8F69AC943D8B6B3102DC4A0654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265885   (273023) от 29.11.2018
 
 Wychdoktor - Hexen (2015) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Dark Ambient, Tribal, Rhythmic Noise>
@@ -722,35 +751,6 @@ Recite The Cynic - Recite The Cynic (2023) [FLAC|Lossless|WEB-DL|tracks] <Indust
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CCEB293ACEF6FFC7DC2B59791BBF5E3B05C1FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637292   (230817) от 04.06.2023
-
-Stahlnebel & Black Selket - Time Between Passion & Despair (2019) Limited Edition [FLAC|Lossless|image + .cue] <EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breed My Hate
-02. Deeper
-03. A Fatal Desire (Hocico Cover)
-04. Pädophilie(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB8F19BFEE68CC47E1239A24AC7B15EA9D85EC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

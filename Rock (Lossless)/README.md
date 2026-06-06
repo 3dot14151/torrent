@@ -1,5 +1,208 @@
 https://t.me/izofen
-###  Публикация: 1872025   (1070201) от 
+###  Публикация: 1874819   (1072169) от 
+
+David Baerwald - Triage (1992) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Secret Silken World (7:43)
+02. The Got No Shotgun Hydrahead Octopus Blues (4:27)
+03. Nobody (4:34)
+04. The Waiter (5:03)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFDA4A0DFF84855B916B5E54F0A550C35481CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874373   (1071898) от 02.06.2026
+
+King Crimson - Lizard (1970) Reissue [FLAC|Lossless|image + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Cirkus (Including Entry Of The Chameleons)	6:28
+2		Indoor Games	5:41
+3		Happy Family	4:16
+4		Lady Of The Dancing Water	2:44(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194530B49307132B4DA147362BE7296DF30A867C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874018   (1071528) от 02.06.2026
+
+Paul McCartney - The Boys of Dungeon Lane (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As You Lie There(4:45)
+02. Lost Horizon(3:04)
+03. Days We Left Behind(3:18)
+04. Ripples in a Pond(2:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178A1C79A130CE7984B5F0B2841FA32D75D2BFC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873782   (1071499) от 30.05.2026
+
+Lynyrd Skynyrd - The Best Of Lynyrd Skynyrd (1999) Compilation, Reissue, Remastered [FLAC|Lossless|image + .cue] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Home Alabama (4:46)
+02. Whats Your Name (3:33)
+03. Gimmie Three Steps (4:32)
+04. Double Trouble (2:51)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D432898B73C40408C7ABBD23FE5A2B86C350F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873794   (1071409) от 29.05.2026
+
+Shinedown - EI8HT (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At The Bottom(3:49)
+02. Dance, Kid, Dance(3:33)
+03. Burning Down The Disco(2:51)
+04. Three Six Five(3:40)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833FDBAC506CF0ACCE1D015011A45F0A0C2DAB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872693   (1070793) от 24.05.2026
+
+Big & Rich - Comin' To Your City (2005) [FLAC|Lossless|image + .cue] <Rock, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Freak Parade (1:09)
+02. Comin' to Your City (3:28)
+03. Soul Shaker (3:06)
+04. Never Mind Me (3:27)(   Читать дальше...   )Жанр: Rock, CountryПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7F0195351D02E9C3CF1E950CA08826EC7E31A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872889   (1070655) от 25.05.2026
+
+John Schumann - Portrait (The Very Best of John Schumann) (2003) Compilation [FLAC|Lossless|image + .cue] <Rock, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Only 19 (A Walk In The Light Green) (4:19)
+02. Borrowed Ground (4:24)
+03. Holy Mary (5:30)
+04. Thunder Across The Reef (4:34)(   Читать дальше...   )Жанр: Rock, CountryПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F462635355A02CA55B2401CEB4F30FBBD8478BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872025   (1070201) от 20.05.2026
 
 Pulp - Freaks (1987) Reissue, 1993, Fire Records [FLAC|Lossless|image + .cue] <Rock, New Wave>
 
@@ -28,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872023   (1070199) от 
+###  Публикация: 1872023   (1070199) от 20.05.2026
 
 The President - 2 Albums (1983-1985) Remaster 2024 [FLAC|Lossless|tracks + .cue, tracks] <Westcoast>
 
@@ -57,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872188   (1070150) от 
+###  Публикация: 1872188   (1070150) от 21.05.2026
 
 Yungblud - Idols Complete (2026) [FLAC|Lossless|image + .cue] <Alternative Rock, Pop Rock>
 
@@ -86,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871629   (1070052) от 
+###  Публикация: 1871629   (1070052) от 17.05.2026
 
 Frontline - Rebirth (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 
@@ -115,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871611   (1070011) от 
+###  Публикация: 1871611   (1070011) от 18.05.2026
 
 Roy Orbison - In Dreams: Greatest Hits (1996) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Pop Rock, Classic Rock>
 
@@ -144,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871636   (1070010) от 
+###  Публикация: 1871636   (1070010) от 18.05.2026
 
 VA - 1990's Rock (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 
@@ -173,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871800   (1069930) от 
+###  Публикация: 1871800   (1069930) от 18.05.2026
 
 Riffstone - Mythical Creatures (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
@@ -202,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871991   (1069788) от 
+###  Публикация: 1871991   (1069788) от 20.05.2026
 
 Jethro Tull - Under Wraps (2026) [FLAC|Lossless|image + .cue] <Rock>
 
@@ -231,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870761   (1069300) от 
+###  Публикация: 1870761   (1069300) от 15.05.2026
 
 Barenaked Ladies - Disc One: All Their Greatest Hits (1991-2001) (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
 
@@ -260,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869561   (1069174) от 
+###  Публикация: 1869561   (1069174) от 11.05.2026
 
 Jane Wiedlin - Tangled (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
 
@@ -289,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870254   (1069173) от 
+###  Публикация: 1870254   (1069173) от 11.05.2026
 
 Return - Fourplay (1991) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 
@@ -318,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870276   (1069172) от 
+###  Публикация: 1870276   (1069172) от 11.05.2026
 
 Rush of Fools - We Once Were (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
 
@@ -543,209 +746,6 @@ Blondie - Greatest Hits: Deluxe Redux / Ghosts of Download - 2014, FLAC (tracks+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F50508E58DD7A062746F4C0F2656CE3713551C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867449   (1066839) от 26.04.2026
-
-Marianne Faithfull - Broken English (1979) Reissue, Remastered, 1999, Island Records [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066839.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Broken English 4:35
-2		Witches' Song 4:44
-3		Brain Drain 4:12
-4		Guilt 5:00(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DDF2D1075F1ED0B86A112B44781E6E1B95C49B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867616   (1066837) от 26.04.2026
-
-All About Eve - Scarlet and Other Stories (1989) [FLAC|Lossless|image + .cue] <Folk Rock, Alternative Rock, Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066837.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Road To Your Soul	5:20
-2		Dream Now	3:07
-3		Gold And Silver 3:59
-4		Scarlet	3:48(   Читать дальше...   )Жанр: Folk Rock, Alternative Rock, Goth RockПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6450C3A03C2BB8086B829E2A49DBE67AD63ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866991   (1066594) от 
-
-The Shadows - At Their Very Best (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066594.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Apache	2:57
-2		Man Of Mystery	1:59
-3		Shindig	2:18
-4		Wonderful Land	2:16(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C23BDF3370B4BE1EB44E710EFC9B52B78C504BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866575   (1066439) от 22.04.2026
-
-Looking Glass - Brandy (You're A Fine Girl) (1997) Compilation [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066439.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brandy (You're A Fine Girl)	3:07
-2. Jimmy Loves Mary-Anne	3:24
-3. Highway To Hollywood	2:57
-4. Are You Dreamin' (Money In My Pocket)	2:59(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13C49B15B7B37B8B29A3BD2A4E8470855F24B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866752   (1066241) от 21.04.2026
-
-Emmylou Harris - The Ballad Of Sally Rose (1985) [FLAC|Lossless|image + .cue] <Folk, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066241.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		The Ballad Of Sally Rose 2:47
-2		Rhythm Guitar 3:19
-3		I Think I Love Him/You Are My Flower 1:16
-4		Heart To Heart 2:27(   Читать дальше...   )Жанр: Folk, Country RockПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392624587C2ADC0BA039B154EF4B199C63C09601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865855   (1065889) от 
-
-David Foster - David Foster (1986) [FLAC|Lossless|image + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065889.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Love Theme From St. Elmo's Fire (Instrumental)	3:33
-2		Theme From The Color Purple (Mailbox / Proud Theme)	3:48
-3		Flight Of The Snowbirds	5:28
-4		All That My Heart Can Hold	3:43(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F307C443BA6299635796FED612151E6EAD282D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866091   (1065846) от 19.04.2026
-
-Emmylou Harris - Elite Hotel (1975) Reissue, Remastered, 2014, Reprise Records [FLAC|Lossless|image + .cue] <Country Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065846.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Amarillo 3:05
-2		Together Again 3:56
-3		Feelin' Single- Seein' Double 2:34
-4		Sin City 3:57(   Читать дальше...   )Жанр: Country Rock, FolkПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C68BBD0B214C04F1A590228D8286FFADE6D15FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

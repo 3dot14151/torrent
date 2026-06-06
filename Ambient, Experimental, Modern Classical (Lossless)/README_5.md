@@ -1,3 +1,32 @@
+###  Публикация: 1379680   (837701) от 30.04.2020
+
+Juta Takahashi - Collection 7 Releases (2007-2019) Lunisolar Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pleochroism (14:22)
+ 02. Faint Light (10:54)
+ 03. Pleochroism 2 (20:50)
+ 04. Soarer (15:54)Тип издания: CD, WebЖанр: AmbientПродолжительность: 06:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F180D3EDC728550786B3A9F36228F80D81149B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038936   (830769) от 04.05.2020
 
 Massimo Magrini (Bad Sector, Olhon) - Discography 46 Releases (1995-2019) [FLAC|Lossless|tracks+.cue, tracks] <Dark Ambient, Industrial, Experimental, Noise, Ambient>
@@ -711,35 +740,6 @@ Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201964   (791019) от 27.01.2018
-
-Brambles - Charcoal (Special Edition) (2014) Serein [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Speak Of Solitude (04:21)
-02. Such Owls As You (05:30)
-03. In The Androgynous Dark (04:43)
-04. Salt Photographs (06:54)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AF81D59D2986598855FDA6A72AE161FE9FDAD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

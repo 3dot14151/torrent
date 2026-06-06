@@ -1,25 +1,22 @@
-###  Публикация: 1436766   (1042822) от 02.01.2021
+###  Публикация: 1605044   (1045102) от 16.01.2023
 
-Project  Wreckless - We Are Wreckless (2020) [MP3|320 Kbps] <Thrash Metal>
+Magic Disk Cleaner 1.3.3 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Incoming...Wreckless [00:04:59]
-02 Forever Blind [00:04:18]
-03 Edge of the Knife [00:05:03]
-04 One Way Down [00:05:09](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:01
+Magic Disk Cleaner находит и удаляет временные файлы, которые занимают много места. Приложение работает молниеносно и мгновенно освобождает место на диске.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2023Разработчик: © 2022-2023 Sascha SimonПоддерживаемая ОС: macOS 11.5 и вышеЯзык интерфейса: Английский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44CC46D1F8D47CE6EA89620F3088CF13F731E2D9
+magnet:?xt=urn:btih:DBF0F489142D4E5E866673509691BBB07FB250D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,267 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436826   (1042821) от 02.01.2021
+###  Публикация: 1605101   (1045101) от 16.01.2023
 
-Enrico Rava - Noir (1996) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
+FigrCollage Pro 3.3.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045101.jpg" />
+</div>
+
+
+###  Подробнее
+
+FigrCollage - программа для создания удивительных композиций, коллажей и мозаик, из любых цифровых изображений и текста. Приложение поддерживает обработку изображений в форматах JPG, PNG, TIFF, и дает возможность сохранять готовые файлы в высоком качестве.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2023Разработчик: © 2022 SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E843DA9507022163E96F1749B7F50BF8EF6EBF42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605100   (1045100) от 16.01.2023
+
+FonePaw Data Recovery 3.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045100.jpg" />
+</div>
+
+
+###  Подробнее
+
+FonePaw Data Recovery - профессиональный мастер восстановления данных. Быстрое и глубокое сканирование вашего компьютера для извлечения удаленных изображений, видео, аудио, электронных писем, документов и прочего с жестких дисков (включая корзину) на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2023Разработчик: © 2014 - 2023 FonePaw Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850B5AC74B3DCF92E9F4BBB4187A0E73BEFCF70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605083   (1045099) от 16.01.2023
+
+Timecode Pro 3.2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timecode — самый привлекательный калькулятор тайм-кода на рынке. Это единственный профессиональный выбор для выполнения быстрых и сверхточных расчетов тайм-кода и преобразования единиц измерения пленки.
+Используя Timecode, вы можете рассчитать и преобразовать любой тайм-код в любой другой или единицу измерения одним нажатием кнопки. Timecode отображает четыре настраиваемых (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2023Разработчик: © 2021 DesignThinkПоддерживаемая ОС: macOS 11.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244F3B6414614766CBE07F10646487249343D18C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605158   (1045098) от 16.01.2023
+
+eBookBinder 1.12.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045098.jpg" />
+</div>
+
+
+###  Подробнее
+
+eBookBinder - это супер простой инструмент для создания собственных электронных книг с использованием существующих документов. При компиляции проекта книги eBookBinder создает файл *epub.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2023Разработчик: © Xelaton SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F69C247C0AB40C9EDA7D514EBCE1DB8A2C863F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605038   (1045097) от 16.01.2023
+
+Grids for Instagram 8.3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grids переносит лучшее из Instagram на ваш Mac. Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2023Разработчик: © 2017 ThinkTime CreationsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E830DE76D23AC58548606F9868BBE2B57779149E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605063   (1045096) от 16.01.2023
+
+PullTube 1.8.4.20 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2023Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326090FA979B98B58D936FAB5D1A9E6C1CE0796F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605145   (1045095) от 16.01.2023
+
+Mp3tag 1.7.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mp3tag - мощный и простой в использовании инструмент для редактирования метаданных аудиофайлов. Музыканты, ди-джеи, подкастеры и аудиоэнтузиасты используют его для множества различных аспектов обработки аудиофайлов.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2023Разработчик: © 2021-2022 Florian HeidenreichПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5502E45ECE5086C0F969D2D71314250234C8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605082   (1045094) от 16.01.2023
+
+Soulver 3 v.3.7.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего Excel много, а калькулятора мало или неудобно. Понимает цифры вперемешку со словами, не нужно жать «равно», может отнять 100 евро от тысячи долларов и поделить на троих.
+Имея простой и понятный интерфейс, рабочее окно приложения состоит всего из двух частей. В левой части записываются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2023Разработчик: © 2023, Acqualia Software OÜПоддерживаемая ОС: macOS X 10.14.4+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466268B8C507B252D036D4DE986758A19395EB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604991   (1045093) от 16.01.2023
+
+Dismal - Via Entis (2023) [MP3|320 Kbps] <Dark Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To The Emerald Forest 05:02
+02. White Elixir & Red Elixir 06:26
+03. All Is One 05:43
+04. The Alchemist At The King's Cou 05:17(   Читать дальше...   )Жанр: Neoclassical, Gothic RockПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49244D483E571CF3EF435E65CDE4F5872826BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604985   (1045092) от 16.01.2023
+
+Dany Doriz & Michel Pastre - Fathers & Sons: The Lionel Hampton/Illinois Jacquet Ceremony (2022) Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 3.17 AM [5:00]
-02. Tango for Vasquez & Pepita [4:23]
-03. Garbage Can Blues [6:55]
-04. Jazz at the Club Club [3:53](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:52:26
+01. The Chase [4:56]
+02. Stolen Sweets [5:01]
+03. Vibes Boogie/Gaby's Gabbin (Medley) [4:32]
+04. Bottoms Up [5:09](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:09:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A657F74BD9AF8BD2C703EB46E4C2CF9D559AC240
+magnet:?xt=urn:btih:FE19B76570E4EF9C89527D1E8E9602B9610CB4EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,27 +292,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436934   (1042820) от 02.01.2021
+###  Публикация: 1605020   (1045091) от 16.01.2023
 
-Татьяна Комзалова | Читаем сами. Новогодний почтальон (2018) [PDF]
+Apeaksoft iPhone Eraser 1.0.10 [Multi]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Случалось ли вам замечать интересную особенность: живешь целый год, и все дни похожи один на другой, но как только приближается новогодняя ночь, начинают происходить удивительные события?! Видно, такая уж это волшебная пора. Вот какие невероятные приключения случились с одним обыкновенным зайчиком, который жил в обыкновенном лесу.
-
-Для дошкольного возраста.Жанр: Детская литература/СказкаФормат: PDF
+Apeaksoft iPhone Eraser — самая полезная утилита для постоянного и полного удаления всего содержимого и настроек с iPhone, iPad или iPod. Кроме того, вы можете одновременно стереть более одного устройства iOS.
+Тех. данныеТип издания: macOS SoftwareРелиз состоялся: 28.12.2022Разработчик: © 2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF0C0540C80DD6AB810CB00CD4027664B8E45777
+magnet:?xt=urn:btih:3144BCE992AB58A3D75F312E091404E51451097E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,28 +319,245 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436875   (1042819) от 02.01.2021
+###  Публикация: 1605137   (1045090) от 16.01.2023
 
-Mr. Smith - Smith Sessions Radioshow 239-240 (Vocal Trance 2020 Top 40) (2020) [MP3|320 Kbps] <Trance>
+GM Reader Pro 2.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение GM Reader - это полнофункциональный инструмент для чтения книг (EPUB,CHM,MOBI и др.) с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 08.01.2023Разработчик: © 2023 shrek.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250C3C8E5F97CD3EABFB46ADA390FB3D85A356E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604983   (1045089) от 16.01.2023
+
+Junior Mance - The Complete Albums Collection (1959 - 1962) 4CD, 2017, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045089.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Smooth One [3:28]
+02. Miss Jackie's Delight [3:53]
+03. Whisper Not [4:20](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 05:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AA575014C5B926F4B917AF868E1C17B50B8EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605047   (1045088) от 16.01.2023
+
+Kim Waters - That Special Touch (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Dance
+02. House Call
+03. Easy on Me (feat. Kayla Waters)
+04. That Special Touch(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EB5D276D7645F086AD048F43CE0A033E7F10F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605034   (1045087) от 16.01.2023
+
+Марк Биллингхэм | Вниз по кроличьей норе (2022) [MP3, Татьяна Литвинова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Меня зовут Алиса. Я офицер полиции. Я расследую убийство в психбольнице. В которой я – пациент… Очередной нервный срыв – и детектив полиции Алиса Армитейдж загремела в психиатрическое отделение интенсивной терапии. И хотя к ее «послужному списку» добавились ПТСР (Посттравматическое стрессовое расстройство) из-за гибели напарника, самолечение с помощью алкоголя и (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 12:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19EAE729F706569D7D0CCC6EFFE96A33EAB386C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605132   (1045086) от 16.01.2023
+
+Ёzh! - 2 Albums (2020-2023) [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Капитан Чингиз [00:04:40]
+02. Дед-шалун [00:02:14]
+03. Ведьма [00:03:08]
+04. Почему гном не купил топор? [00:02:50](   Читать дальше...   )Жанр: Folk RockПродолжительность: 2 CD, 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF5818ABDBE74658F4E2822C0E9B1839B0A1DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605068   (1045085) от 16.01.2023
+
+SiteSucker Pro 5.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045085.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2023Разработчик: © 2022 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8C1F60DEB9C0FB2DF7D69C3142012AF2318017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605039   (1045084) от 16.01.2023
+
+Сергей Бакшеев | Петля (Книга 4). Похищение со многими неизвестными (2019) [MP3, Макс Войс]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дерзкие грабители, прикрываясь именем следователя Петелиной, опустошают банковские ячейки. Банкир не может заявить об ограблении, потому что в банке хранился воровской общак. В отчаянии банкир похищает Петелину и передает ее вору в законе. Тот шантажом вынуждает следователя взяться за поиски украденного. Петелину ищет истину, но ее контролируют не только преступники, (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 08:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627119C9DCE29B1552570FF8DBD499AA12F84F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605057   (1045083) от 16.01.2023
+
+Ника Ёрш | Маленькая тайна мисс Бишоп (2022) [MP3, Оля Федорищева]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скандал! Богатую невесту обвиняют в попытке убийства собственного жениха! Общество в шоке, жених ранен, а отец обвиняемой и вовсе исчез. Что же будет дальше? Кому доверится подозреваемая и сможет ли отмыться от позора? Начальник отдела по магическим преступлениям идет по горячим следам и собирается узнать правду любой ценой. Но готов ли он к тому, что окажется в (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 11:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E03DA1110476B3A8B3B83E50DA98629418147A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605105   (1045082) от 16.01.2023
+
+VA - Uplifting Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smith Sessions Radioshow 239 (Vocal Trance 2020 Top 40 - Part I):
-01. Kbk & Grande Piano Ft. Agata Pasternak - Mystery Of Tomorrow (Vocal Mix)
-02. Woody van Eyden DJ T.H. & Cari - Drowning
-03. Joyline Snow - Heart Beating(   Читать дальше...   )Жанр: TranceПродолжительность: 03:33:38
+01. Bryan Kearney - Kaia (Original Mix) (3:40)
+02. Raz Nitzan & Neev Kennedy - Release You (Original Mix) (3:44)
+03. Paul Clark (UK) & Nicholson with Chelsea Holland - In Your Arms (Original Mix) (3:31)
+04. DIM3NSION - Theia (Original Mix) (3:59)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:32:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C8EDDBC9AD04D3A4A43D4ADF1986391D240A44F
+magnet:?xt=urn:btih:53BB9610532547457BAD3579935F684A4C5DE9CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,28 +565,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436919   (1042818) от 02.01.2021
+###  Публикация: 1605127   (1045081) от 16.01.2023
 
-VA - Nine Years Of Techno: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+Род Серлинг | Чудовища на улице Кленовая (2021) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045081.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Улица Кленовая была образцом добрососедства. Однажды в небе пролетел метеор и все электроприборы погасли. Какой-то мальчуган вспомнил что читал рассказ про вторжение пришельцев и тогда в душах жителей поселился страх, заставивший их искать чужаков среди своих.» ©Жанр: ФантастикаПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2DAFDB159D2E0C64F6B6E0C6A8872EF0785D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605133   (1045080) от 16.01.2023
+
+GM EPUB Reader Pro 2.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045080.jpg" />
+</div>
+
+
+###  Подробнее
+
+GM EPUB Reader — это полнофункциональное приложение для чтения электронных книг с простым и красивым интерфейсом и хорошим качеством чтения.Тип издания: macOS SoftwareРелиз состоялся: 08.01.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7FC129DDE123668E09F3064171FD560E7C2AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605088   (1045079) от 16.01.2023
+
+Danilo Ercole - Profundo Collected Vol.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House, Tech House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rephlekt – Pushit (06:07)
-02. Orion – Amphibia II (04:56)
-03. Lisa Oakes – Traction (06:13)
-04. Rafa Ortega – Detone (06:21)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:10:33
+01. Bit (6:45)
+ 02. Deep Space (6:08)
+ 03. Dopamina (6:46)
+ 04. Payback (6:08)(   Читать дальше...   )Жанр: Progressive House, Electro House, Tech HouseПродолжительность: 01:26:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49B69DB8ADCEBA2FA31951B8084935E020148C7E
+magnet:?xt=urn:btih:D92404ADF85B8205DD049EECF1FB03B6627629D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,57 +646,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436749   (1042817) от 02.01.2021
+###  Публикация: 1605122   (1045078) от 16.01.2023
 
-Miklagard (Miklagård) - Miklagard (1979) Remastered, 2020, Paisley Press [FLAC|Lossless|image + .cue] <Symphonic Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kastraten 3:09
-02. Trälen 3:34
-03. Astrologen 3:57
-04. Narren 4:44(   Читать дальше...   )Жанр: Symphonic Prog, Progressive RockПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF58FB8D0A398122F9E3A9755AD8E7EFE45C998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436888   (1042816) от 02.01.2021
-
-Kryder - Kryteria Radio 271 (Best Of 2020) 2020-12-30 [MP3|192 Kbps] <House, Tech House, Progressive House>
+Kazrog - Synth Warmer 1.1.5 VST, VST3, AAX (x64) Retail [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Guetta & MORTEN - Kill Me Slow
-02. Kaskade & BROHUG - 1990
-03. Michael Calfan - Last Call (2013 Version)
-04. SWACQ - Horny Horns(   Читать дальше...   )Жанр: House, Tech House, Progressive HouseПродолжительность: 02:46:28
+Классический аналоговый фильтр/сатуратор
+Synth Warmer — это эмуляция аналогового синтезаторного фильтра, основанная на культовом моносинтезаторном лестничном фильтре 1970-х годов, дополненном перегрузочным искажением и автоколебаниями. Используйте, чтобы разогреть свои грубые суперпилы, добавить интереса к барабанным лупам или создать полный звуковой хаос в качестве (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80C8A7844D0267DE02503D22DACDE129127EFE83
+magnet:?xt=urn:btih:68DB85116B1C729C358A21C8002BB941A69E9A14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,529 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436931   (1042815) от 02.01.2021
+###  Публикация: 1605012   (1045077) от 16.01.2023
 
-VA - Nine Years Of Techno Part 2: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+Александра Черчень | Хозяйка магической лавки (Книга 1) (2023) [MP3, Тамара Некрасова]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ken Ishii – TwitchedЖанр: TechnoПродолжительность: 02:21:29
+Первый том серии «Хозяйка магической лавки». У меня очень, очень, ОЧЕНЬ много проблем. Разваливающаяся лавчонка, которую я обязана сделать успешной, чтобы отстоять свои права на наследство. Козни родственников и говорящий гримуар с паршивым характером. А еще – темный маг с кладбища, который совсем не так прост, как кажется и… И самое страшное – замужняя жизнь, которая (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 07:07:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5648DCAB6D60900D3D7E731CE968E75F4574AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436924   (1042814) от 02.01.2021
-
-Rubicon - Demonstar (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demon star (04:07)
- 02. Neon Gladiators (04:32)
- 03. Last floor of hell (05:55)
- 04. Down in darkness (05:55)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCD56542FD158A9EE631CB401D9CCE4B3A794E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436896   (1042813) от 02.01.2021
-
-The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Duguid feat. Julie Thompson - Falling
-02. Michael Cassette - Zeppelin
-03. Cicada - Beautiful (Michael Gray Remix)
-04. Andrew Bayer - Counting The Points(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBA998E0FA597EA1FA67C9079A7BD06A5F1A74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436839   (1042812) от 02.01.2021
-
-Muntro Coutant - 2020 Out (2020) [MP3|320 Kbps] <Alternative Rock, Indie, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stunt (04:01)
- 02. Raise Those Daisies (03:42)
- 03. Superfluous (05:35)
- 04. Papaya (I'll Thank You) (03:39)(   Читать дальше...   )Жанр: Alternative Rock, Indie, New WaveПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C48C76416D2B49DC1A5CAE69E6501DF6E467314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436891   (1042811) от 02.01.2021
-
-CamelPhat - Tomorrowland Friendship Mix (2020-12-10) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One World Radio - The Sound of Tomorrowland
-02. CamelPhat & Elderbrook - Dance With My Ghost
-03. DJ T. - Trans Orient Express (Adana Twins "A Night At EGO" Version)
-04. AFFKT - Torpedo(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876C6676142C239C2CE91E2DC4398412AB996FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436835   (1042810) от 02.01.2021
-
-Tungsten - Tundra (2020) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lock and Load
-02. Volfram's Song
-03. Time
-04. Divided Generations(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE5F445B553447D83A32FF9DCAD6A01B96FBF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436967   (1042809) от 02.01.2021
-
-Chris Turner - Rock 'n' Roll Man (2020) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock 'n' roll outlaw (03:30)
- 02. Demon's eye (04:24)
- 03. Money (03:07)
- 04. Layla, pt. 2 (04:09)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFBEE670B67ADFB91E8B02A8EFC28935F689D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436727   (1042808) от 02.01.2021
-
-Dread Sovereign - Alchemical Warfare (2021) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Curse on Men [00:00:59]
-02. She Wolves of the Savage Season [00:10:08]
-03. The Great Beast We Serve [00:04:51]
-04. Nature Is the Devil's Church [00:08:25](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC99E0059221D1A1D7D0CF6030E31011EB655FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436914   (1042807) от 02.01.2021
-
-Алиса Ткачева | Наблюдаем и изучаем. Птицы (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие бывают птицы? Где они живут и чем питаются? Куда и почему улетают на зимовку перелётные птицы и как справляются с холодом те, что остаются? Книга «Птицы» расскажет о жизни удивительных пернатых, которых мы часто видим на улицах или в парках, и позволит принять активное участие в их жизни.
-
-Множество интересных заданий и игр помогут лучше усвоить прочитанное, (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70878983775D9FDB265A257445F5A8809C24A339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437004   (1042806) от 02.01.2021
-
-If These Trees Could Talk - The Bones Of A Dying World (2016) [FLAC|Lossless|tracks + .cue] <Post Rock, Instrumental, Post Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solstice (7:50)
-02. Swallowing Teeth (4:27)
-03. Earth Crawler (6:38)
-04. After The Smoke Clears (6:18)(   Читать дальше...   )Производство: Metal Blade Records – 3984-15461-2Жанр: Post Rock, Instrumental, Post MetalПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0FA16CC6B26211BA86FE4B707F69110409E8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436976   (1042805) от 02.01.2021
-
-Дмитрий Смирнов, Елена Хомич | Научно-популярная библиотека начальной школы. Кошки и котята (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочешь завести кошку, или просто узнать, какие существуют породы этих замечательных домашних питомцев? Тогда смело открывай нашу книгу! На ее страницах найдется много информации об особенностях поведения разных кошек и правильном уходе за ними.
-
-Для младшего школьного возраста.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6226E53214F054A568E6A09AB97448C91D0C2881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436956   (1042804) от 02.01.2021
-
-Наталья Гончарук, Марина Почкина | Большая книга вопросов и ответов. Где? (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042804.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой увлекательной книге собраны рассказы о мифах и легендах, о природе и географии, о памятниках культуры, о народах, обычаях, религии, о науке, изобретениях и открытиях, о спорте, играх и развлечениях на всех материках нашей Земли. Текст дополняют великолепные иллюстрации и карты. Здесь нет ни слишком сложных вопросов, ни непонятных ответов. Эта книга — интересное (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2496FA26414D00890F70C92E84C2FDBEA7A5F8A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436918   (1042803) от 02.01.2021
-
-Мэйбл Норманд. Барни Олдфилд мчится, спасая жизнь / Barney Oldfield's Race for a Life (1913) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042803.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой небольшой ленте сконцентрированы практически все характерные черты творчества великого американского комедиографа, "отца американской комической" Мака Сеннета. Невероятный сюжет, симпатичные влюбленные, страшный негодяй, ужасное злодейство, цепи, пистолеты, бомбы, бешеные гонки, куча "кейстоунских" полицейских и happy end!Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Мэйбл Норманд, Мак Сеннет, Форд Стерлинг, Барни Олдфилд, Реймонд Хаттон, Уильям Хаубер, Хелен Холмс, Руб Миллер, Кармен ФиллипсЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2571301AF11AE2AC394C4DE2CFED1792E2552884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436990   (1042802) от 02.01.2021
-
-Владимир Малов | А почему? Обо всём на свете (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042802.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге В.И. Малова - писателя-популяризатора, журналиста и ответственного редактора журнала "А почему?" - "Обо всём на свете" собраны ответы на самые интересные вопросы о науке, технике, природе, искусстве, которые только может задать юный почемучка: какое дерево самое высокое, сколько километров до ближайших звёзд, когда погаснет наше солнце, (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9019FCFAA488BFB2DEB48DC32675E442DAE117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436731   (1042801) от 02.01.2021
-
-RanestRane - The Wall (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042801.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. The Little Boy That Santa Claus Forgot (01:38)
- 02. When the Tigers Broke Free (Part 1) (04:08)
- 03. In the Flesh (03:14)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25F18EC8D9569301AE680AEAA40E855A4F42281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436884   (1042800) от 02.01.2021
-
-Кристель Петиколлен | Мой ребенок слишком много думает. Как поддержать детей в их сверхэффективности (2019) [PDF, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители необычных детей сталкиваются с множеством проблем: ребенок гиперчувствителен и очень эмоционален. Он мало спит, много двигается или, наоборот, часами сидит в уголке, погруженный в свои занятия. Он становится то заторможенным, то взрывается гневом. Ребенок послушный, но далеко не покорный. Он задает удивительно взрослые вопросы, но при этом в некоторых ситуациях (   Читать дальше...   )Жанр: Педагогика/Воспитание детейФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816AA71909089ECB2CE1A313A496F9565F6EEB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436988   (1042798) от 02.01.2021
-
-Вячеслав Ликсо | Объясни мне почему. Покажи мне как. Техника (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всем мире на протяжении многих веков для перемещения какого-либо груза использовалась сила человека или животного. А в конце XIX века люди изобрели двигатель внутреннего сгорания, который глобально повлиял на развитие цивилизации. И теперь мощные строительные машины помогают возводить невероятной высоты небоскребы, самолеты за один рейс доставляют сотни пассажиров (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1334991E4CCE1D57BF4F6DE96B7EEBAF9240E624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436721   (1042797) от 02.01.2021
-
-Anna Pest - Dark Arms Reach Skyward With Bone White Fingers (2021) [MP3|320 Kbps] <Black Industrial Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nadira [00:04:24]
-02 - If You're Going to Do It, Do It Now (feat. Jason Evans) [00:01:44]
-03 - Thundering Angel [00:01:23]
-04 - Skyward (feat. D.Are) [00:03:40](   Читать дальше...   )Жанр: Black Industrial MetalcoreПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F718A790CADCE1D94A34D1ED72B16D340F56414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436941   (1042796) от 02.01.2021
-
-Дарья Гордиевич | На все 100%. Только для супердевочек (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - прекрасный путеводитель по непростому девичьему миру: здесь содержатся сведения, необходимые каждой девочке, которая стремится стать образованной, воспитанной и творческой личностью. Ну и, конечно же, она хочет выглядеть на все 100%.
-
-Советы по питанию помогут тебе правильно составить меню, а правила этикета, изложенные на страницах книги - вырасти настоящей (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6D585764B5BD69E24B5F9D5541A27E61F3281E
+magnet:?xt=urn:btih:11CEAA9B5410F1152912EC1D8B3F1FD26C30FE16
 ```
 
 https://mybot314.ru/tekegram_catalog/

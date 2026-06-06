@@ -1,3 +1,56 @@
+###  Публикация: 1346871   (155063) от 21.12.2019
+
+Sonuscore - The Orchestra Complete v1.1 [Kontakt, OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155063.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Orchestra Complete - следующий большой шаг.
+Этот совершенно новый комплект поставляется с 108 новыми пресетами - Colors / Rhythms / Animated. Он включает в себя последнюю версию "The Orchestra", "Strings Of Winter" и Tuned Percussion. Оркестр из 80 участников, 60 новых струнных артикуляций, бесчисленные пресеты ансамблей и невероятно выразительный (   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKI, NKA, NKC, NKX, NKR, NKM; OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFCCA03273F8283C24B63A42ACF726DFBEA08F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270862   (153924) от 21.12.2018
+
+Boom Library - JET - FLY BYS [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153924.jpg" />
+</div>
+
+
+###  Подробнее
+
+JET - FLY BYS  - это уникальная библиотека звуковых эффектов реактивных самолетов. Если вы живете в регионе, где истребители практикуют испытательные полеты, вы знаете, как звучат низколетящие реактивные двигатели. С этой библиотекой Вы станете еще ближе к этим звукам, низко летящего реактивного самолета.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF11B6D60DC141145861E8A5CF1A6E1847366B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347514   (151572) от 23.12.2019
 
 NNM-Club Sound Cleaners - Cleared Music & Audio Tracks (No Watermark) - Vol.02 [MP3]
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6F06AFEB70DC6254F753EE428E4BCC07458382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822921   (104473) от 09.10.2025
-
-Звуковые библиотеки - Producer Loops - Kryptic Samples - Boom In [WAV, MID]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104473.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Boom In» — сырая, вибрирующая мрачная коллекция сэмплов Trap & Urban, наполненная самыми трендовыми звуками, разработанными Crude Sounds, новым дочерним лейблом Kryptic Samples для ценителей трэпа и городской музыки.Формат: WAV, MID
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6C690041E0D77A218D0FF65F4BD72339D04B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491012   (102673) от 02.05.2012
-
-Organic Loops - Rock Hip Hop Guitars And Bass [Wav|Rex][английский]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенно новая коллекция звуков гитары и баса в стилях Rock и Hip Hop в темпах 80, 90, 100, 110 и 120 Bpm.Название программы: Organic Loops - Rock Hip Hop Guitars And BassЯзык интерфейса: английскийФормат: Wav,Rex
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1285012   (724770) от 24.02.2019
+
+VA - Stelllar Atmosphere Of Trance (2019) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724770.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gagauz - Flashback (Original Mix)
+002. Eryon Stocker - Uplift Your Mind (Original Mix)
+003. Perpetuous Dreamer - The Sound Of Goodbye
+004. Thomas B. - Go Back Home(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B87701B3E6E977C77CC694792955D249D1DB0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023389   (724650) от 05.06.2016
+
+VA - Coffee Break Lounge Classics (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cesar Martinez Ensemble - Que Mas?
+02. Kusuma Orchestra - Vento dos Acontecimentos
+03. Blue Wave - Closet
+04. Arrojas - Occidente(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582C38E919C18E0E89C200726B3D86D255DA0B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023676   (724644) от 05.06.2016
+
+VA - Home Chill Prelude (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724644.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maremare - That Beach Is Mine
+002. Paul Cuddeford - Jenny Wren
+003. Pedro Del Mar Feat. Fancy Vienna - Windows To My Soul
+004. Chilhouette - The Way You Look At Me (Extended Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD1A03EA6526CF69A750C04DB37BAFB9886D0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128817   (724642) от 27.04.2017
 
 VA - Club Dance Ambience Vol.106 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House>
@@ -658,93 +745,6 @@ VA - Chill House Original Electro Mix 2017  [MP3|320 Kbps] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F623C3C35A266A1711E662E1AE2A839B2E40579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129417   (722496) от 28.04.2017
-
-VA - Buddha-Bar Monte-Carlo (2017) [MP3|320 Kbps] <Electronic, Easy Listening, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cambis & Florzinho - Shaneh (Original Mix) 05:17
-02. Federico Spagnoli - Indian Fever 04:27
-03. Makis Ablianitis - Uranos 04:15
-04. Andrea Cardillo - Sogno D'amor 03:35(   Читать дальше...   )Жанр: Electronic, Easy Listening, DowntempoПродолжительность: 02:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EB070EADF30403339CAAC39EB94DC37ABBF6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129261   (722404) от 28.04.2017
-
-Paul Van Dyk - Best of 10 Years: 1994-2004 (2005) [MP3|192-320 Kbps] <Trance> [Compiled by Firstlast2]
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Van Dyk - Vega [6:05]
-02. Paul Van Dyk feat. Jan Johnston - Like a Friend [3:55]
-03. Paul Van Dyk - Never Forget [5:27]
-04. Paul van Dyk - Today (Trance Ambient Mix) [5:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853A76732D4463CC6F7438280E05DE28DE1E409D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023823   (722363) от 06.06.2016
-
-VA - VOID Neo Disco (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Voyage Organisation - Shenzhen 5  (5:55)
-02. Marie Madeleine - Swimming Pool  (5:25)
-03. Hypnolove - La Piscine (L'Imperatrice remix)  (4:57)
-04. The Supermen Lovers - Family Business  (4:52)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB4D3DA54A856D1CC16577AFB93489FAEDAE831
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1126579   (765365) от 18.04.2017
+
+VA - I Love Music! - Indie amp Soft Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Rock, Acoustic, Psychedelic Rock, Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765365.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amber Run - Machine 4:37
+002. Andrew McMahon In The Wilderness - Fire Escape 3:25
+003. Anouk - Long Way 3:11
+004. Beach House - Wishes 4:47(   Читать дальше...   )Жанр: Rock, Acoustic, Psychedelic Rock, IndieПродолжительность: 03:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582784820AAC9F5C855DD9231C5FC95A0CCE2A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521326   (765216) от 02.01.2022
+
+Samantha Fish - Compilation (2019) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nearer to You
+02. Otherside Of The Bottle
+03. Are You Ready
+04. Push Comes To Shove(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73119D95C7C8C7513978F8E97EDC8AEC1EB0AE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126569   (765197) от 18.04.2017
+
+VA - I Love Music! - Hard Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock, Glam Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765197.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angels Or Kings - When The Heart Is Wrong 4:25
+002. Black Hole Raven - Do Not Luv Me 3:34
+003. Black Paisley - Coming Home 3:59
+004. Black Star Riders - Fade 4:23(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, Glam MetalПродолжительность: 07:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F9AB25E998A0DDFD9A856B7F05076CD54F4DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521441   (765159) от 02.01.2022
+
+Imelda May - Compilation (2019) [MP3|320 Kbps] <Alternative rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy In Me
+02. Levitate
+03. It's Your Voodoo Working
+04. Round The Bend(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 02:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47A2A5819DF1A69AC10515FE58B14FE701BDCA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214558   (763942) от 22.03.2018
+
+VA - Roads of old Ballads (2018) [MP3|320 Kbps] <Rock , Pop-Rock , Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Queensryche - Silent Lucidity
+02. Gotthard - Let It Be
+03. Everlast&Santana - Put Your Lights On(   Читать дальше...   )Жанр: Rock , Pop-Rock , MetalПродолжительность: 07:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D45207C046D52463A95B303EEC997EB165D771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214020   (763941) от 22.03.2018
 
 VA - Rock & Metal Collection от ALEXnROCK часть 5 (2018) [MP3|320 Kbps] <Hard Rock, Metal>
@@ -600,151 +745,6 @@ VA - 100 Hits Rock Vol.2 (2018) [MP3|256-320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D66AF0CA83A0B543FCB1F085669A30723CEC9E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018091   (757322) от 19.05.2016
-
-Bonnie Tyler - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Pop, Rock, Soul>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Holding On For A Hero 1986 (04:25)
-02 Total Eclipse Of The Heart 1983 (03:51)
-03 It's A Heartache 1978 (03:19)
-04 If You Were A Woman (And I Was A Man) 1986 (04:02)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 01:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BE0AE3CB0B8DC90E67B61A5CF99E9AD73731A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018092   (757321) от 19.05.2016
-
-Bryan Ferry - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Glam Rock, Art Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 I Put A Spell On You 1993 (05:24)
-02 Don't Stop The Dance 1985 (04:19)
-03 Kiss And Tell 1987 (04:53)
-04 I'm In The Mood For Love 1999 (04:18)(   Читать дальше...   )Жанр: Glam Rock, Art RockПродолжительность: 01:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8AE024D0D112A75319E1DDE5A8D212246EF299C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522727   (756498) от 08.01.2022
-
-Leonard Cohen - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Street
-02. The Letters
-03. Darkness
-04. The Law(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F9963B9C403689AD0E14C44C8B8A34DEA51576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215726   (756115) от 27.03.2018
-
-VA - Rock & Metal Collection от ALEXnROCK часть 4 (2018) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756115.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 4я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK181 Cinderella - The More Things Change
-182 Bryan Adams - Is Your Mama Gonna Miss Ya-
-183 3 Doors Down - Train
-184 Firehouse - Love Of A Lifetime(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D65600696C94108282325E897BD9FD9BC10634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281338   (753243) от 07.02.2019
-
-Kiss - Kiss Live (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Rock And Roll All Nite
-02 – Detroit Rock City
-03 – King Of The Night Time World
-04 – Deuce(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29AD2ACCFF6F3CF95B0C5646DF932D30FF93F6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

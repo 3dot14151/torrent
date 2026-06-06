@@ -1,3 +1,175 @@
+###  Публикация: 1325698   (410094) от 16.09.2019
+
+Mungo Jerry - Gold (2019) 3CD [MP3|320 Kbps] <Rock, Folk-rock, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer’s Gone [3:40]
+02. 46 & OnЖанр: Rock, Folk-rock, PsychedelicПродолжительность: 02:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710E231632AB628196DDE473076EA39514E14F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066420   (409920) от 27.10.2016
+
+Ray Wilson - Makes Me Think Of Home (2016) [MP3|320 Kbps] <Alternative Rock, Pop Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never should have sent you roses   (06:10) 
+  02. The next life   (03:41) 
+  03. Tennessee mountain   (04:18) 
+  04. Worship the sun   (05:02) (   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Prog RockПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8931BD222B90CCACA3B279C887B34821AD02CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413318   (409675) от 03.10.2020
+
+Roger Waters - Us + Them (2020) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409675.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Intro (Live in Amsterdam, June, 2018) [00:01:41]
+02. Speak to Me (Live in Amsterdam, June, 2018) [00:00:29]
+03. Breathe (Live in Amsterdam, June, 2018) [00:02:48](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F02A61420E51598023274A39519AE1993C02AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948812   (409554) от 21.10.2015
+
+Paul Kossoff (ex. Free) - Koss (1977) /1983, Street Tunes/ [MP3|320 кб/с]<Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Worm
+02. Songs Of Yesterday
+03. Mr. Big
+04. Time Away(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58599DE098CF057E5B8F4727A810D629D6182C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948887   (409352) от 21.10.2015
+
+Ulytau - Jumyr Kylysh (2006) [MP3|320 кб/с]<Ethno-Rock, Folk, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Adai
+02. Winter (Four Seasons)
+03. Kurishiler
+04. Jumyr - Kylysh(   Читать дальше...   )Жанр: Ethno-Rock, Folk, InstrumentalПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CF96E253E3E99B9F301E91A473BD7E735198FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252382   (408997) от 05.10.2018
+
+John Lennon - Imagine (2018) The Ultimate Collection  [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (Ultimate Mix)
+02. Crippled Inside (Ultimate Mix)
+03. Jealous Guy (Ultimate Mix)
+04. It’s So Hard (Ultimate Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 04:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB4D120AADC696D452B0D68B582EFE4E938E9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573927   (408868) от 02.09.2022
 
 Versa - A Voyage / A Destination (2022) [MP3|320 Kbps] <Progressive Rock, Crossover Prog, Post-Rock>
@@ -235,6 +407,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559215   (407938) от 13.10.2012
+
+Chris Rea - Auberge (1991) [MP3|320 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_407938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auberge [07:19]
+02. Gone Fishing [04:41]
+03. You're Not A Number [05:00]
+04. Heaven [04:12]
+05. Set Me Free [06:55]
+06. Winter Song [04:37]
+07. Red Shoes [03:54]
+08. Sing A Song Of Love To Me [03:34]
+09. Every Second Counts [05:08]
+10. Looking For The Summer [05:03](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9224B9C62F37F58495E5E14AB9EB31653615F5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533490   (407691) от 06.10.2018
 
 Freddie Mercury and Montserrat Caballe - Barcelona [Japanese Edition] (1988) [MP3|320 кб/с]<Rock, Pop, Classical>
@@ -351,6 +558,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563762   (403893) от 22.10.2012
+
+Vanilla Ninja - "Traces Of Sadness" (Extended Fan Bootleg 2012) [MP3|192 кб/с]<Pop, Pop rock, Glam rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_403893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part A: Original "Traces Of Sadness" (2004 album) ---
+[01] Tough Enough
+[02] Traces Of Sadness
+[03] Stay
+[04] When The Indians Cry
+[05] Don't Go Too Fast
+[06] Heartless
+[07] Liar
+[08] Don't You Realize
+[09] Wherever(   Читать дальше...   )Жанр: Pop, Pop rock, Glam rockПродолжительность: 01:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822A6FF94C6A9E0201461CE23AF926D648DAB95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563958   (403776) от 22.10.2012
 
 Moody Blues - Collected [3 CD] (2007) [MP3|320 кб/с]<Progressive Rock | Psychedelic Rock | Rhythm & Blues>
@@ -370,6 +612,41 @@ Moody Blues - Collected [3 CD] (2007) [MP3|320 кб/с]<Progressive Rock | Psych
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A5ADBDB15DE86FE0368ABCE5897D3B5B5ACC913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564269   (403033) от 23.10.2012
+
+South Of Georgia - S.O.G. (2005) [MP3|320 кб/с]<Alternative Country Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_403033.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:51) 01. Ten Minutes From Tampa
+(5:03) 02. Swamp Child
+(5:02) 03. Ain't Got Nothing
+(4:17) 04. Thick And Thin
+(3:51) 05. Down Home Country Boy
+(3:59) 06. Southern Angel
+(3:45) 07. Walkin Shoes
+(4:26) 08. Graceland
+(3:06) 09. I Need A Woman
+(2:57) 10. Sell That Bitches CarЖанр: Alternative Country Rock, Southern RockПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F428A1214B0A1B3B7840D71CC2AC489210438A61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,280 +763,6 @@ Miriam Hobbs - Can't Stop The Girl (2017) [MP3|320 Kbps] <Rock, Contemporary Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2BDF0ADF5627D8A95A9D7BB5B2CAE8E8CB66B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170392   (399615) от 01.10.2017
-
-Kitty, Daisy & Lewis - Superscope (2017) [MP3|320 Kbps] <Rockabilly, Rock & Roll, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. You're So Fine (03:22)
-02. The Game Is On (03:34)
-03. Team Strong (04:03)(   Читать дальше...   )Жанр: Rockabilly, Rock & Roll, SkaПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAC1706858DDCEBD594AC49FF509BD47ECE8B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566251   (398972) от 27.10.2012
-
-Karma To Burn - Slight Reprise (2012) [MP3|320 кб/с]<Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398972.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Ten
- 2 Fourteen
- 3 Three
- 4 Seven
- 5 Eight
- 6 Two Times
- 7 Thirteen
- 8 One
- 9 SixЖанр: Stoner RockПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB038CBB51816DA3B72BFA56AC37584D774AC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478459   (398866) от 27.10.2012
-
-Niagara - 5 альбомов (1986-2002) [MP3|256 кб/с]<Rock, Poprock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398866.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. J'Ai Vu (3:52)
-2. Assez ! (3:44)
-3. Je Dois M'en Aller (3:26)
-4. Pendant Que Les Champs Brûlent (4:03)
-5. Quand La Ville Dort (3:47)
-6. Soleil D'hiver (4:11)
-7. Tchiki Boum (3:33)
-8. L'Amour À La Plage (3:23)
-9. Flammes De L'enfer (4:09)
-10. Baby Louis (3:56)(   Читать дальше...   )Жанр: Rock, PoprockПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566934   (398300) от 28.10.2012
-
-Skanskа Mоrd - Pаths Tо Chаron (2012) [MP3|320 кб/с]<Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Caves Of Our Mind 06:00
-02. Addicts 03:56
-03. A Black Day 05:40
-04. Lord Of Space And Time 06:51
-05. The Flood 05:35
-06. Laggasen 03:36
-07. The Ambassadeur 03:52
-08. Alien Encounter 04:05
-09. Rising 05:09Жанр: Stoner RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222D5623E6167796930F4DEB1918D52B7E7FEFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715359   (396888) от 26.10.2013
-
-Fernando Noronha & Black Soul - Bring It (2006) [MP3|320 кб/с]<Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovin Man [03:56]
-02. 10.000 Miles [03:53]
-03. Bring It [04:08]
-04. See What You're Doing [04:25](   Читать дальше...   )Жанр: Rock, Blues-RockПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF96BB5C943D484F5B13EA1162DABB17A45A26BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171778   (395638) от 05.10.2017
-
-The Rolling Stones - Sticky Fingers Live At The Fonda Theatre 2015 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start Me Up (Live)
-02. When The Whip Comes Down (Live)
-03. All Down The Line (Live)
-04. Sway (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5552307144A0B6DB24B324096B9867029EF7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171927   (394159) от 07.10.2017
-
-Thunderhead - Thunderhead (1975) Reissue, 2009, Crossroad Productions [MP3|320 Kbps] <Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Busted In Georgia
-02. Lay It On The Line
-03. Got To Get Away
-04. Showdown(   Читать дальше...   )Жанр: Rock, Southern RockПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65D4AF84F409A9EA9E9665836712817303AB241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568752   (393985) от 01.11.2012
-
-Prime Time - Love and Hate (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A134AA7DF565941EBDD9870F5C022B0DFC10F9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172394   (393230) от 08.10.2017
-
-Hydra - Land Of Money (1975) Reissue, 1999, Capricorn Records [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393230.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Little Miss Rock N' Roll
-2. The Pistol
-3. Makin' Plans
-4. Land Of Money(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19411C65C9823EC663B5AC5064872D9487F12A86
 ```
 
 https://mybot314.ru/tekegram_catalog/

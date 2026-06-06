@@ -85,64 +85,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596143   (173626) от 08.12.2022
-
-Влади - Длится февраль (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_173626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Безвременье
-02. Закапывать себя (feat. Loqiemean)
-03. Как это блядь возможно
-04. Из Москвы (Рай на острове)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB79BD635126295BA699D037B27C004963BC68F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668485   (173620) от 12.10.2023
-
-25/17 - Радость встреч и расставаний (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173620.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Радость
-2. Хлопок
-3. Околокосмоса
-4. Позвони(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953B6BCFBC470666E4CED546EAAC2E090EA40378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668433   (173162) от 14.10.2023
 
 25/17 - Радость встреч и расставаний (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -745,6 +687,64 @@ Jon Moskowitz presents: DJ Cappel & Smitty - Blue Eyes Meets Bed-Stuy (Notorious
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC41DED43747BFA90F5CFE6E4E39F79C7B957558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432846   (162890) от 18.12.2020
+
+Eminem - Music To Be Murdered By: Side B (2020) Deluxe Edition, Explicit [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Premonition (Intro) [00:02:53]
+02. Unaccommodating [00:03:36]
+03. You Gon’ Learn [00:03:54]
+04. Alfred (Interlude) [00:00:30](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 2 CD, 01:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62018A44072E1A106DE03CE203829091569EECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598786   (161921) от 20.12.2022
+
+Гуляй Рванина (Черная Экономика) - Сонный паралич (2022) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мост на остров [00:02:18]
+02 - Кисть касается полотен [00:02:01]
+03 - Сеанс гипноза [00:02:36]
+04 - Каждый верит [00:02:16](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A2B25716AB5D615C0AFA355FF799DD511FF978
 ```
 
 https://mybot314.ru/tekegram_catalog/

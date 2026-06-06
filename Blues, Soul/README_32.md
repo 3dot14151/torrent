@@ -1,3 +1,61 @@
+###  Публикация: 957792   (326776) от 18.11.2015
+
+Kelly Richey - Sweet Spirit (2013) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelin' Under (03:03)
+02. I Went Down Easy (03:22)
+03. Leavin' It All Behind (02:22)
+04. Something's Going On (03:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11C629CC8930DD897A2E908373016666504C38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958041   (325870) от 19.11.2015
+
+Aubryn - Nothin' Civil (2015) EP [OGG|494-516 кб/с]<Blues, Folk, Americana, Cabaret>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothin' Civil
+02. Cure My Disaster
+03. Number One Fan
+04. In the Field(   Читать дальше...   )Жанр: Blues, Folk, Americana, CabaretПродолжительность: 00:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADC890BBD55EFBD4A596952BC06C9280C4DC773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958009   (325845) от 19.11.2015
 
 Mike Zito & The Wheel - Keep Coming Back (2015) [MP3|320 кб/с]<Blues Rock>
@@ -687,64 +745,6 @@ Van Morrison - Three Chords And The Truth (2019) [MP3|320 Kbps] <Blues, Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB2358949B3A4D7532D6F771B24B74C84A2860E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078720   (300527) от 01.12.2016
-
-Ellen McIlwaine - Women In (E)motion (1998) Live [MP3|320 Kbps] <Blues Rock, Reggae>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Save The World  (05:15) 
-02|  Howl At The Moon  (04:41) 
-03|  Beg For The reason  (07:55) 
-04|  Fight The Power  (08:22) (   Читать дальше...   )Жанр: Blues Rock, ReggaeПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778F375EB1694D4B4EC4610296D394BB9B4F8DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078688   (300521) от 01.12.2016
-
-Grainne Duffy - Grainne Duffy Live (2015) Live[MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Each And Every Time (Live)  (03:41) 
-02|  Let Me In (Live)  (03:23) 
-03|  What Am I Supposed To Do (Live)  (03:09) 
-04|  Don't Know Why (Live)  (03:43) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C3650A8657125AC1DA7877FD8CBF8CA6485BCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

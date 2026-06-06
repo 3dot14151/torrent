@@ -1,3 +1,61 @@
+###  Публикация: 1399465   (732958) от 01.08.2020
+
+The Psychedelic Furs - Made of Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boy That Invented Rock & Roll (03:36)
+02. Don't Believe (03:45)
+03. You'll Be Mine (04:47)
+04. Wrong Train (04:12)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA13DF7700192A7EE359ED220C9C66AB46E8416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127356   (732176) от 21.04.2017
+
+Can't Swim - Fail You Again (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Emo, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Днбютный альбом рокеров из Нью Джерси. На мой взгляд довольно не плохо.01. What's Your Big Idea? (Lentil) (3:13)
+02. We Won't Sleep (2:48)
+03. $50,000,000 (3:01)
+04. Friend (3:08)(   Читать дальше...   )Жанр: Indie Rock, Emo, HardcoreПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE89D4A23ECD5AB8D12D5EE1A6D24D961874C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021711   (731772) от 30.05.2016
 
 Garbage - The Absolute Collection (2012) [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -681,64 +739,6 @@ Blink-182 - 24 Альбома (1994 - 2011) Дискография [FLAC|Lossles
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285003   (724999) от 24.02.2019
-
-Telekinesis - Effluxion (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Effluxion (03:32)
-02. Cut the Quick (04:22)
-03. Like Nothing (02:53)
-04. Running Like a River (01:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC414339519D0A9D3AAC9E4F1B946FD91B8CBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285098   (724919) от 24.02.2019
-
-Anemone - Beat My Distance (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Your Own (03:31)
-02. Daffodils (03:53)
-03. Memory Lane (04:51)
-04. Sunshine (Back to the Start) (05:30)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3082657EB89E7F0DD4C551AF10DF15D031CA15A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

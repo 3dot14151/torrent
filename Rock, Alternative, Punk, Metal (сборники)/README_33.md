@@ -1,3 +1,148 @@
+###  Публикация: 1573719   (407447) от 03.09.2022
+
+Theory Of A Deadman - Compilation (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitch Came Back
+02. Angel
+03. G.O.A.T
+04. Straight Jacket(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F02D66919CCE832D0970DD2A42C3C596C2FE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326040   (407363) от 18.09.2019
+
+VA - Rock Concept: Euro Edition (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407363.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sep7ember - Bullet
+002. Big Mother Gig - Obliterate
+003. Gene Simmons - Carnival Of Souls
+004. Northward - Timebomb(   Читать дальше...   )Жанр: RockПродолжительность: 10:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5F897A2525126B7F935508A9A86C133194A924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413982   (406811) от 06.10.2020
+
+VA - September Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406811.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Disembodied - Burning Cupid
+002. Simbiose - Realidade
+003. Diploid - Dissolve Myself
+004. Skullcrack - What Did You Expect(   Читать дальше...   )Жанр: Hardcore, Hard Rock, MetalПродолжительность: 09:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC07ED411AFC28BDB98042EEFF0D8D8098F738E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413904   (406726) от 06.10.2020
+
+VA - Rock And Roll: British Classic Style (2020) [MP3|320 Kbps] <Rock & Roll, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406726.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Josie & The Outlaw - This Town Ain't Big Enough
+002. Little Richard - Great Gosh A'mighty
+003. Freddie & The Dreamers - I'm A Hog For You
+004. Bloodshot Bill - Baby Oh Baby(   Читать дальше...   )Жанр: Rock & Roll, Classic RockПродолжительность: 08:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCAB60D9454755885B83AF467B9E0641DD86DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712823   (403243) от 19.10.2013
+
+Peter Gabriel - 25 Best Songs (2012) [MP3|220 - 272 кб/с]<Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Time 1986
+02. Shock The Monkey 1982
+03. Sledgehammer 1986
+04. Growing UpЖанр: Progressive RockПродолжительность: 02:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A969F7F38A46181410CEF6D99FCE7FF1C8232A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172773   (391842) от 09.10.2017
 
 VA - Rock Ballads by ROCKRADIO 2017 VOL I (2017) [MP3|256 Kbps] <Rock>
@@ -603,151 +748,6 @@ Cosmos - In The Dark Of The Night (2016) (Compilation) 2CD  [MP3|320 Kbps] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2B1491D7947EB34783AC9F0F4F65EBA8A57954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416483   (367183) от 16.10.2020
-
-VA - Rock Drive 11 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 H.E.A.T. - Dangerous Ground
-02 Crystal Shawanda - Church House Blues
-03 Gathering Of Kings - Lorelei
-04 Dion & Joe Bonamassa - Blues Comin' On(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BB1DA3B7FDBBB1BCD75F274F95BDBC92CACBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255253   (365888) от 17.10.2018
-
-VA - Shy Of Shameless: October Blues Collection (2018) [MP3|320 Kbps] <Blues, Rock Blues, Rock and Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Billy Lee Riley - Goin' Jukin'
-002. Ray Bonneville - Waiting on the Night
-003. Chuck Berry - My Mustang Ford
-004. Ray Bonneville - Riverside Drive(   Читать дальше...   )Жанр: Blues, Rock Blues, Rock and RollПродолжительность: 09:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCB8D9C2C2D419575EC22DC452C7FAA6F875FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459570   (365485) от 28.10.2015
-
-VA - Metal Attack (2012) [MP3|192-320 кб/с]<Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24 Black - All She Wrote
-02. System of a down - Attack
-03. Scars On Broadway - Babylon
-04. Ill Nino - This Is War(   Читать дальше...   )Жанр: Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk RockПродолжительность: 03:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F792E7D36FCAED26D09A0C725FC6A314E0F302FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328162   (365372) от 29.09.2019
-
-The Beatles - White Album De-Noised From Demos & Takes 2CD (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-01 - Back In The U.S.S.R. (Esher Demo) (03:00)
-01-02 - Dear Prudence (04:46)
-01-03 - Glass Onion (Esher Demo) (01:56)
-01-04 - Ob-La-Di, Ob-La-Da (Esher Demo) (03:11)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:41:19
-02-01 - Birthday (2018 Stereo Mix) (02:42)
-02-02 - Yer Blues (Esher Demo) (03:30)
-02-03 - Mother Nature's Son (Take 15) (02:29)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6741F49A89C67679022B3444E8B3A450E596722D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 423341   (365335) от 28.10.2015
-
-VA - Metal Compilation - Best (2011) [MP3|128-320 kbps]<Symphonic, Black, Gothic, Power, Folk, Doom Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Symphonic, Black, Gothic, Power, Folk, Doom Metal, RockПродолжительность: 02:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93972BD86B1130944D4280DA14A3DF99E0352DB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

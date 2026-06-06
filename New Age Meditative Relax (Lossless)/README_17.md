@@ -1,3 +1,61 @@
+###  Публикация: 923497   (564488) от 31.07.2015
+
+VA - Simply Chillout (2005) 4CD[FLAC|image+.cue]<Electronic, Ambient, Pop, Rock, Classica>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая проблема была с определением раздела для этого релиза. Все четыре диска хоть и объединены общим названием, но каждый из них в соответствии со своим названием и к классики отнести можно и к музыкальному сопровождению фильмов и к электронной музыке. Но все же все они предназначены для того, чтобы отдых слушающего был полноценным. А ведь перед выходными это (   Читать дальше...   )CD1 - Chilled Beat
+CD2 - Smooth Pop Classics
+CD3 - Film&TV Themes
+CD4 - Classical ChilloutЖанр: Electronic, Ambient, Pop, Rock, ClassicaПродолжительность: 04:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A54CC10C0C8F0D5E4558BCB9B6550CB7A31B8A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304483   (563984) от 26.05.2019
+
+Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Thankful
+02 Pure Joy
+03 Dark Moon
+04 Triumph(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1F4540FFD130A90827233666B1F51AE188C669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152193   (563145) от 24.07.2017
 
 Joel Kanning - Ubiquitous Frequency Oscillation (UFO) Vol.1,2 (2009-2017) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Downtempo>
@@ -687,64 +745,6 @@ Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C306D3B1FCE6FA62B9C671497A226DF1D0CB0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314122   (521322) от 12.07.2019
-
-Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (8:59)
-02. Freedom (4:40)
-03. Follow the Heart (3:37)
-04. Eternal Deva (5:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15D40470BC68EC4B0A4B78EEAF472FA3DC37280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241319   (521071) от 16.08.2018
-
-Önder Bilge - Relaxing Guitar Heaven (2018) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Summer Breeze
-02 Circle in the Sand
-03 Early in the Morning
-04 Awaking(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B317EDF9DE69C1B9F4D0080448FA3C1F02D7B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

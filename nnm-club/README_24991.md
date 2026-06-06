@@ -1,25 +1,22 @@
-###  Публикация: 1785534   (69234) от 16.03.2025
+###  Публикация: 473859   (84473) от 26.03.2012
 
-Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|image + .cue|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
+Жизнь и смерть в Помпеях / Pompeii - Celler of Skeletons (2010) IPTVRip
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Зарубежные TV-бренды
+>>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Intro - The Gate
-A2 Noose
-A3 Shadegrown
-A4 Bleed(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:41:31
+Две тысячи лет назад Везувий обрушил на жителей Помпеев смертоносный дождь. Пемза, газы и вулканический пепел уничтожили все живое. Во время паники пятьдесят четыре человека укрылись в подвале. Одни прихватили с собой ценности, у других не было ничего. Они избежали участи своих соседей - на время. Ученые исследовали их останки, и те поведали удивительную историю.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F46037E3858D6AAE0DB92A4B0851C5E6334BD124
+magnet:?xt=urn:btih:95B0B330BD7142BC247F005C43A1EB2806F9C818
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785612   (69233) от 16.03.2025
+###  Публикация: 473902   (84469) от 26.03.2012
 
-Riot - Archives Volume 4 : 1988-1989 (2019) Compilation [FLAC|Lossless|image + .cue] <Heavy Metal>
+[Wallpapers] Sexy Girl Wallpapers Pack 53
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. On Your Knees (Rough Mix)
-02. Runaway (Rough Mix)
-03. Killer (Rough Mix)
-04. Storming The Gates Of Hell (Rough Mix)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:16:20
+[Wallpapers] Sexy Girl Wallpapers Pack 53
+Название: Sexy Girl Wallpapers Pack 53
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56ACC24776089AC6D1DBDF9D110555DE36A208A7
+magnet:?xt=urn:btih:38A151C2AD01A7526D1BD326C433F1FA197C7AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +54,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785594   (69232) от 16.03.2025
+###  Публикация: 473590   (84464) от 26.03.2012
 
-Ben Lloyd - Leave No Stone Unturned (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+VA - Весенний муз-отрыв радио Record 6 (2012) [MP3|192 кб/с]<Club>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Leave No Stone Unturned (3:00)
-02.  Narcisist (2:54)
-03.  Break Out (3:40)
-04.  Ghost (3:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:37
+01 Maroon 5 feat. Christina Aguilera - Moves Like Jagger (Adi Perez Remix)
+ 02 DJ Szatmari vs. TayNa & Chris Ferres - Oh You Can (T.C.F. Summer Rework)
+ 03 Bassmonkeys Feat. Natasha Anderson - I'll Show You Loving (Samuele Sartini Remix)
+ 04 Crew 7 feat. Geeno Fabulous - Billie Jean (Club Mix)
+ 05 Ivan Martin & Tom Chaos - Believe (Radio Edit)
+ 06 Molella and Supafly Inc - X-Rated (Molella and Jerma Club Radio Edit)
+ 07 DJ Nil & Miss N - From Russia With Love (DJ Winn Radio Edit)
+ 08 Pixie Lott feat. Pusha T - What Do You Take Me For (Bimbo Jones Radio Edit)
+ 09 Sweat Box - You And I (Shane Deether Club Edit)
+ 10 Rockstroh - Kaugummi (Luke Vegazz Remix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 05:32:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E03E1E1442C50BB77067C4C539B1B19468CE5B93
+magnet:?xt=urn:btih:1069A43D31680B8B45788170B6973788742DE75A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +89,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785607   (69231) от 16.03.2025
+###  Публикация: 473031   (84463) от 26.03.2012
 
-Крушение в Северном море / Het wrak in de Noordzee (1915) WEBRip
+[RePack] Rayman Origins {1.0.32504} [En] 2012 l R.G. UniGamers
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рыбацкая драма о любви дочери капитана и молодого рыбака. Их любовь оказывается под угрозой, другой рыбак, соперник за внимание девушки, топит лодку своего товарища, и добивается у отца девушки ее руки.Производство: Нидерланды / Amsterdam Film Cie.Жанр: драма, немое киноРежиссер: Тео ФренкельАктеры: Джули Мейер, Kees Lageman, Wilhelmina Kleij, Джаап Ван Дер Полл, Пит Фукс, Coen Hissink, Yard Van Staalduynen, Аф Баубер, Тибо Бижо мл., Уильям ФаассенПеревод: немой с интертитрамиСубтитры: французские (интертитры), русские отдельным файломПродолжительность: 01:12:44
+Игра повествует о похождениях персонажа Рэймена в своем сказочном мире. Rayman Origins является приквелом, в котором рассказывается о первых бедах вселенной Рэймена и о том, как он ее спасает. Под управление игрока попадут сам Рэймен, его друг Глобокс и два мага Тинси.
+Возрождение культового платформера – прошло 15 лет с момента выхода первой игры про Рэймена и вот он снова на сцене – с классическими персонажами внутри и красивейшей 2D графикой.Тип издания: RePackРазработчик: Ubisoft MontpellierЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A6CA35F9C2AF43D0AAD009525AD365F3EEB35F4
+magnet:?xt=urn:btih:ACFF4BDD76F5ED68F472044D160F8D70AF16BA5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +116,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785599   (69230) от 16.03.2025
+###  Публикация: 473338   (84460) от 26.03.2012
 
-Marco J & The Jaywalkers - Dynamite (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+VA - Здравствуйте, гости! (2012) [MP3|256 kbps]<Pop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  I'm Good (3:12)
-02.  Dynamite (2:49)
-03.  Give Me One More Chance (3:05)
-04.  The Best That I Can (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:26
+001. Ника - Танцуйте девочки, гуляйте мальчики
+002. Н. Бабкина - Роза
+003. И. Гришина - У нашей Кати
+004. Заплатки - Трактор любви
+005. Балаган Ltd - А хто пье
+006. В. Гуряшина - Ягода-смородина
+007. В. Королев - Лимончики
+008. Белый день - Колхозная
+009. Золотое кольцо - Песня в окошко стучится
+010. Поручик Ржевский - Ночь и бал(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:47:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67D7B1F72A8117B9695D9C2AE75B81E9D98A3714
+magnet:?xt=urn:btih:2A371698A5F8FECDD9DF30896E30A4EBDE53F46B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,27 +151,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785476   (69229) от 16.03.2025
+###  Публикация: 473558   (84459) от 26.03.2012
 
-Шрифты - Creative Market - Heritage Angles - 290913390 [OTF, TTF]
+Ричард Марстен (Эд Макбейн) | Исчезнувшие девушки [2006] [MP3]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Heritage Angles — это округлые шрифты без засечек с очаровательной альтернативной аркой.
-
-Кириллица не поддерживается.Формат: OTF, TTF
+Оригинальное название:2006Жанр: Детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:047601BD7F04D76714CEA22D43F2AA8E9014DB45
+magnet:?xt=urn:btih:B4071C96AB853F8C2D2F70F4AE26BB1504081006
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,28 +177,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785492   (69228) от 16.03.2025
+###  Публикация: 473530   (84457) от 26.03.2012
 
-Himmelkraft - Himmelkraft (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Symphonic Metal>
+Алистер  Маклин | Река смерти [2010] [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Pages of History (Opening) (00:00:26)
-02 - Full Steam Ahead (00:05:10)
-03 - Uranium (00:04:54)
-04 - Paika (00:04:56)(   Читать дальше...   )Жанр: Power, Symphonic MetalПродолжительность: 00:56:50
+Роман
+Оригинальное название:2010Жанр: Детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:999042AE74C69DE082C49C48D3BA680117FC4148
+magnet:?xt=urn:btih:8A2DC370283B826F98BB547AE40BE7668631C0B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,26 +204,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785518   (69227) от 16.03.2025
+###  Публикация: 473542   (84456) от 26.03.2012
 
-Первая передача на НТВ. Автомобильная передача (16.03.2025) WEBRip [H.264/720p]
+Новая земля / Nova zembla (2011) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84456.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1594—1597 годах Баренц совершил три экспедиции в Арктику для поиска Северо-Восточного прохода в Тихий океан, открыв и описав берега Новой Земли. Во время последнего плавания корабль Баренца затёрло во льдах, и команде пришлось остаться на зимовку в условиях полярной ночи на побережье архипелага. Многие члены команды, в их числе сам Баренц, не выдержали лишений арктической зимы и погибли. Об этом путешествии повествует дневник одного из членов команды — Херрита де Фейра. Дневники де Фейра сегодня воспринимаются как источник научного материала, а голландские дети изучают историю мореплавания Баренца по гравюрам из дневника моряка.Жанр: ИсторияРежиссер: Рейну УрлемансАктеры: Даутцен Крёз, Дерек де Линт, Ян Деклер, Сэмми Шилт, Виктор Рейнир, Тюн Куилбур, Бас Кейзер, Мэдс Уиттерманс, Иуда ГослингаПеревод: Одноголосый закадровыйПродолжительность: 01:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD106CF01162C451198D20C789260CE34FA04A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473827   (84451) от 26.03.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №16 (2012.03.26) SATRip
 
 >>Документалистика и Телепередачи
->>За рулем
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Расправа на дороге: месть или казнь? Простой водитель-одиночка против агрессивных клиентов. Почему суд лишил его прав? Чем разгневал «уважаемых людей» обыкновенный таксист? Неужели им позволено безнаказанно нападать?
- Благодушный гражданин из города Сочи покалечил человека на дороге. Почему даже Фемида стесняется его тревожить?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:32
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6E09D0C402C58BADF01C681373988049B8E71AF
+magnet:?xt=urn:btih:1A3D1C30B0F303AC109025EF27E143CE9D59DE0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,27 +256,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785598   (69226) от 16.03.2025
+###  Публикация: 473286   (84450) от 26.03.2012
 
-Шрифты - Creative Market - Trapix - A Unique Pixel-Style Serif - 290890009 [OTF, TTF]
+Отменить Рождество / Cancel Christmas (2010) SATRip
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Trapix — это шрифт с засечками с уникальным пиксельным характером.
-
-Кириллица не поддерживается.Формат: OTF, TTF
+У Санта Клауса на этот раз появились самые настоящие проблемы: меркантильные современные детишки попросту в него не верят. Дабы сохранить собственную «должность», Санта Клаус решает отправиться в частную североамериканскую школу. И за 1 месяц до католического Рождества он непременно должен возродить дух этого праздника, а также убедить детишек в том, что он все же на самом деле реально существует.Жанр: Фэнтези, СемейныйРежиссер: Джоан БрэдшоуАктеры: Джадд Нельсон, Натали Браун, Джой Флеминг, Коннор Прайс, Дэвид Хили, Роберт Латимер, Жан Юн, Дэвид Гингрич, Дебора Гроувер, Фрэнк МакАнульти, Тара Спенсер-Нэйрн.Перевод: Двуголосый закадровыйФормат: aviПродолжительность: 01:28:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C93E9F8D7C6D8E98546C7FF69A62B9BD268F6EE6
+magnet:?xt=urn:btih:6E7597696C031F2F7C499326A5B652BA1A1A5E94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,286 +282,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785550   (69225) от 16.03.2025
+###  Публикация: 473164   (84445) от 26.03.2012
 
-Шрифты - Creative Market - CS Violeta 3D - 290819910 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический шрифт без засечек с ретро-вдохновением 90-х CS Violeta 3D — смелый классический шрифт без засечек, который передает энергию и стиль 90-х, привнося ностальгическую, но современную нотку в ваши проекты.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F82FF70F54391CA6093E8343EFFE97910C680A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785597   (69224) от 16.03.2025
-
-HeavyDrunk, Watermelon Slim - BluesLand Theme Park (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  BluesLand Theme Park (2:16)
-02.  New Wine (2:55)
-03.  Little Bighorn (Band) (3:26)
-04.  Church Bells (Little Zion) (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1683150A05A2C0199AC6BDE780CE96BCB1E89B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785396   (69223) от 16.03.2025
-
-Rioghan - Kept (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dreams (00:04:15)
-02 - Hands (00:04:34)
-03 - Skin (00:04:26)
-04 - Edge (00:04:27)(   Читать дальше...   )Жанр: Gothic, Progressive MetalПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB12752666D17E6DEACA85889FF342D08BC155A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785346   (69222) от 16.03.2025
-
-Erocis - The Sunken Lands (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Awakening in the Starry Night
-02 - Follow the Stars
-03 - Through the Dark Forest
-04 - Passage to the Sunken Lands(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB72A5F44E72638AF2C64968EB6D5036B8664064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785603   (69221) от 16.03.2025
-
-Melon Jelly - The Road to Memphis (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Time Is a Thief (4:36)
-02.  Angel (3:54)
-03.  So Many Years (3:58)
-04.  Hold on to Me (4:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C96C6062EC9905C2D3B1FF02F4B6E81B04F42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785592   (69220) от 16.03.2025
-
-Александр Пушкин | Дубровский (Инсценировка) (1978) [MP3, Алексей Консовский, Ольга Яковлева и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда». Редкие Записи.
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-Незавершенный роман «Дубровский» А.С. Пушкина – история о любви Владимира Дубровского и Марии Троекуровой, потомков двух враждующих (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МФГУП «Фирма Мелодия», ГостелерадиофондПродолжительность: 01:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD70630676B17700D2738F433C27AE695EDA45DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785555   (69219) от 16.03.2025
-
-Katrina - Amor Vampírico (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cuando La Muerte Ya Venga Por Mi (00:04:40)
-02 - Hasta Agonizar (00:03:22)
-03 - Fantasma Errante (00:03:10)
-04 - Y Es Que Yo Me Muero (00:04:54)(   Читать дальше...   )Жанр: Symphonic, Gothic MetalПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27D6B753942FA4E5FE0ED8E9F5D9189314710A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785600   (69218) от 16.03.2025
-
-Max Hightower - Nothin' but the Truth (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Double Bubble (3:40)
-02.  It's on Me (3:54)
-03.  Here She Comes (3:44)
-04.  Damned If I Do (4:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5F68BD9F8EC241CF16BC44A83BC106CCCABA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785590   (69217) от 16.03.2025
-
-Александр Пушкин | Дубровский (Радиоспектакль) (2025) [MP3, Леонид Михайловский и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-События, описанные А.С. Пушкиным в романе «Дубровский» были взяты автором из реальной жизни. В результате ссоры двух соседей-помещиков, один из них, Андрей (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98687826302C06509A0221DDFB0257D50B5924CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785586   (69216) от 16.03.2025
-
-VA - Ablazing Spring Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
+Markus Schulz - Global DJ Broadcast Top 20 March (2012) [MP3|320 кб/с]<Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rene Ablaze & Fischer & Miethig - Follow Me (Extended Mix) [6:42]
-02. Transaphonic - Tachyon Theory (Extended Mix) [8:58]
-03. Guava Project - New Horizons (Extended Mix) [7:01]
-04. Thomas Lloyd & Hidden Tigress - Faded Whisper (Claas Inc. Extended Remix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:32
+01. Styller - All That Remains (Basil O'Glue Remix)
+02. Mr. Pit - Mosni (Original Mix)
+03. Mark Otten - Hyperfocus (Original Mix)
+04. Timur Shafiev - Infarct (Arcalis Remix)
+05. Sensetive5 - Starfall (Original Mix)
+06. Solis & Sean Truby - Marina (Aaron Camz Remix)
+07. Rebels Without A Cause & York - Red Violin (Rebels Club Mix)
+08. Solarstone & Haris C - Ultraviolet (Tucandeo's Dream Mix)
+09. Nino Kattan - A New Day (Evol Waves Remix)
+10. Chilledhead - Wind Spell (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 02:39:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75B48902CDF6379A43347DC5FD306D962E5E1E15
+magnet:?xt=urn:btih:8AC46EDCE0675C460D8788CF62904DC906CC5063
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -539,27 +317,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785545   (69215) от 16.03.2025
+###  Публикация: 473919   (84442) от 26.03.2012
 
-Шрифты - Creative Market - Coretan Komedi Fun Brush Comic Font - 290848899 [OTF, TTF, WOFF, WOFF2]
+[Wallpapers] Nature HD Wallpapers Pack
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Coretan Komedi — игривый и смелый шрифт-кисть, который идеально подходит для добавления юмора и энергии в ваши проекты.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+[Wallpapers] Nature HD Wallpapers Pack 
+Название:  Nature HD Wallpapers Pack 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 11370х7587
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A40C8E9FA563C6D40FBC9BCBB78BCDBE7FCE14D8
+magnet:?xt=urn:btih:1B3DAAA5A13F2F90A8642850CB039B0963CD72D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,26 +347,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785526   (69214) от 16.03.2025
+###  Публикация: 473826   (84441) от 26.03.2012
 
-НХЛ 2024-2025. Вашингтон Кэпиталз - Сан-Хосе Шаркс (15.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Каникулы в Мексике - 2. Выпуск №16 (2012.03.26) SATRip
 
->>Спорт и активный отдых
->>Хоккей
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 марта 2025, воскресенье. 00:00 МСК. Стадион: Эс-Эй-Пи-центр (Сан-Хосе, США), 17 435 зрителей (99% при вместимости 17 562)
-Главный судья: Крис Руни (Бостон, США); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Дерек Нансен (Оттава, Канада); Линейный: Джо Махон (Калгари, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:29
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36907FD4FFF7BDFE9E55AB6F1025024CE03D0556
+magnet:?xt=urn:btih:D7087801F2B4AAB4043992EC98A9C2550BA0843A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,26 +373,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785527   (69213) от 16.03.2025
+###  Публикация: 473416   (84439) от 26.03.2012
 
-НХЛ 2024-2025. Нью-Джерси Дэвилз - Питтсбург Пингвинз (15.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Neneh Cherry - Man (1996) [FLAC|Lossless]<Pop-rock>
 
->>Спорт и активный отдых
->>Хоккей
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 марта 2025, суббота. 22:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 442 зрителя (83% при вместимости 18 673)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:18
+1. Woman
+2. Feel It
+3. Hornbeam
+4. Trouble Man
+5. Golden Ring
+6. 7 Seconds
+7. Kootchi
+8. Beastiality
+9. Carry Me
+10. Together Now(   Читать дальше...   )Жанр: Pop-rockПродолжительность: 00:48:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3F3303A9021362740FFE8220F5C1282D999F4C7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,26 +408,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785463   (69212) от 16.03.2025
+###  Публикация: 473526   (84435) от 26.03.2012
 
-Sonny Rollins - In Denmark, Vol.1 (1968) 1992, Moon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+Алистер  Маклин | Санторин [2010] [MP3]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Four [47:55]
-02. Naima [10:32]Жанр: Hard Bop, Post-BopПродолжительность: 00:58:27
+Роман
+Оригинальное название:2010Жанр: Детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A997D80EBBB11152F93D75171FC97144CEA07F5
+magnet:?xt=urn:btih:F0B4BC3F78696056AAF5EAD716BD22E3F44C3146
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,28 +435,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785429   (69211) от 16.03.2025
+###  Публикация: 473289   (84434) от 26.03.2012
 
-Rioghan - Kept (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Gothic Metal, Progressive Metal>
+Любит - не любит... / Homecoming (2009) DVD5
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Dreams (00:04:15)
-02 - Hands (00:04:34)
-03 - Skin (00:04:26)
-04 - Edge (00:04:27)(   Читать дальше...   )Жанр: Alternative Metal, Gothic Metal, Progressive MetalПродолжительность: 00:51:22
+Спустя некоторое время в свой родной городок возвращается красавчик бывшая звезда школьной футбольной команды — Майк. Но он приезжает не один. Вместе с ним его новая гелфренд — богатая и миловидная девушка из Чикаго. Больше всех потрясена этой новостью бывшая подруга Майка. Девушка все еще не может забыть их школьный роман и задумывает отомстить ему…Жанр: ТриллерРежиссер: Морган Дж. ФриманАктеры: Миша Бартон, Мэтт Лонг, Джессика Строуп, Майкл Лэндис, Аллен Уильямсон, Джошуа Риз, Джои Форгиони, Алекс Хупер, Берди БеллПеревод: двуголосый закадровый профессиональныйЯзык субтитров: русскийПродолжительность: 01:31:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C106BA04BD5C6E8CCB4A78173C3DA4886552FA70
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,28 +461,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785465   (69210) от 16.03.2025
+###  Публикация: 473421   (84433) от 26.03.2012
 
-Sonny Rollins - In Denmark, Vol.2 (1968) 1992, Moon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+VA - XXXL Братва на воле (2012) [MP3|256 kbps]<Шансон>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Three Little Words [31:53]
-02. St. Thomas [3:02]
-03. Sonnymoon for Two [19:39]
-04. Medley [2:09](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:41
+01. Палычъ (Сеня Кривой) - Братва на воле
+02. Толик Романов - Все Пропил
+03. Сергей Трофимов - Как мне сейчас хорошо
+04. Олег Калашников - Прости Меня
+05. Юрий Кривицкий - Еду - Еду
+06. Евгений Росс - Белый Снег За Окном
+07. Александр Вестов - Голос хриплый
+08. Афина и Кронштадт - Голос
+09. Жуки - Разлюбила
+10. Михаил Винт - На всякий случай(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:23:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A662F835EC7CDB6214E3871A43E27FD9A0400964
+magnet:?xt=urn:btih:6D96C855986949BA5672EBCA10E696B3C125AEA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,28 +496,256 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785580   (69209) от 16.03.2025
+###  Публикация: 473469   (84431) от 26.03.2012
 
-Malevolent Hand - Entropic Immolation (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
+VA - Beauty And The Beast Compilation (2012) [MP3|320 кб/с]<Symphonic, Black, Gothic, Folk, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - From Shadows Emerge... (01:38)
-02 - All Consuming Hunger (04:21)
-03 - Fractured (04:07)
-04 - Misplaced Hate (04:08)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:36:53
+01. Ador Dorath — Adon Nin Edeleth Ador Dorath
+ 02. Aeternitas — Graduale
+ 03. After Forever — Two Sides
+ 04. Amor E Morte — Real Are the Dreams of Gods
+ 05. ANABIOZ — Родная Сторона
+ 06. Ancient Ceremony — Dulcet Seduction
+ 07. Arcane Grail — Of Snake And Raven
+ 08. Arch Of Hell — Utopia Treasure
+ 09. Asgaard — In Articulo Mortis
+ 10. Asgaroth — Absence Spells Beyond(   Читать дальше...   )2012Жанр: Symphonic, Black, Gothic, Folk, Doom MetalПродолжительность: 01:51:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49B92A991AB542E1520C75ECCCC500A80FCD3546
+magnet:?xt=urn:btih:5EB4B25309A8A30B4EBCD5435C41CB01F4A65D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473015   (84429) от 25.03.2012
+
+Драйвера и программы для принтера EPSON STYLUS Photo R270 Disk Vol. 2.0 [Русский, Английский, Украинский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ оригинального CD-диска, поставляемого с принтерами EPSON STYLUS Photo R270Название программы: Драйвера и программы для принтера EPSON STYLUS Photo R270Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472478   (84426) от 25.03.2012
+
+KeyGen Music(MP3) - 3139 треков (2000-2012) [MP3|192 кб/с]<8bit>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84426.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:04] .  - WinRAR and RAR unblacklister
+[01:16] .  - 2000AD - SimCity Deluxe intro
+[05:14] .  - ABAKUS - Indian Mission DE intro
+[01:01] .  - ACCESSiON - Cyberzerk intro
+[00:57] .  - ACTive PDA - VidaOne MyPersonalDiet 3.xkg
+[01:29] .  - AERiS - Hod Dog King +7trn_02
+[01:43] .  - AERiS - Hod Dog King +7trn_03
+[00:38] .  - AERiS - Hod Dog King +7trn_12
+[03:50] .  - AGiLE - Miami Chase intro
+[01:01] .  - AGRESSiON - Anti-Trojan Elite 3.4.3crk(   Читать дальше...   )Жанр: 8bitПродолжительность: 04:13:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27131E4E7B94487944A5977DBB6BB45EEBA23388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472672   (84425) от 25.03.2012
+
+Мультизагрузочная флешка v1.0 by SKLYARAN74 v1.0 [Русский\Английский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультизагрузочная флешка предназначена для загрузки операционных систем Windows XP/2000/Vista/7 и восстановительно-реанимационных утилит непосредственно с USB накопителя.Образ флешки сделан программой USB Image Tool.Название программы: Мультизагрузочная флешка v1.0 by SKLYARAN74Язык интерфейса: Русский\Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473132   (84423) от 25.03.2012
+
+[Mod] The Elder Scrolls V: Skyrim - Компиляция модов [Ru] 2012
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компиляция различных модов для игры The Elder Scrolls V: Skyrim.
+
+Заменены шрифты, заменены изображение и музыка в главном меню и многое другое...
+
+Все моды обновлены до последних версий.Тип издания: МодификацияЖанр: RPG / 3D / 1st Person / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450384   (84422) от 25.03.2012
+
+Река / The River (2012) WEB-DL [H.264/720p-LQ] (Сезон 1, 1-8 серии из 8) [Кириллица]
+
+>>След.
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84422.jpg" />
+</div>
+
+
+###  Подробнее
+
+В джунглях Южной Америки пропала небольшая экспедиция, отправившаяся разыскивать затерянное племя в верховьях Амазонки. Они не отвечали на вызовы и не прибыли в контрольную точку. Через некоторое время вторая группа исследователей решила отправиться на поиски пропавшей экспедиции. Им предстоит пройти через неимоверные испытания, чтобы понять, что же произошло на (   Читать дальше...   )Жанр: Ужасы, Драма, ПриключенияРежиссер: Жауме Серра, Кеннет Финк, Дин УайтАктеры: Брюс Гринвуд, Джо Андерсон, Лесли Хоуп, Элуиз Мамфорд, Пол Блекторн, Томас Кречманн, Дэниэл Зацапа, Шон Паркес, Паулина Гайтан, Джеф ГалферПеревод: Многоголосый закадровый, профессиональный - «Кириллица»Субтитры: Русские, английские (отдельным файлом)Продолжительность: 8х ~ 00:43:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472109   (84421) от 25.03.2012
+
+Неудержимые / The Expendables (Расширенная версия / Unrated) (2010) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд профессиональных наёмников и отчаянных парней во главе с Барни Россом получает непростое задание — любой ценой найти и уничтожить кровавого тирана-диктатора, нагнетающего страх на мирное население и сеющего хаос в южноамериканской стране.Отправляясь на выполнение нелёгкой миссии, закалённые огнём и водой, прошедшие не одну войну, люди Росса попадают в самое пекло. Отныне им придётся выживать: сплотиться и достигнуть цели, либо отчаяться и погибнуть. И всё же эти храбрые, поистине невозмутимые ребята готовы реализовать даже не реализуемое. Но не всё так просто, как кажется на первый взгляд…Жанр: Боевик, Триллер, ПриключенияРежиссер: Сильвестр Сталлоне / Sylvester StalloneАктеры: Сильвестр Сталлоне, Джейсон Стэтхэм, Джет Ли, Дольф Лундгрен, Эрик Робертс, Рэнди Кутюр, Стив Остин, Дэвид Зайас, Жизель Итье, Харизма КарпентерПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: АнглийскиеПродолжительность: 01:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11CA117069FE217C45C20E4B79FBC773C79EE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472888   (84420) от 25.03.2012
+
+Призрачный гонщик 2 / Ghost Rider: Spirit of Vengeance (2011) [H.264/720р-LQ] HDTVRip [Звук с TS]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается на задворках Восточной Европы, где главный герой Джонни Блэйз безуспешно пытается справиться со своим проклятием. Его принимает на работу некая секта, которая пытается заполучить дьявола в тот момент, когда он пытается вселиться в тело его смертного сына на дне рождения мальчика.Жанр: Фэнтези, Боевик, ТриллерРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Николас Кейдж, Кирен Хайдз, Виоланте Плачидо, Джонни Витуорт, Кристофер Ламберт, Идрис Эльба, Фергус Риордан, Спенсер Уидлинг, Сорин Тофан, Яцек КоманПеревод: Дублированный (Звук с TS)Язык субтитров: корейскийПродолжительность: 01:35:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472780   (84419) от 25.03.2012
+
+[Xbox 360] Naruto Shippuden: Ultimate Ninja Storm Generations [PAL/ENG] (LT+ 3.0 (XGD3/13599)) (2012)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Naruto Shippuden: Ultimate Ninja Storm Generations – продолжение Naruto Shippuden: Ultimate Ninja Storm. Эта часть игры будет развивать сюжетную ветвь первого и второго сезона манги Наруто. На сей раз акцент сделан на битвах, а не на сюжете. Разработчики также учли ошибки  Ultimate Ninja Storm2  и уделили особое внимание балансу.
+Игра порадует большим количеством героев: в рядах бойцов окажутся Даруи, Киллер Би, Си, Райкагэ, Хаку, Дзабудза, а также все ключевые фигуры. Кроме того, в Ultimate Ninja Storm Generations расширен многопользовательский режим – игроки смогут друг с другом онлайн, используя любимых героев.Разработчик: CyberConnect2 Co., Ltd.Жанр: ДракиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C1DC7FEF14297E8E6CC4B51D1D1859FFDFC2D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -317,6 +317,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918025   (587716) от 14.07.2015
+
+The Fab Four (Beatles) - Solo Greatest Hits (4CD) (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photograph
+02. It Don't Come Easy
+03. Oo-Wee
+04. You're Sixteen (You're Beautiful, and You're Mine)(   Читать дальше...   )Жанр: RockПродолжительность: 05:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39697BBA7A49C36D1B99A3A588C80B71D48D75D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040134   (587523) от 04.08.2016
 
 Starry Saints - Serenade (with bonus singles) (2010-2011) [MP3|256 Kbps] <Alternative Pop Rock, Electronic Indie Rock, Shoegaze>
@@ -512,6 +541,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041032   (584530) от 07.08.2016
+
+Attraction 65 - Attraction 65 (2003) [MP3|320 Kbps] <Rock, Classic Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_584530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe    03:42
+02. Roll On    03:40
+03. In Another Life    03:52
+04. Train    04:32(   Читать дальше...   )Жанр: Rock, Classic Rock, Melodic Hard RockПродолжительность: 00:00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39E152B68CD7014385AAB6F516962946B857A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040880   (584474) от 07.08.2016
 
 Uncle Dog - Old Hat (1972) Remastered, 2005, Air Mail Archive [MP3|320 Kbps] <Rock, Blues Rock>
@@ -679,64 +737,6 @@ Van Morrison - Les Genies du Rock - Brown Eyed Girl (1995) [MP3|320 кб/с]<Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3404A27E44544D947AAEE2A0C2ABE42DCEE47BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919587   (582940) от 19.07.2015
-
-Fletwood Mac - Les Genies du Rock - Black Magic Woman (1995) [MP3|320 кб/с]<Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man of the world [02:52]
-02. Someone's gonna get their headkick in tonite[02:47]
-03. Oh well [03:34]
-04. Lilke it this way [04:17](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD2E296D3E48A5C3B56501D22879189DFBD8909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919361   (582934) от 19.07.2015
-
-The Sweet - Les Genies du Rock - Fox on the Run (1995) [MP3|320 кб/с]<Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Action [03:29]
-02. 4Th of July [03:50]
-03. Cockroach [04:53]
-04. Fox on the Run [01:41](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B8ED497F2A25F8C69F6A4A30BEF280F0DF8261
 ```
 
 https://mybot314.ru/tekegram_catalog/

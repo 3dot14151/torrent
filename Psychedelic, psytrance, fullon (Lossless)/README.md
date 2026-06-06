@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1871222   (1069511) от 
+###  Публикация: 1871222   (1069511) от 16.05.2026
 
 VA - The Sound Of Solomonari Festival 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Goa Trance>
 

@@ -1,29 +1,3 @@
-###  Публикация: 958631   (323235) от 21.11.2015
-
-Minecraft Story Mode: A Telltale Games Series - Episodes 1 & Season Pass (2015) [Xbox360] [RegionFree] [LT+1.9] [License] [Ru] | R.G. X360CLUB
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Action / AdventureЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7642D95A0475FF8E93FE93DAAAEBA00B075659A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181020   (322988) от 07.11.2017
 
 Unit 13 (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru]
@@ -683,6 +657,33 @@ Hot Wheels: Track Attack [Wii] [PAL] [Multi 5] (2010)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC77B34838C42C3BE4F6578E69AF042C5F430B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421896   (314822) от 06.11.2020
+
+MySims SkyHeroes (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314822.jpg" />
+</div>
+
+
+###  Подробнее
+
+В MySims SkyHeroes игрокам предстоит отправиться в небо и выступить против Моркубуса с его армией дронов. Вашей главной задачей будет остановить его злобные планы по захвату воздушных путей.
+Начиная в роли неизвестного пилота, вам предстоит заполучить всеобщее признание и стать настоящим героем. Для этого придется сразиться с толпами противников в воздушных баталиях. (   Читать дальше...   )Тип издания: LicenseРазработчик: Electronic ArtsЖанр: Arcade, Simulation, Flight CombatЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAE9567D8ECC1EA47E466925958541D0AAB47B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1020597   (745454) от 26.05.2016
+
+Automat - Automat (1978) [MP3|320 кб/с] <Electronic, Disco, Ambient>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Automat: a) (The) Rise   (6:09)
+02. Automat: b) (The) Advance   (4:06)
+03. Automat: c) (The) Genus   (6:40)
+04. Droid   (5:25)(   Читать дальше...   )Жанр: Electronic, Disco, AmbientПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5630BA192E76DF80DD1E864E64E50E23975A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020952   (743698) от 27.05.2016
+
+Tantra - The Collection (2013) 2CD [MP3|320 кб/с] <Electronic, Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянская группа Tantra - проект композитора, аранжировщика и продюсера Celso Valli,  являющимся одним из пионеров итальянской диско-сцены и известным по работе с Macho, Azoto и Passengers. Композиция Hills Of Katmandu была ремикширована Patrick Cowley и является классикой space-disco.01. Hills Of Katmandu   (16:22)
+02. Wishbone   (15:43)
+03. Su-Ke-Leu   (2:33)
+04. Mother Africa   (4:39)(   Читать дальше...   )Жанр: Electronic, Disco, Euro-DiscoПродолжительность: 02:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70ADB6D75278AE3704092C79F701AA629BE35FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524562   (743634) от 16.01.2022
 
 The J.B.'s - Groove Machine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -687,64 +745,6 @@ Shannon - Let The Music Play (1984) LP [MP3|320 Kbps] <Electronic, Freestyle, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:872E881E89D739233DD7427AF69C44FA63802D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284992   (724477) от 24.02.2019
-
-Blue System - The UltraTraxx Remixe 1-2 (2009) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. History (UltraTraxx 12 Inch Version) (6:26)
-02. Laila (UltraTraxx 12 Inch Version) (6:39)
-03. That's Love (UltraTraxx 12 Inch Version) (7:31)
-04. Only With You (UltraTraxx 12 Inch Version) (7:43)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A80A8F01563CCA2F717E2D2EDE1D3ABBF72BF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023559   (724414) от 05.06.2016
-
-The Golden Filter - Voluspa (2010) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Indietronica, Synth Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Around The Fire
-02. Hide Me
-03. Look Me In The Eye
-04. Moonlight Fantasy(   Читать дальше...   )Жанр: Nu-Disco, Indietronica, Synth PopПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6CB7FF4D889BC57A4148DA5A392B66CB374EB2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

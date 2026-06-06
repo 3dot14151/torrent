@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874720   (1072127) от 
+
+Evanescence - Sanctuary (2026) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Lie
+02. Tell Me When You've Had Enough
+03. Who Will You Follow
+04. Rapture(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EAE2712ECCF69CD658052B49DCB10AD3352C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855910   (1058758) от 26.02.2026
 
 Gorillaz - The Mountain (2026) Deluxe Edition [MP3|320 Kbps] <Alternative-Rock, Trip-Hop, Leftfield, Electronic>
@@ -717,35 +746,6 @@ Serj Tankian - Elasticity (2021) EP [MP3|320 Kbps] <Alt. Rock, Metal, Experiment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:667C770494FDD6330FFC18C1BE621997993FB307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457827   (1024261) от 27.03.2021
-
-RA - Intercorrupted (2021) [MP3|320 Kbps] <Alternative, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:52)
- 02. Intercorrupted (04:02)
- 03. Let's Go to Mexico (03:33)
- 04. Loud (04:00)(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD0356FDDB17C971645D33689868BFF55E83BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

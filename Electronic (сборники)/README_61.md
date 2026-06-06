@@ -1,3 +1,90 @@
+###  Публикация: 1205200   (784060) от 08.02.2018
+
+VA - Melodic Music Vol.2 (Compiled by HABL) (2018) [MP3|320 Kbps] <Melodic DubStep, Drum & Bass, ChillStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Digital Department & Dan K, Elvenfox feat. Jay Furze  -  Wasted Away (Under This Remix)  5:30
+02.  Excision  -  With You (feat. Madi)  4:25
+03.  StravaGanza  -  In Motion  3:40
+04.  Trixtor & Pantsmode  -  Summer Memories (Original Mix)  3:10(   Читать дальше...   )Жанр: Melodic DubStep, Drum & Bass, ChillStep, Trance, DrumStepПродолжительность: 02:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB857FCB1B95CA028FCFB942D227613683C83E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205209   (783783) от 09.02.2018
+
+VA - Drum Jungle: Indigo Visions (2018) [MP3|320 Kbps] <Drum and Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3D Stas - Aftermath (Original Mix)
+002. GLXY, QZB - Yes Jah
+003. Edifex - Staring into Space
+004. Move Mode - Over You (Original Mix)(   Читать дальше...   )Жанр: Drum and Bass, JungleПродолжительность: 08:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4B211208E2188FBCC7BA0C662750DD24F3DED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205539   (783534) от 10.02.2018
+
+VA - The Official UK Top 40 Singles Chart 09.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan
+02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+03. Ramz – Barking
+04. Dua Lipa – IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEAD53DDA7E44ADBD75FDDFB0F66DFF1D7EA74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204118   (783532) от 10.02.2018
 
 VA - JB-Mix 19 (2017) [MP3|320 Kbps] <Drum n Bass, Dub Step, Jungle>
@@ -658,93 +745,6 @@ VA - The Great Drum Wave (2020) [MP3|320 Kbps] <D&B, Bassline>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93AB8025FCE82B87D3326E31C2AFA740E6F625F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391486   (781001) от 20.06.2020
-
-VA - Beatport Deep House: Electro Sound Pack #107 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781001.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frank Rain - Deep Vertigo
-002. Velvet House - This Is A Supernova
-003. Frank Fusto - A Passion To Explain
-004. Armand Gucci - Syncrodance(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 07:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6524532C8FA97C87E413FEED273B46867481C1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207357   (780864) от 17.02.2018
-
-VA - Record Super Chart #524 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-02.  Maruv & Boosin  -  Drunk Groove (Kolya Funk & Mephisto Radio Mix)  3:43
-03.  GSPR  -  With You  4:17
-04.  Vanotek feat. Eneli  -  Back To Me (DJ Mexx & DVJ Karimov Radio Remix)  3:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC13BBA0B8D12DA42A32B1D9531EA4F66E2A1EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207089   (780810) от 17.02.2018
-
-VA - Vocal Trance Collestion Vol. 8 (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah Lynn - Put You Together Again
-02. Javah - One By One (Dima Krasnik Radio Edit)
-03. Standerwick & Haliene - Deep End (Club Mix)
-04. Paul Oakenfold feat. Amba Shepherd - Love Escape(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601FEEB9DBDCE15856F2488111FD9B1A4D7C4DDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

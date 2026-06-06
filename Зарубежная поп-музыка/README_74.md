@@ -1,3 +1,90 @@
+###  Публикация: 1343616   (216144) от 07.12.2019
+
+Blue System - Maxi & Singles Collection (2019) Dieter Bohlen Edition, 3CD [MP3|320 Kbps] <Pop, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216144.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sorry Little Sarah 3:31
+02. Big Boys Don't Cry 3:11
+03. Gangster Love (Maxi Version) 4:28(   Читать дальше...   )Жанр: Pop, Euro-DiscoПродолжительность: 03:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D7FA0969A2BA929CC1323C861C9FFEECE79397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270195   (216050) от 17.12.2018
+
+VA - Now That's What I Call Merry Christmas (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Mistletoe
+02. Ariana Grande - Winter Things
+03. Pentatonix – Mary, Did You Know?
+04. Sam Smith - Have Yourself A Merry Little Christmas(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591E50CB07D170D54B50D150F7D63D2BD7E1E985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270126   (215880) от 17.12.2018
+
+VA - NRJ Christmas Hits (2018) [MP3|320 Kbps] <Pop, Electropop, Hip Hop, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215880.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ariana Grande - Santa Tell Me
+02. Kendji Girac - Pour Oublier
+03. Pink - Secrets(   Читать дальше...   )Жанр: Pop, Electropop, Hip Hop, ReggaeПродолжительность: 02:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA5810568E919632F37CA52B1D16D9F81C1340B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270180   (215220) от 17.12.2018
 
 Alan Walker - Different World (2018) Japanese Edition [MP3|320 Kbps] <Electronic, Dance, Pop>
@@ -658,93 +745,6 @@ VA - Romantic Collection. Golden Oldies (2000) [OGG Vorbis|480 Kbps] <Pop, Oldie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:677D6BB832E70834415082323F07AB4EF3BDC9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614033   (206878) от 20.02.2023
-
-VA - Romantic Collection. Instrumental 2000 (2000) [OGG Vorbis|480 Kbps] <Instrumental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fausto Papetti - Emmanuelle
-02. Era - Flowers of the Sea
-03. Giorgio Moroder - Love Theme from 'Flashdance'
-04. Jan Morks - You Don't Know How Much You Can Suffer(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB9C88824BA72517511880989BB785D9948749E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652140   (206645) от 10.08.2023
-
-VA - Now That's What I Call Music 87 (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop, Post-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miley Cyrus - Flowers
-02. Post Malone - Chemical
-03. NF - Happy
-04. Ed Sheeran - Eyes Closed(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, Post-DiscoПродолжительность: 01:15:48 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D788F208E0BEF6C562D4A30340C1C6864E77BA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652141   (206636) от 10.08.2023
-
-VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spice Girls - Wannabe
-02. Backstreet Boys - Everybody (Backstreet's Back) (Radio Edit)
-03. NSync - I Want You Back (Radio Edit)
-04. Salt-N-Pepa - Shoop(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, DowntempoПродолжительность: 01:08:39 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842CD8CAD698D43F254DFB276BAD79A013728C13
 ```
 
 https://mybot314.ru/tekegram_catalog/

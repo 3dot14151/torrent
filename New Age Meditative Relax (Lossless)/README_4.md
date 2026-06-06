@@ -1,3 +1,32 @@
+###  Публикация: 1099606   (903376) от 02.02.2017
+
+Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <New Age, World, Aboriginal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  She Is Untouchable  (06:37) 
+02|  The Journey  (05:38) 
+03|  Gift from the Spirits  (07:01) 
+04|  Woodpecker Dance  (05:42) (   Читать дальше...   )Жанр: New Age, World, AboriginalПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099714   (903278) от 02.02.2017
 
 Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
@@ -711,35 +740,6 @@ Vangelis - Voices (1995) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DA2D113DF2D65BCF1FB450F3E077F41058F796B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104942   (878114) от 16.02.2017
-
-Cusco - Essential Cusco: The Journey (2005) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Gama (3:33)
-02. Oracle Of Delphi (4:30)
-03. Waters Of Cesme (4:30)
-04. Africa - Africa (4:06)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA47FF17862CEF17F818B31EA8540EB1018AD01C
 ```
 
 https://mybot314.ru/tekegram_catalog/

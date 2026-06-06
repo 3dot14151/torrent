@@ -1,3 +1,90 @@
+###  Публикация: 1798807   (17251) от 23.05.2025
+
+VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Jennifer Dons - Desert Groove (Original Mix) (5:24)
+02. Don Lockwood, Tibetania - Whirligig (Original Mix) (5:22)
+03. Gabriel Slick, Tibetania - Day & Night (Original Mix) (5:54)
+04. Tibetania, Willco - Cosmic Breath (Original Mix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810838   (16723) от 07.08.2025
+
+VA - Pioneer LaserActive - The Art Of Entertainment - Private Music Sampler (1993) [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Funk / Soul, Blues, Pop, Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taj Mahal / Strut    [0:03:43.07]
+02. A.J. Croce / Which Way Steinway    [0:03:20.50]
+03. Leon Redbone / Lazy River    [0:03:05.08]
+04. Pahinui Brothers / Jealous Guy    [0:04:56.07](   Читать дальше...   )Жанр: Jazz, Rock, Funk / Soul, Blues, Pop, FolkПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEB543B0FAC28C5B08DEEBE99108E2F24BBF8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811334   (16325) от 09.08.2025
+
+VA - The Orient Collective: Earth And Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Mateus - Earth and Sky (5:34)
+02. Mikhail Catan - Mirage (Ali Termos) (6:37)
+03. Juantxo Munoz - Aqsa (7:16)
+04. The Hanumans - Azalai (5:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44309419E7D3131752D17C73BD3B4DE9DB5797A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811395   (16231) от 09.08.2025
 
 VA - The Orient Collective: Sacred Earth (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>

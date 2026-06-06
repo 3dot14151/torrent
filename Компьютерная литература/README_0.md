@@ -1,3 +1,29 @@
+###  Публикация: 1866696   (1066306) от 21.04.2026
+
+Анна Лепешкина | Основы анимации в Spine 2D для начинающих. Как создавать крутые игры без гигантских бюджетов (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Spine 2D представляет собой идеальный инструмент для создания анимации персонажей в 2D. Она широко используется в игровой индустрии, а также в различных проектах для мобильных приложений, веб-сайтов и рекламных материалов, где требуется создание анимации. Книга поможет читателям овладеть навыками работы в программе Spine 2D, а также научиться использовать (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58D6E347BDFBD41FB296F6F22FF6561AD04FE80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866737   (1066283) от 21.04.2026
 
 Josep M. Roig-Fuste | Python for Psychology, Social Sciences, and Education (2026) [PDF, EPUB] [EN]
@@ -657,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1BB8825E57E9A61EBC7BAB751A23514AE451AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865882   (1065948) от 
-
-Bradley L. Jones | C++ For Dummies. 8th Edition (2026) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065948.jpg" />
-</div>
-
-
-###  Подробнее
-
-An accessible walkthrough of one of the world's most popular programming languages: C++
-
-C++ For Dummies is your from-scratch guide that explains the essentials of what you need to know to understand the language and build your very first program in C++. Bradley Jones, experienced programmer and coding educator, packs this edition with examples and clear demonstrations (   Читать дальше...   )Жанр: C++ Programming Language, Object-Oriented Design, Software DevelopmentЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9388A60462FA84B70453C36EEACC73EBFDB1F363
 ```
 
 https://mybot314.ru/tekegram_catalog/

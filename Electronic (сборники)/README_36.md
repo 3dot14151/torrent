@@ -1,3 +1,90 @@
+###  Публикация: 1372020   (887145) от 02.04.2020
+
+VA - Beatport Funky House: Electro Sound #42 (2020) [MP3|320 Kbps] <Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Inusa Dawuda - Love Criminal (Mota Remix)
+002. Angelica Rose - Look Me In The Eyes
+003. Freddy Fader Meets Locana - Suenan
+004. French La Touche - Baby Please Don't Go(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 13:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BB55FCD0FBEB88941A639D4547560D320A3CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372031   (887117) от 02.04.2020
+
+VA - Spring Holiday Party: Electro House Selections (2020) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887117.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wallas - Love Reason
+002. Alek Soltirov - Check The Cables
+003. Crunchy Masters - In That World
+004. Topa - In The House (Original Mix)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 13:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDB70160ABD5BF5EB9B672DC0943C63422C87A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372025   (887078) от 02.04.2020
+
+VA - Luxury Deep House: Beats Session (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Amnesia - 8 Below
+02. Nomura Taio - What A Man
+03. Therd Suspect - Me Seeing You
+04. Saturn 15 - Apocalypse(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4076AB2956CDCBE1691FE8F81255AD7E2DD564DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372218   (886378) от 02.04.2020
 
 VA - Top50: Tracks Deep House Ver.20 (2020) [MP3|320 Kbps] <House, Deep House, Electronic>
@@ -657,93 +744,6 @@ VA - Positive Frequency: Really Techno Sound (2021) [MP3|320 Kbps] <Clubbing Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB46A8D2F5A8E52F70D260F1243B272EB6ACC585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495315   (880720) от 12.09.2021
-
-VA - Golden Summer Party (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880720.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gabrielle Aplin - Kintsugi
-002. Michael Schulte - What Heroes Do
-003. Dermot Kennedy - Paradise
-004. Chris Galmon - Life Line(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68242ADDCD0ECA1573372318E70CA9A9226BA1F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495300   (880717) от 12.09.2021
-
-VA - Beatport Deep House: Sound Pack #346 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880717.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Thulane Da Producer - Winter Is Coming
-002. Spate - Crescent
-003. Dam Swindle - Pain Tomorrow
-004. Jo Paciello - It's In Your Mind(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340F15992927D126038049DEBE9C94F9FC17512D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495295   (880716) от 12.09.2021
-
-VA - Beatport Techno: Sound Pack #345 (2021) [MP3|320 Kbps] <Techno, Tech House, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Di Saronnojohnick - Instant Coffee
-002. Rondon - Lost In Da Pond Rd
-003. Pvlsx - Drvmvlator
-004. Sir Vee The Great - A Feeling(   Читать дальше...   )Жанр: Techno, Tech House, Minimal, ElectroПродолжительность: 11:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D080E318CF390C124C3F5FC349EFA3A5AB35C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

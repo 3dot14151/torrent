@@ -1,3 +1,263 @@
+###  Публикация: 967807   (148865) от 26.12.2015
+
+Сергей Матвеев | Английский язык для любого возраста (2015) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга популярного автора Сергея Матвеева включает следующие разделы: «Об английском произношении» (здесь приведены основные правила английского произношения, а также представлены многочисленные исключения из правил), «Грамматика» (даны сведения, необходимые для того, чтобы разобраться в основных грамматических сложностях и овладеть навыками устной и письменной речи), (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51DE59E39F7E296BDEA115E69C94256999E6D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968657   (148703) от 26.12.2015
+
+Дон-Мишель Бод | Kind Regards. Деловая переписка на английском языке (2015) [FB2]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умение вести деловую переписку по электронной почте на английском языке – одна из ключевых компетенций в бизнесе. От способности четко, грамотно и убедительно сформулировать мысль, от знания этикета деловой переписки может зависеть очень многое. Дон-Мишель Бод, специалист по коммуникациям с мировым именем, на конкретных примерах из практики топ-менеджеров, маркетологов, (   Читать дальше...   )Жанр: Английский языкФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B61351F790F48173EF9041A51E4EE8816229E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969090   (148623) от 26.12.2015
+
+О. Патлатая | Английский язык. Грамматика в кармане + разговорник (2014) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение иностранных языков – дело не такое уж страшное и трудное. А при грамотном подходе – даже занимательное! Вы держите в руках очень краткий справочник по грамматике английского языка. Насколько он краток? А настолько, чтобы охватить минимальный объём грамматики, без которого невозможно грамотно говорить и писать на английском языке. Методом сжимания и урезания (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81B6FCEC53BC3D18ADFC01A05DD63333A772FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347682   (148608) от 24.12.2019
+
+А.В. Ямпольская, В.В. Медведева | 60 устных тем по итальянскому языку (2005) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие рассчитано на широкий круг лиц, изучающих итальянский язык. Основная цель пособия - помочь абитуриентам и всем изучающим язык овладеть лексическим, грамматическим и страноведческим материалом, необходимыми для сдачи выпускных и вступительных экзаменов по итальянскому языку. Книга может быть также использована на занятиях по итальянскому языку, итальянской (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46D91C479E4D44645A5684470B556C16AF7ED35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347680   (148548) от 24.12.2019
+
+В.Г. Оношко, И.Г. Константинова | Совершенствуйте ваш итальянский! 300 упражнений с ключом (2012) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148548.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Совершенствуйте ваш итальянский!" - это сборник эффективных упражнений для продолжающего уровня изучения языка. Упражнения на перевод и тренировку ключевых грамматических структур помогут проверить себя, выявить пробелы в знаниях и отработать то, что нуждается в повторении. Краткие комментарии напомнят о важных грамматических тонкостях, а работа с текстами (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F34DB6D15AC0387CE3C094D4F95E913FC63EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435050   (147362) от 26.12.2020
+
+Н.М. Брель, Н.А. Пославская | Английский язык. Базовый курс (2021) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник имеет ярко выраженную практическую и коммуникативную направленность и позволяет в короткие сроки набрать необходимый для полноценного общения и дальнейшего изучения английского языка объем грамматики и лексики. Все главы основного курса сюжетно связаны между собой, что поможет избежать монотонности при изучении учебного материала. Соответствует ФГОС СПО последнего (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB0C7011749A36CD48D5832651B34D0C6720D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347822   (147212) от 25.12.2019
+
+Е.А. Рыжак | Итальянский язык. Италия на ладони. 22 темы по страноведению (2009) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие по страноведению для изучающих итальянский язык; состоит из текстов и заданий на итальянском языке. Может быть использовано не только в ВУЗах, школах, на курсах языка, но окажется полезным при самостоятельном изучении итальянского языка. Содержит ключи к заданиям.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B3189F7D8133B6723A1F68832CE29617374BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969409   (146706) от 27.12.2015
+
+Григорий Вейхман | Разговорный английский. Канада. Австралия. Новая Зеландия (+ MP3) (2014) [PDF, MP3]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146706.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге  вы найдёте актуальную информацию о современном английском, на котором говорят в Канаде, Австралии, Новой Зеландии, его специфике и особенностях. С её помощью вы узнаете много интересного об этих странах и сможете легко общаться с их жителями и комфортно чувствовать себя там!  Книга предназначена для тех, кто изучает английский язык на курсах и самостоятельно, (   Читать дальше...   )Жанр: Английский языкФормат: PDF, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718194EAFE9DAC4F125F74B2F9389069738595EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969701   (146503) от 27.12.2015
+
+Сергей Матвеев | Английский язык за 3 месяца (2013) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный самоучитель, предназначенный для тех, кто не знает английского языка, но хочет им овладеть. За три месяца обучения читатель с помощью этой книги сможет приобрести основные знания и навыки, которые позволят ему читать английские тексты и объясняться по-английски. Книга содержит необходимые грамматические сведения, правила и упражнения, самые нужные слова (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A894990A6BEF076FC41BD5F1B13D02963DF181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435205   (145215) от 27.12.2020
+
+Елизавета Хейнонен | 365 дней английского [тетрадь 1-7] (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги предназначены для тех, кто в изучении английского языка не продвинулся дальше уровня «читаю со словарем» и желает научиться говорить (а не только читать и писать) по-английски. Обучение разговорной речи происходит параллельно с повторением грамматики − шаг за шагом, от самого простого к более сложному. При этом грамматика не является самоцелью, а только (   Читать дальше...   )Жанр: Иностранные языки, СамоучителиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691E17CE616C1BD76A6BBA58A35E80BFBD306198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678982   (141412) от 23.11.2023
 
 Anna Gandrabura | Grammar Phrasebook (2023) [PDF]
@@ -424,282 +684,6 @@ Sandra N. Elbaum was an ESL Instructor at Truman College, one of the City Colleg
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726972   (108635) от 31.05.2024
-
-Pamela J. Sharpe | Barron's TOEFL iBT. Fourteenth edition (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108635.jpg" />
-</div>
-
-
-###  Подробнее
-
-The most up-to-date test prep manual on the market, Barron's TOEFL iBT is available as a book only, but can also be purchased with several additional test preparation tools. The manual presents:
-A general overview of the TOEFL iBT
-Seven model TOEFL iBT tests with explanations or examples for all questions
-A review of required academic skills, including note taking, (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Barron's Educational SeriesФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4CE4EDBC9A53D701FBDC365BA105A32D95818E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726962   (108632) от 31.05.2024
-
-Rod Ellis | Understanding Second Language Acquisition (2015) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108632.jpg" />
-</div>
-
-
-###  Подробнее
-
-The book reflects recent trends in looking at cognitive and social aspects of second language acquisition, as well as examining the roles played by implicit and explicit instruction in language learning.
-Additional online resources are available at www.oup.com/elt/teacher/understandingsla
-Rod Ellis is the Distinguished Professor of Applied Language Studies in the (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28494274DC632D6D0D9CFE4B3CF32AB197E0EE74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727194   (108598) от 01.06.2024
-
-Ed Swick | English Problem Solver (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108598.jpg" />
-</div>
-
-
-###  Подробнее
-
-English Problem Solver doesn't pretend that learning English is easy. Instead of covering the entirety of the language, it hones in on those areas where you might have difficulty--areas such as definite vs. indefinite articles, little vs. few, using get, and restrictive and non-restrictive relative clauses.
-Inside...
-A variety of extensive exercises for practice. (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: McGraw-Hill EducationФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3269CCD1501EE290515AEE6EE2A306C10D55D4AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727532   (108511) от 02.06.2024
-
-Brian Tomlinson (editor) | Materials Development in Language Teaching. Second Edition (2011) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Materials Development in Language Teaching aims to help readers apply current theoretical principles and research findings to the practical realities of developing and exploiting classroom materials. The authors also suggest new ideas and directions in materials development, which readers can pursue for themselves. This book is accessible to readers with little previous (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34CDA85EA06E8ED262157C6E1716ACAB1235E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727630   (108453) от 03.06.2024
-
-Adrian Wallwork | Word Games, Riddles and Logic Tests (2017) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tax Your Brain and Boost Your English
-This book contains exercises connected with some of the fun or more unusual aspects of the English languageand with games that typically a native English speaker would do. The games have been adapted into a manageable format, but the actual vocabulary contained has not been changed.
-The types of games include: lateral thinking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C80478D7D798F2CB850E7FA06492F755F5B989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727641   (108433) от 03.06.2024
-
-Larry Ferlazzo, Katie Hull-Sypniesk | The ESL / ELL Teacher's Survival Guide (2012) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ready-to-Use Strategies, Tools, and Activities for Teaching English Language Learners
-Provides research-based instructional techniques which have proven effective with English learners at all proficiency levels
-Offers thematic units complete with reproducible forms and worksheets, sample lesson plans, and sample student assignments
-The book?s ESL lessons connect (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Jossey-BassФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FF2ACD96DAF3806705AB0DD56054432CD05927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728452   (108352) от 07.06.2024
-
-James Dean Brown, Christine Coombe (еditors) | The Cambridge Guide to Research in Language Teaching and Learning (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108352.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book provides an up-to-date and comprehensive overview of research methods in second-language teaching and learning, from experts in the field. The Cambridge Guide to Research in Language Teaching and Learning covers 36 core areas of second-language research, organised into four main sections Primary Considerations; Getting Ready; Doing the Research; Research (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D808CCCB3B9D44057E97A02FBEB2A78076C06AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729704   (108067) от 12.06.2024
-
-Mike Thacker, Casimir Angelo | Essential French Grammar (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Essential French Grammar is a student-friendly French grammar designed to give learners a firm foundation on which to build a real understanding of both spoken and written French.
-Clear explanations of grammar are supported by contemporary examples, lively cartoon drawings and a variety of exercises.
-Key features of each chapter:
-each grammar point explained initially (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A973F47F99FB5E20C9DE3A8D886A0B0F4973E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729738   (108066) от 12.06.2024
-
-Yeşim Aksan, Mustafa Aksan | A Frequency Dictionary of Turkish (2017) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108066.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Frequency Dictionary of Turkish enables students of all levels to build on their study of Turkish in an efficient and engaging way.
-Based on a 50 million word corpus, A Frequency Dictionary of Turkish provides a list of core vocabulary for learners of Turkish as a second or foreign language. It gives the most updated, reliable frequency guidelines for common vocabulary (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B95ABC190F94F0BAED47B2AD55EA85FF6E8432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731597   (107721) от 21.06.2024
-
-Mitsuko Maeda-nye, Shizuro Okada | 15-Minute Japanese. Learn in just 12 weeks (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twelve themed chapters are broken down into easy-to-follow 15-minute daily lessons, spanning a range of practical themes, including leisure, business, food and drink, travel, and shopping. Each lesson combines vocabulary and grammar essentials with attractive full-color images, making it quick, easy, and fun to learn new Japanese vocabulary. There is no writing or (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C988787514623B1C1B80DA029EC07E5924FAA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

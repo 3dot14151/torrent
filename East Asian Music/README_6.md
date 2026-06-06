@@ -1,3 +1,30 @@
+###  Публикация: 799951   (644296) от 27.06.2014
+
+Aki no Sora - 10 альбомов (2008-2013) [FLAC|Lossless] <Vocal, J-Pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644296.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:04] 01. 三澤秋 - ぼくらの朝におはよう
+[03:04] 02. 三澤秋 - ぼくらの朝におはよう (instrumental)Жанр: Vocal, J-PopПродолжительность: 00:00:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453DEF98AB37D8C880325D96A71B34D5EAD2CE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032549   (643545) от 08.07.2016
 
 Kelly Simonz's Blind Faith - The Best Of (2009) Compilation [MP3|320 Kbps] <Neoclassical Metal, Shred>
@@ -682,6 +709,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354223   (610483) от 23.06.2011
+
+Cecilia Cheung - 4 albums (1999-2001) [FLAC|Lossless]<Cantopop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_610483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 经验(情迷大话王电影歌曲)
+02. 神奇戏法
+03. 任何天气
+04. 留给最爱的说话
+05. 星语心愿
+06. 一直掛念
+07. 目的地
+08. 不用多说
+09. 不一样的我
+10. 迷恋爱剧场(   Читать дальше...)Жанр: CantopopПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819126   (609187) от 02.07.2017
 
 JORMUNGAND - 3 альбома (2014-2017) KanColle Vocal /Doujin/ [FLAC|Lossless|tracks] <Power Metal>
@@ -704,64 +766,6 @@ JORMUNGAND - 3 альбома (2014-2017) KanColle Vocal /Doujin/ [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24D0237DE8906DE4862BFBAE7B3A3AE77DB5F7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818350   (608975) от 02.07.2017
-
-ALiCE'S EMOTiON - 49 альбомов (2005-2017) Touhou Vocal, Vocaloid /Doujin/ [FLAC|tracks] <Hardcore, Techno, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2015.05.10 (AECD-042) Precious Ray (Reitaisai 12)
-2016.04.24 (AECD-044) HOOTER (M3-37)
-2017.05.07 (AECD-046) SELECTiONS (Reitaisai 14)Тип издания: DoujinЖанр: Hardcore, Techno, ElectronicФормат: Touhou Vocal, VocaloidПродолжительность: 01:18:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889021F7BC231AC27758488EB652898203BA7B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818355   (608970) от 02.07.2017
-
-A-One | A1 - 36 альбомов (2008-2017) Touhou Vocal, KanColle /Doujin/ [FLAC|tracks] <Electronic, Eurobeat, Trance, J-Pop>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2016.10.08 (AONE-0038a) Lunatic Scarlet (Kouroumu 12)
-2016.12.29 (AONE-0038) TOHO EUROBEAT VOL.14 Koumakyou (C91)
-2017.05.07 (AONE-0040) TOHO EUROBEAT VOL.15 Mystic Dreams (Reitaisai 14)Тип издания: DoujinЖанр: Electronic, Eurobeat, Trance, J-PopФормат: Touhou VocalПродолжительность: 01:00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF973622AA74596BB0848442A23BE29C2DC43C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

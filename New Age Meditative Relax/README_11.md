@@ -1,3 +1,32 @@
+###  Публикация: 1224481   (666008) от 10.05.2018
+
+Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Days of Sorrow (3:26)
+02. The Return (5:06)
+03. Retired By a Mistake (3:18)
+04. Futura (4:50)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D040F7C50BCB1A70075FE0A9AF3993D39FDC15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139042   (661293) от 01.06.2017
 
 VA - Deep Silence Meditation: Best New Age 2017 Asian Garden Chinese Music [MP3|320 Kbps] <New Age>
@@ -735,35 +764,6 @@ David Antinolfi - The Music Of Relaxation (2009) [MP3|128-320 кб/с]<New age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20385C4FC6C51C133762CC7FC82FAEE47EFA8155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228556   (635697) от 01.06.2018
-
-Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dreams of sunbeams
-02 Cloud pictures passing by
-03 Spring break
-04 Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

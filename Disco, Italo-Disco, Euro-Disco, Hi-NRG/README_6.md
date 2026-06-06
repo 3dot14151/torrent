@@ -1,3 +1,61 @@
+###  Публикация: 1501574   (835204) от 10.10.2021
+
+Humphrey Robertson - Essentials (2021) [MP3|320 Kbps] <Eurodance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love in Your Eyes (Radio Version) (3:30)
+02. Don't Stop Loving Me (Radio Version) (3:51)
+03. Touch of Summer (Radio Version) (3:35)
+04. One Step Closer (Radio Remixed) (3:38)(   Читать дальше...   )Жанр: Eurodance, Euro-DiscoПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA6E288AC68B65789B4B300C1E71241CA914ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501656   (835189) от 10.10.2021
+
+Harmony Cats - Harmony Cats (1982) LP [MP3|320 Kbps] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bate Bate (3:10)
+02. A Terra Do Faz De Conta (Land Of Make Believe) (3:42)
+03. Eu Amo Amar Voce (3:24)
+04. Estrela Amiga (3:05)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4005B1A9443E33F531C684F11F3D58162678BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 829099   (834521) от 13.03.2017
 
 VA - ZYX Italo Disco New Generation. Vol. 1-10 (2012-2017) [MP3|320 Kbps]<Italo-Disco, Euro-Disco>
@@ -685,64 +743,6 @@ Geraldine Cordeau - Space And Time (1984) [MP3|320 кб/с] <Electronic, Disco, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A1F253266BB153222A5813632DC9CBD97BB35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009165   (811789) от 20.04.2016
-
-Patty Ryan - Golden Disco Hits (2001) [MP3|320 кб/с] <Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You’re My Love, You’re My Life (04:30)
-02. I Don't Wanna Lose You Tonight (04:06)
-03. Love is the Name of the Game (03:38)
-04. Love Emotion (04:14)(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE78A08C3C8F1B265E8285D0FAEB965037B076B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118942   (811376) от 26.03.2017
-
-Baby's Gang - Challenger (2016) Deluxe Edition [MP3|320 Kbps] <Italo-Disco, Synth-pop >
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Challenger (05:18)
-02. Jamin (05:58)
-03. Happy Birthday (To My Mammy) (04:57)
-04. Happy Song (Remix) (05:38)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B6B0841F5D87392049A6E8F77075C9B276898E
 ```
 
 https://mybot314.ru/tekegram_catalog/

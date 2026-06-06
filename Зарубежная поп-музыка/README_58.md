@@ -1,3 +1,32 @@
+###  Публикация: 954537   (342153) от 07.11.2015
+
+Bjork - Vulnicura Strings (2015) [MP3|320 кб/с]<Pop, Experimental, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mouth Mantra
+02. Lionsong
+03. Black Lake
+04. Atom Dance(   Читать дальше...   )Жанр: Pop, Experimental, AcousticПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61FF050EFCB33B7E373BBBE68DDEB34CC54D1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419058   (342048) от 27.10.2020
 
 VA - Dance Club 2020.03 (2020) [MP3|320 Kbps] <Dance, Pop, Deep House>
@@ -720,35 +749,6 @@ Madonna - Enigmatica (2015) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E36D7C9A0EDB872C94306E1C99802F6110AAD8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331160   (334997) от 13.10.2019
-
-Ian Mitchell Band - Lonely Nites (1979) LP [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely Nites (3:37)
-02. Suddenly You Love Me (3:17)
-03. Going Back (4:22)
-04. Having A Good Time (3:56)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B08FD98F59ACE359C76970D27B4E931406B8B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

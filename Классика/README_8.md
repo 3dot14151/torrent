@@ -1,3 +1,61 @@
+###  Публикация: 993437   (895448) от 05.03.2016
+
+W.A. Mozart - Requiem (1976) Compilation, 1998, Teledec Classics [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. Introitus. Requiem (5:38)
+02. Ii. Kypie (2:48)
+03. Iii. Sequienz. Dies Irae (1:51)
+04. Iii. Sequienz. Tuba Mirum (4:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0377C38538BC3D92EC3E3038B874EC5200F8FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993349   (895349) от 05.03.2016
+
+L'Orfeo Baroque Orchestra, dirigent Michi Gaigg - Christoph Willibald Gluck: Five Symphonies (2011) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Symphony in G major: Allegro (6:56)
+02.  Symphony in G major: Andante (5:19)
+03.  Symphony in G major: Allegro (2:20)
+04.  Symphony in D major: Allegro capriccioso (6:56)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499243EFCC52B996D4F0376D289D361E2842611D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993228   (895216) от 05.03.2016
 
 Имре Кальман / Emmerich Kalman - Сильва (Княгиня чардаша) / Die Csardasfurstin (2005) [MP3|320 кб/с] <Operetta>
@@ -687,64 +745,6 @@ Antigono, Wq 21
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6033B6C7F86D7293C3A132F82A504757C0EAC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994760   (888083) от 09.03.2016
-
-Heifetz Jascha - Adagios (2002) [FLAC|Lossless|image + .cue] <Classical, violin>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruch: Violin Concerto No 1 in G minor, Op. 26 - Adagio
-02. Glazunov: Violin Concerto in A minor, Op 82 - Andante sostenuto
-03. Bach: Concerto for two Violins in D minor, bwv 1043 - Largo ma non tanto
-04. Medelssohn: Violin Concerto in E minor, Op. 64 - Andante(   Читать дальше...   )Жанр: Classical, violinПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737024E42145D3094C8799119D67E44776F78AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995027   (887867) от 09.03.2016
-
-Wolfgang Amadeus Mozart - The Violin Concertos (1999) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concerto No. 4 in D major for Violin, K. 218: I. Allegro
-02. Concerto No. 4 in D major for Violin, K. 218: II. Andante cantabile
-03. Concerto No. 4 in D major for Violin, K. 218: III. Rondeau. Allegro grazioso ...
-04. Concerto No. 5 in A major for Violin, K. 219 'Turkish': I. Allegro aperto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276A1777A2BC882BF99F4384711909328B152F1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

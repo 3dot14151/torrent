@@ -271,41 +271,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 568319   (386912) от 07.11.2012
-
-Bon Jovi - This Left Feels Right (2003) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<хард-рок, глэм-метал, хеви-метал>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanted Dead Or Alive (03:44)
-02. Livin' On A Prayer (03:41)
-03. Bad Medicine (04:27)
-04. It's My Life (03:42)
-05. Lay Your Hands On Me (04:27)
-06. You Give Love A Bad Name (03:30)
-07. Bed Of Roses (05:38)
-08. Everyday (03:45)
-09. Born To Be My Baby (05:28)
-10. Keep The Faith (04:12)(   Читать дальше...   )Жанр: хард-рок, глэм-метал, хеви-металПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107E3308643813FECE94E98DCCE52340665F24B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570613   (386908) от 07.11.2012
 
 Los Angeles Guitar Quartet - LAGQ Latin (2002) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-R]<Classical, Latin, Acoustic>
@@ -334,6 +299,40 @@ Los Angeles Guitar Quartet - LAGQ Latin (2002) [DSD 2.0 / DST 5.1|1bit/2822,4kHz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B31BDBB53DB02025D22045494D8E840C16FD5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570608   (386899) от 07.11.2012
+
+Kodo - One Earth Tour Special (2003) [DSD 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World, Ethnic, Taiko>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_386899.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kiyari [02:07]
+2. O-daiko [09:16]
+3. Yatai-Bayashi [08:59]
+4. Kenbai(interlude) [01:17]
+5. Tomoe [08:41]
+6. Furyu(interlude) [00:19]
+7. Hyoshigi-Kono Mine no [03:38]
+8. Sado e [21:23]
+9. ENCORE:Nami ni Saku Hana-Sado e-Hachijyo-Kiyari [08:26]Жанр: World, Ethnic, TaikoПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C615B989E39B87A286DEE8E3A03EA398E52EB73
 ```
 
 https://mybot314.ru/tekegram_catalog/

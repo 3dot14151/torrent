@@ -1,3 +1,90 @@
+###  Публикация: 1028776   (688851) от 23.06.2016
+
+VA - Premium Electro Lights: Electro House Mix (2016) [MP3|320 кб/с] <Electro, Club House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Preston - Get SO (Kyro Remix)
+002. Dantiez Saunderson, Joe Le Groove - Groove Machine
+003. Jilk - Nim
+004. The Termite & Mikky Clap - Insomnia (Alex Fresh Remix)(   Читать дальше...   )Жанр: Electro, Club House, DanceПродолжительность: 09:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBDC527551C76C786169B1BD37EF85C28C9E126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403581   (688633) от 21.08.2020
+
+VA - Beatport Bass House: Electro Sound Pack #147 (2020) [MP3|320 Kbps] <Dub House, Bass, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688633.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stefonix - Get Up!
+002. Ize 1 - Afro Kraze
+003. Terrie Kynd - Apple Kiwi
+004. Cryogenics - Nothing Bad Will Ever(   Читать дальше...   )Жанр: Dub House, Bass, ElectroПродолжительность: 08:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578076ED00C542E7280057117BD7D9EBB14FFADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403582   (688632) от 21.08.2020
+
+VA - Beatport Dance House: Electro Sound Pack #148 (2020) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688632.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bowie And Fortuny - Shine
+002. Ivan Spell - Numb (Original Mix)
+003. Stafford Brothers - Blow Off The Roof
+004. DJ Combo - Happy Every Day(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BAD90608AC114D06A3458BBF944C2C869AB067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403585   (688566) от 21.08.2020
 
 VA - Beatport Drum & Bass: Electro Sound Pack # 149 (2020) [MP3|320 Kbps] <Drum & Bass, Dubstep>
@@ -656,93 +743,6 @@ VA - The Techno Streaming Sound (Vol.03) (2022) [MP3|320 Kbps] <Techno, Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:809A84DDA429D64DA755221B2F6DE376F997A122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535092   (686424) от 06.03.2022
-
-VA - Beatport Progressive Trance: Sound Pack #501 (2022) [MP3|320 Kbps] <Progressive, Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляемый 501-й релиз электро транса от Beatport - это целых 130 наполненных прогрессией треков, которые готовы стать источником вдохновения для своего слушателя001. Fallen Order - No Ecmo
-002. Metta & Glyde - Primal Fear
-003. Solarstone - Equilibrium
-004. Daftiser - Avenger(   Читать дальше...   )Жанр: Progressive, Trance, ElectroПродолжительность: 12:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2A8DDDD4E3F04034C98434398E3305E57B4F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535088   (686423) от 06.03.2022
-
-VA - Beatport Progressive House: Sound Pack #500 (2022) [MP3|320 Kbps] <Progressive, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный релиз от Beatport - это золотая жила свежих треков в стиле Progressive House с экзотической смесью традиций создания электронной музыки и современных инноваций DJ мастеринга.001. Gogzy - Monochrome
-002. Gijs De Mik - Never Alone
-003. Out Of Mind - Another Day
-004. Genix - Kill Switch(   Читать дальше...   )Жанр: Progressive, House, ElectroПродолжительность: 10:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B733706554AF360F29597D3D6348911D63A1C45F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535194   (686422) от 06.03.2022
-
-VA - Summer Chillout: Distant Places Relax Mix (2022) [MP3|320 Kbps] <Chillout, Lounge, Relax, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляясь в путешествие возьмите с собой сборник релакс-музыки с летним названием "Summer Chillout: Distant Places Relax Mix". Встречайте рассвет, любуйтесь зеленой долиной с высоты горного утёса или медитируйте на берегу моря под вдохновляющие мелодии лонгплея.001. Engtanz - Path Of Virtue
-002. Soft Drink - Meet Dubai
-003. Suduaya - Green Tara
-004. Asteroid - The Light In The Shadow(   Читать дальше...   )Жанр: Chillout, Lounge, Relax, DowntempoПродолжительность: 09:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21EEF47CC6A2398E19AD0513803C3AA3947BE3EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

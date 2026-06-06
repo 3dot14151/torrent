@@ -1,3 +1,148 @@
+###  Публикация: 1350013   (1003674) от 04.01.2020
+
+Genesis - Greatest Hits (2020) 2CD [MP3|320 Kbps] <Rock, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illegal Alien
+02. Many Too Many
+03. In The Cage
+04. Silver Rainbow(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B198FCCDA17E601EA49500050DACA4542F9F107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349375   (1003664) от 04.01.2020
+
+The Beatles - Rare Beatles De-Noised (4 CD) (2020) Remaster SMRP [MP3|320 Kbps] <Rock & Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock & RollПродолжительность: 00:38:26
+05-01 - In Spite Of All The Danger (Feat. The Quarrymen) (1958) (02:44)
+05-02 - That'll Be The Day (Feat. The Quarrymen) (1958) (02:08)
+05-03 - Cayenne (Feat. The Quarrymen) (1960) (02:30)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A1807088D4AEF6708B273C1614B6005E9CF11F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487493   (1003544) от 05.08.2021
+
+VA - Rock Classics (2021) [MP3|320 Kbps] <Classic Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003544.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 03Electric Light Orchestra - Evil Woman (04:36)
+ 002. 38 Special - Hold On Loosely (04:40)
+ 003. AC-DC - Back In Black (04:16)
+ 004. AC-DC - Hells Bells (05:13)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, MetalПродолжительность: 14:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FCA245448C13E25A41924A6ED539CEA3762AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349964   (1003451) от 05.01.2020
+
+VA - 2020 Rock Factory (2020) [MP3|320 Kbps] <Rock, Indie, Folk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003451.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kelsy Karter - Harry
+002. Dasher - Nightmares
+003. Von Baltzer - Better Days
+004. Joy In Velm - The Nineteen Lie(   Читать дальше...   )Жанр: Rock, Indie, Folk, AlternativeПродолжительность: 10:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64107CF240E6A32CD7E9712FE37608AB8E8DF34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487522   (1003315) от 06.08.2021
+
+VA - The Purgatory (Vol.02) (2021) [MP3|320 Kbps] <Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003315.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Be All End All - End Sequence
+002. Soul Of Ears - Invincible We Are
+003. Vestindien - Beerenberg
+004. Values - Temperance(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 10:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33ED0ECAC3823F2D97A1644FCEC7A1B7E6DF73D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350789   (1002907) от 07.01.2020
 
 VA - Classic Rock timeless! 2 (2020) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
@@ -597,151 +742,6 @@ VA - Back In The Future: Indie Pop Rock (2020) [MP3|320 Kbps] <Indie, Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F135038AE9576C8D4E530EDB66782FA53126B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855345   (960974) от 02.01.2015
-
-Accept - Heavy Ballads (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seawinds
-02 - Drifting apart
-03 - Pomp and circumstance
-04 - Just by my own(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DFAC8E80D7E9B23E03C80590BECFA2DE7A5CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747821   (960907) от 20.01.2014
-
-Александр Барыкин - Лучшие песни (4CD) (1981-2011) (2014) [MP3|320 кб/с]<Rock, Reggae, New Wave>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960907.jpg" />
-</div>
-
-
-###  Подробнее
-
-51. Осень пришла (2003)
-52. Ночь-голубая тайна (Ая!) (2003)
-53. Спасательный круг (2004)
-54. О любви (2005)(   Читать дальше...   )Жанр: Rock, Reggae, New WaveПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8390386D23705F24A0D00B8AF208FD70C695419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855633   (959639) от 03.01.2015
-
-W.A.S.P. - All ballads (1982-2012) 2CD Bootleg [MP3|320 кб/с]<Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Free
-02. Heaven's Hung In Black
-03. Kill Your Pretty Face
-04. Chainsaw Charlie (Intro)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA97CFAECF07A57B0976B24F042FD741D50B693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980195   (955933) от 29.01.2016
-
-The Eagles - Edgy and Heavy (2016) (3CD)[MP3|210-320 кб/с] <Rock, Folk-rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955933.jpg" />
-</div>
-
-
-###  Подробнее
-
-25. You Dont Have Me
-26. Already Gone
-27. Victim of Love
-28.You Dont Know Me At All(   Читать дальше...   )Жанр: Rock, Folk-rockПродолжительность: 03:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6A0160CCBBC7BACF07EB4509AEF42800876148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361369   (955401) от 19.02.2020
-
-VA - Рок впрок 14 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стёртые Лица - Чтобы жить
-02. Deviltears – Безликие
-03. МИССИЯ - Ранняя весна
-04. Тень Звука – Город(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F6CDB29003AF474094A4F15DD82E1E09F732CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

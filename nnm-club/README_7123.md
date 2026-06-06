@@ -1,22 +1,25 @@
-###  Публикация: 1204846   (784055) от 08.02.2018
+###  Публикация: 1123873   (786221) от 09.04.2017
 
-Новый Орлеан: преступность, туризм и аллигаторы (2018) WEBRip [H.264/720p-LQ]
+Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый Орлеан - один из самых опасных городов в Соединённых Штатах. И, как говорят, один из самых весёлых. В районах с чернокожим населением – постоянные перестрелки и убийства, а во Французском квартале вовсю развлекаются туристы. Но преступность растёт по всему городу, который с 2005 года, после нашествия урагана «Катрина», погрузился в хаос и нищету. К тому же (   Читать дальше...   )Телекомпания: Россия / RТДЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:52:33
+01.I Was Afraid You'd Never Call Me [06:56]
+ 02.I Concentrate On You [14:07]
+ 03.Time [09:48]
+ 04.High Voltage At Rudy's [09:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:250C5DAD3E61B81CD729759DF5B842448229F5DA
+magnet:?xt=urn:btih:A0DCC720FF029BD171648B507E808B8FF93300CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204991   (784054) от 08.02.2018
+###  Публикация: 1123468   (786220) от 09.04.2017
 
-Векторный клипарт - 3D Plants and Factories 6 [AI]
+VA - Infrasonic Spring Selection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-3D заводы и фабрики
-4 AI +TIFF PreviewФормат: AI
+01.  Max Denoise - Principessa (Ronski Speed Remix)  6:33
+02.  Empirian - Waves (Original Mix)  5:49
+03.  Artra & Holland - Freyja (Extended Mix)  6:38
+04.  Sam Laxton - Bliss (Extended Mix)  6:09(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 01:19:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3553BBA9F0DCFAF0502188D85127525481182476
+magnet:?xt=urn:btih:6BB8CD703158A7A26AFFC4D921EF89B920DA7712
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,391 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204974   (784053) от 08.02.2018
+###  Публикация: 1124069   (786219) от 09.04.2017
 
-Franz Ferdinand - Always Ascending (2018) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always Ascending
-02. Lazy Boy
-03. Paper Cages
-04. Finally(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC596D9A75DEC85C31725FC1133A6BA0A3B8538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204915   (784052) от 08.02.2018
-
-Light Image Resizer 5.1.2.0 RePack (& Portable) by ZVSRus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58ADEA9CB74CAC2ABAA76C040DCD6E59DE023B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204930   (784051) от 08.02.2018
-
-MGMT - Little Dark Age (2018) [FLAC|Lossless|tracks + .cue] <Alternative, Indie, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Works Out Too Much (04:38)
-02. Little Dark Age (05:00)
-03. When You Die (04:24)
-04. Me and Michael (04:50)(   Читать дальше...   )Жанр: Alternative, Indie, ElectronicПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B99C313944093A0DC8AE9A3BEEDA697AE78774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205107   (784050) от 08.02.2018
-
-VA - Pioneer Studio - World In My Eyes (2018) [MP3|320 Kbps] <Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Neo & Neon People - Сумасшедшее желанье (Radiorama - Desire)
-02. Alex Neo & Antony Ganion - Стрелка на часах (Blue System - Do you wanna be my girlfriend)
-03. Alex Neo, Tatyana Kravtsova & Zlatko Woykova - Чужой (Alphaville - Big In Japan)
-04. Alex Neo & Antony Ganion - Дай мне (Bad Boys Blue - Gimme gimme your loving)(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 01:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8CA2F02E8060F530B09120872897421E3AAE3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205049   (784049) от 08.02.2018
-
-iDatabase 3.25 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784049.jpg" />
-</div>
-
-
-###  Подробнее
-
-iDatabase - это самый простой способ организовать ваши данные, т.е. содать базу данных используя один из 22 готовых шаблонов, легко настроив их "под себя" или создайте новую базу данных с нуля. В список готовых шаблонов входят бухгалтерия, компьютеры, контакты, клиенты, расходы, доходы, инвентаризация, рецепты, мобильные телефоны, фильмы и многое, многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2018Разработчик: ApimacПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D6AD6A33A5BC78293E5C85DFBAD7D5C082182A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205115   (784048) от 08.02.2018
-
-David Duchovny - Every Third Thought (2018) [MP3|320 Kbps] <Rock, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half Life
-02. Every Third Thought
-03. Maybe I Can’t
-04. Stranger in the Sacred Heart(   Читать дальше...   )Жанр: Rock, Singer-SongwriterПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA421909A540A5F28D2F1F119D5D356CE5F758F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205043   (784047) от 08.02.2018
-
-Матч всех звёзд НХЛ 2018 / 2018 NHL All-Star Game (28.01.2018) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784047.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 января 2018 года, понедельник. 00:00 МСК
-63-й Матч всех звёзд НХЛ состоялся 28 января 2018 года, в городе Тампе, штат Флорида, на домашней арене клуба «Тампа-Бэй Лайтнинг». Этот матч звёзд стал 2-м проводимым в Тампе. Матч звёзд проходит в формате мини-турнира 3 на 3. Команда победившая в финале получает $ 1 млн.
-В программе Матча всех звёзд НХЛ 2018:
-1/2 финала:(   Читать дальше...   )Телекомпания: Setanta Sports Eurasia HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E358A782F4FF45CBFEA0DFC147D0CE0EEA43E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205001   (784046) от 08.02.2018
-
-Растровый клипарт - Shutterstock - Christmas Balls on the Christmas Tree [JPG]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождественские шары на елку с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2823x3359-7468x7742
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204917   (784045) от 08.02.2018
-
-Greg Lake - 7 альбомов, 10 CD (1981-2015) [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский бас-гитарист, гитарист, вокалист, автор песен и продюсер, наиболее известный как участник King Crimson и супергруппы Emerson, Lake and Palmer. Грег Лэйк (Greg Lake) родился 10 ноября 1947-го года в городе Борнемут. У него характерный тембр голоса и свой стиль игры на гитаре. Лейка считают одним из крупнейших талантов британской сцены прогрессивного рока (   Читать дальше...   )--------------------------
-
-01. Money Talks  (3:34)
-02. Love Under Fire (5:21)(   Читать дальше...   )Жанр: Rock, Hard Rock, Progressive Rock, Art Rock |Продолжительность: 08:49:24 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16F02F83591FDAC93A66B24EE22C65C9FB2A07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205201   (784044) от 08.02.2018
-
-Телефон доверия - Прости меня (1994) [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прости меня
-02. Телефонный звонок
-03. Пора отчалить кораблю
-04. Да и нет(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75274C435FB349068FCF7873DE612E7810E37B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204998   (784043) от 08.02.2018
-
-Векторный клипарт - Puzzle Infographics Backgrounds 23 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Головоломка Инфографика Фоны
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3104FE8FDCB28772B8D34DDEE9C46B5FF16503C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205053   (784042) от 08.02.2018
-
-Матч всех звёзд НХЛ 2018 / 2018 NHL All-Star Game (28.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784042.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 января 2018 года, понедельник. 00:00 МСК
-63-й матч всех звёзд Национальной хоккейной лиги состоялся 28 января 2018 года, в городе Тампе, штат Флорида, на домашней арене клуба «Тампа-Бэй Лайтнинг». Этот матч звёзд стал 2-м проводимым в Тампе. Матч звёзд проходит в формате мини-турнира 3 на 3. Команда победившая в финале получает $ 1 млн.
-В программе Матча всех (   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68E061FF2938766D56B139036CD8C42A3041B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204962   (784041) от 08.02.2018
-
-Седьмое знамение / The Seventh Sign (1988) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Время на исходе. Грядет Апокалипсис — реки наполняются кровью, пустыни покрываются льдом, а луна светит зловещим багровым сиянием. Перед лицом обреченного человечества проходят все шесть знамений конца света. Самым страшным, седьмым знамением судного дня должен стать еще не рожденный ребенок, и горе матери, носящей его под сердцем.Производство: США / Interscope Communications, ML Delphi Premier Productions, TriStar PicturesЖанр: Драма, Триллер, Ужасы, ФэнтезиРежиссер: Карл ШульцАктеры: Деми Мур, Майкл Бин, Юрген Прохнов, Питер Фридман, Мэнни Джекобс, Джон Тейлор, Ли Гарлингтон, Акошуа Бусиа, Гарри Бейзил, Арнольд ДжонсонПеревод: Дублированный, Многоголосый, Двухголосый, Авторский х2Субтитры: Русские, АнглийскиеПродолжительность: 01:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72BD243393A7CD524EAB2E1BE1FB2D5C819ED27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204134   (784040) от 08.02.2018
-
-Jeremiah Kane - The New Dawn (2017) [FLAC|Lossless|WEB-DL|tracks|24Bit] <80s, Retrowave, Synthwave>
+VA - Nothing But... Trance Anthems Vol.8 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Nightmoon (feat. Turbo Knight) (4:32)
- 2. The Killer Grid (3:54)
- 3. Ghost Lanes (4:42)
- 4. Anticitizen (4:43)(   Читать дальше...   )Жанр: 80s, Retrowave, SynthwaveПродолжительность: 00:39:53
+01.  Mike Sanders & Beatsole - Trigger (Extended Mix)  7:26
+02.  First Sight & Fright Nite - Warp Velocity (Extended Mix)  6:47
+03.  Stoneface & Terminal - Tale In Verse (Extended Mix)  7:28
+04.  Nakhiya - Sunset Over Giza (Original Mix)  7:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38934F0AE9E5459A4E58ABCB51A952BD7C835AA7
+magnet:?xt=urn:btih:B8931D215EBD2693ACEC51A14938EB05BCE631AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204996   (784039) от 08.02.2018
+###  Публикация: 1123545   (786218) от 09.04.2017
 
-Растровый клипарт - Creative Market - Watercolor rustic flowers clip art - 2174732 [PNG]
+VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный деревенский клипарт: 9 png элементов (прозрачный фон)Формат: PNGРазрешение файлов: 362x945-1181x1032
+001. Фаган Сафаров - Сарай-Караван 3:00
+002. Лена Максимова - Слышишь Отошел 3:39
+003. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41
+004. Юлианна Караулова - Больше Никогда 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4967D56D00CA9F21008E3D08DA9D61F3AC553F3A
+magnet:?xt=urn:btih:348F129E9D045255ED2FCCCCCB45F0DE54F9A968
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204963   (784038) от 08.02.2018
+###  Публикация: 1123936   (786217) от 09.04.2017
 
-TechSmith Snagit 2018.1.0 [Multi/Ru]
+Iris Dee Jay - Love Shines Through (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+01. Love Shines Through (Radio Edit) 03:37
+02. Love Shines Through (Full Vocal Mix) 06:55
+03. Love Shines Through (Beatless Reprise) 03:16
+04. Love Shines Through (Emran Badalov's Tech Remix) 04:38(   Читать дальше...   )Жанр: TranceПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B52A40046F510304AB7369513CE7A5B43BD0014C
+magnet:?xt=urn:btih:BDAE1CB4FE4FAC1FF8885C5057BDAF804A9756DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -496,85 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205076   (784037) от 08.02.2018
+###  Публикация: 1123735   (786216) от 09.04.2017
 
-Блейк Пирс | Когда Пора Отступиться (2017) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмой роман цикла «Райли Пейдж».
-
-Когда специальный агент Райли Пейдж наконец решает взять заслуженный и необходимый перерыв от службы в ФБР, просьба о помощи приходит оттуда, откуда её ждёшь меньше всего: от собственной дочери. Лучшая подруга Эприл раздавлена смертью своей сестры, новенькой студентки из Джорджтауна. Что ещё хуже, она уверена, что самоубийство (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективы, Современные детективы, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD8A294FF6EA51B375195E38C53B9834B74FDE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205020   (784036) от 08.02.2018
-
-Александра Бракен | Странник (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Пассажирка».
-
-Этту и Николаса вновь разделяет время и пространство.
-Девушке нужно закончить начатое, узнать правду о своих родителях и сделать выбор, способный бесповоротно изменить будущее.(   Читать дальше...   )Жанр: Зарубежное фэнтези, Зарубежные любовные романы, Историческое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506EAFB2066A979BBA48F7FB6BD373761AFA9380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205166   (784035) от 08.02.2018
-
-Therion - Beloved Antichrist (2018) [MP3|320 Kbps] <Symphonic Metal>
+Dаmnаtiоns Dау - А Wоrld Аwаkеns (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Turn From Heaven
-02. Where Will You Go?
-03. Through Dust, Through Rain
-04. Signs Are Here(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:02:54
+01. The Witness  (04:45) 
+02. Dissecting the Soul  (04:46) 
+03. Colours of Darkness  (04:58) 
+04. I Pray  (05:42) (   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:45:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3857492065A332009273AF92917A727295AB5942
+magnet:?xt=urn:btih:2273EE5641B3FCC230B64A5A45D23815DDC7D54C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,27 +172,434 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205010   (784034) от 08.02.2018
+###  Публикация: 1123573   (786215) от 09.04.2017
 
-Battery Health 3 v1.0.10 [En]
+VA - Отдыхаем с лучшими хитами. Звездная тусовочка. Часть № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sasha Dith & Russian Mc - Тобой Простужен 2:59
+002. Charli Xcx & Kyary Pamyu Pamyu - Crazy Crazy 3:46
+003. Тимур Спб - Лучшая Подруга 3:27
+004. Катя Гордон - Нет Стыда 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C780F6646A4E7AE7F839A758DA721698AFC22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123544   (786214) от 09.04.2017
+
+VA - Драйвовый весенний музон (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлианна Караулова - Ты Мой 3:05
+002. Зара - Без Многоточий 3:36
+003. Пицца - Лети 3:39
+004. Ira Smith - Буду Выше 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE4123F256C881E4113A18CA8C5E844EEDE8EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123552   (786213) от 09.04.2017
+
+VA - Положительный заряд Hit FM. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786213.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Оля Полякова - Цветочек Аленький 3:23
+002. Константин Легостаев - Не Матерись 3:04
+003. Миля - Выбирай Любовь 3:55
+004. Егор Диких - Маэстро 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FD8831B12A7E6608663337A78D900B16FFF7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123722   (786212) от 09.04.2017
+
+Devon Allman's Honeytribe - Space Age Blues (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Could Get Dangerous  (04:14) 
+02. Space Age Blues  (05:16) 
+03. Salvation  (04:41) 
+04. Sir Duke  (03:47) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A90D9A04195C8503B8C7578B32F6C8565C0A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123731   (786211) от 09.04.2017
+
+Lachrimatory - Transient (2011) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seclusion (12:14)
+02. Lachrimatory (11:29)
+03. Twilight (08:11)
+04. Clarity (08:26)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BEF065BF1869FE01DF6BC86849ED64FF084DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123754   (786210) от 09.04.2017
+
+Negative Voice - Cold Redrafted (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786210.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Limitation (05:23)
+2. City of Decaying Gaze (05:41)
+3. Nightmare Everlasting (05:44)
+4. Instant (06:09)(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3087FCB39770CDC5597912AE9A14525BDD892FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123993   (786209) от 09.04.2017
+
+Devon Allman - Turquoise (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Left Home  (04:05) 
+02. Don't Set Me Free  (03:40) 
+03. Time Machine  (03:39) 
+04. Stop Draggin My Heart Around  (04:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAEBF3B87F48F5C428A4D0007144D232AB6445F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123948   (786208) от 09.04.2017
+
+VA - Ori Uplift - Uplifting Only 217 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Avenger - Orca (New World Intro Mix Remaster)
+2. Syntouch & Blue Moon - Fields of Florette (Phil Dinner Remix)
+3. PRE-RELEASE PICK: Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
+4. The Enturance & Exouler - Inspiration(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86CBC122C313D3F56967C5ACB20B66492E09874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124047   (786207) от 09.04.2017
+
+Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Song for Elizabeth (04:10)
+02 Do You Love Me? (04:34)
+03 The Other Side of the World (04:33)
+04 Life After You (04:43)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B7B5FB2962E8E117B0DF59893C2227ADBB624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123768   (786206) от 09.04.2017
+
+VA - Deep House For Lady (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786206.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Lossa - The Blaze
+002. Ambassadeurs - Looking At You (Moods Remix)
+003. ENNE - Fear
+004. Francois Devois - Another Light Out (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6950B4CFCF88EA078A1B903463FA799C1AE65648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123575   (786205) от 09.04.2017
+
+VA - Музыкальный презент на Europa Plus. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786205.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Черешня - Градус Любви 3:50
+002. Ustinova - Ночь Поет 3:16
+003. Дискотека Авария - Моя Любовь 3:08
+004. Davlad - Прости 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE53F797C728B84C391DF5D8ED740F87219F5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123546   (786204) от 09.04.2017
+
+VA - Лучшая дискотека на Europa Plus. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dato - Если Это Не Любовь 4:27
+002. Fargo - Взаимные Лайки 3:50
+003. Султан (Sultan) - Она Моя 3:34
+004. Восемь По Гринвичу - Родились Побеждать 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B82688375EC03EE5BC1DF71A5434C9960A246B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123577   (786203) от 09.04.2017
+
+VA - Весенняя 100-ка популярных треков. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786203.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Натали Янковских - Ты Мой 3:34
+002. Слайд - Ближе И Ближе 3:31
+003. Сиран Агасаров - Для Тебя 3:33
+004. Катя Лель - Придумала 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4304E68DD1623A54374323CCDA41A2255D294638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123870   (786202) от 09.04.2017
+
+Blind 'n' Dangerous - In Flames (1995) 2014, Bnd Music Co. [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangster (5:26)
+02. Skippin' On The Edge (3:37)
+03. Splinter (4:53)
+04. I Can't Help It (5:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC9640FB906DB8632345CDB8D47068E5EF0F41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123148   (786201) от 09.04.2017
+
+VA - Trancespotting Vol.3 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
-
-Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: FIPLAB LtdПоддерживаемая ОС: OS X 10.10 or laterЯзык интерфейса: Английский
+01.  Mike Sanders - Kanassa (Radio Cut)  2:54
+02.  Wearealienss - Polar (Radio Cut)  3:08
+03.  7 Baltic & Wojciech Kania - Call Me (Radio Cut)  3:37
+04.  Skyvol - Werewolf's Heart (Radio Cut)  3:55(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E05E324F39F9059C1BCD882E5D9FCA4FA89D577
+magnet:?xt=urn:btih:BE5FE460007A16139D8C903EDAB37EC9290FAB2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,25 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204994   (784033) от 08.02.2018
+###  Публикация: 1123549   (786200) от 09.04.2017
 
-Кун Лакрас Ракшас-Син | Игра онлайн или реальность: бесшумный убийца (2017) [FB2]
+VA - Танцевальная вечеринка от Хит FM. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта история об одном мальчике. Он рано потерял родителей и, осознав всю реальность этой жизни, ушел в компьютерный мир онлайн игр. Изучая интернет, мальчик натолкнулся на интересную ММОРГ с полным погружением. Он ушел в неё с головой под персом - ассасин. Тот мир разных рас, демонов, гномов, эльфов, людей, нежити и т.д. был полон магии и эфирных потоков силы. Впоследствии (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиФормат: FB2
+001. Роза Герц - Расстаться 4:04
+002. Dj Mrid & Борис Агаджанян - Самая 4:02
+003. Антонина Громова - Я Тебя Обожаю 3:07
+004. Лада Мишина - Лети 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13DE9896594135539A6B764B1927C607850E223A
+magnet:?xt=urn:btih:5816F7308DD1B909596A1E4763870BD514977E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,25 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204949   (784032) от 08.02.2018
+###  Публикация: 1123569   (786199) от 09.04.2017
 
-NGW: Королева скорости / Queen of the chase (2016) HDTVRip [H.264/1080p-LQ]
+VA - Отдыхаем душой на стильном радио Шансон выпуск № 10 (2017) [MP3|256 Kbps] <Шансон>
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Африканские леса акаций и зелёные луга стали домом для гепардов, известных своей грациозностью и невероятной скоростью. Этот трогательный фильм расскажет историю самки, которая охотится, сражается с врагами и защищает своих пятерых детенышей на равнинах Серенгети в Танзании.Производство: Великобритания, Nature Conservation Films WW, National GeographicЖанр: Документальный, природа, фаунаРежиссер: Алан Миллер, Джохем ван РейсПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:05
+001. Виктор Матросов - Мой Бог 4:11
+002. Сборная Союза - Падали И Поднимались 4:02
+003. Виталий Аксенов - Дай Мне Все Понять 5:44
+004. Олег Безъязыков - Три Года Строгого 5:38(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4439E44C33E73AACBC289570B19AECE7A9E2F5A8
+magnet:?xt=urn:btih:5CBEED8BD4F29B32ED0E0A50A8DD7990D7A56D7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204264   (784031) от 08.02.2018
+###  Публикация: 1123824   (786198) от 09.04.2017
 
-Haydn- Das Niederländische Philharmonische Orchester - Symphonie Nr. 100,Symphonie Nr. 94 (1951) [FLAC|Lossless|tracks] <Classical>
+Frumpy - All Will Be Changed (1970) 1991, Repertoire Records [WavPack|Lossless|image + .cue] <Krautrock, Prog Rock>
 
->>Классика
->>Оркестровая (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Symphony No. 100 G Major "Military"
-A1	Band 1: Adagio; Allegro
-A2	Band 2: Allegretto
-A3	Band 3: Menuetto: Moderato(   Читать дальше...   )Жанр: ClassicalПродолжительность: 43:03.59
+1 Life Without Pain 3:45
+2 Rosalie Part I 6:01
+3 Otium 4:22
+4 Rosalie Part II 4:12(   Читать дальше...   )Жанр: Krautrock, Prog RockПродолжительность: 00:48:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C311D4914A78901EEA13542F8A800A530B2C6B8C
+magnet:?xt=urn:btih:6A035F9F8E6EB20DC7D214A05E0B8F4DD195E439
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,25 +694,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204932   (784030) от 08.02.2018
+###  Публикация: 1123816   (786197) от 09.04.2017
 
-Марина Лукьянцева (сост.) | 1000 лучших впечатлений, которые все мечтают испытать (2017) [PDF]
+Wes Jeans - Hands On (2000) [FLAC|Lossless|image + .cue] <Blues-Rock>
 
->>Разное (категория книг)
->>На досуге
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"1000 лучших впечатлений, которые все мечтают испытать" - это книга для тех, кто хочет брать от путешествий максимум! Стать настоящим путешественником и преодолеть джунгли с рюкзаком за плечами или пройтись по самым красивым улицам планеты? Может быть, затеряться на бескрайних просторах земли и увидеть северное сияние? Выбор за вами! Мы собрали для вас (   Читать дальше...   )Жанр: Туризм, путеводители, фотоальбомФормат: PDF
+01. Tell Me  (03:22) 
+02. Ridin' In The Moonlight  (03:42) 
+03. Now You Look At Me  (02:24) 
+04. Use What You Got  (06:18) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:47:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AADF2BC00DEB7566BD3DE2B4347D2CF453A7A19
+magnet:?xt=urn:btih:787B6F2251D06CA48DD2B887671AEDB9DC6A7D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124063   (786196) от 09.04.2017
+
+Improved Sound Limited - Improved Sound Limited (1971) Remastered, 2001, Long Hair [MP3|320 Kbps] <Progressive, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doctor Bob Dylan
+02. Pink Hawthorn
+03. Johanna
+04. If You Want To(   Читать дальше...   )Жанр: Progressive, KrautrockПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0C857F8D7C578BB4982BF1531818167E4C615D
 ```
 
 https://mybot314.ru/tekegram_catalog/

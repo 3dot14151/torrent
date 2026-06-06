@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1869280   (1068035) от 05.05.2026
+
+Gabriels - Fist of the Seven Stars Act 5 The Final Conflict (2026) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One Can Stop Me 04:24
+02. For the Last General 04:53
+03. Now I Know Your Name 04:38
+04. Me Before You 05:57(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB68DAF3333EB367C29079F336A1BE9899FA76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864344   (1064562) от 
 
 Metal Church - Dead to Rights (2026) [MP3|320 Kbps] <Heavy, Power, Thrash Metal>
@@ -66,7 +95,7 @@ Unheilig - Liebe Glaube Monster (2026) [MP3|320 Kbps] <Industrial Gothic Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1060665.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Myntra - Subnivium (2025) [MP3|320 Kbps] <Metalcore, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8A35E3E293016BB82B960A2DC31EAB9BFE8E5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841438   (1048022) от 11.12.2025
-
-Stormsorrow - The Blood Red Horizon (2025) [MP3|320 Kbps] <MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 00:43
-02. Burning Skies 05:45
-03. The Blood Red Horizon 04:29
-04. Face The Obliteration 04:40(   Читать дальше...   )Жанр: MDMПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B815A53E45794E83DF90538AB2DE3BDEED9DC0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

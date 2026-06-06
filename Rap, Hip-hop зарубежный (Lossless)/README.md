@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874507   (1071991) от 02.06.2026
+
+VA - Chillhop Essentials Summer (2026) [FLAC|Lossless|Web-DL|tracks] <Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. anbuu, Monsieur Teddy – High Tide (2:56)
+02. Nosmoh – Palm (3:37)
+03. Shin-Ski – Leaving You (2:59)
+04. EverythingIsAWave – HmHm (3:18)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3835696738C5171634AECEE8CA84BDCC24EB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858450   (1060469) от 10.03.2026
 
 VA - Chillhop Essentials Spring (2026) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
@@ -711,35 +740,6 @@ Insane Clown Posse - Riddle Box (1995) 20th Anniversary Edition, Remastered, 201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9019FD23A6C4F7DF720E71F8F9B2B4D4B547AE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449305   (1030011) от 21.02.2021
-
-Insane Clown Posse - The Great Milenko (1997) 20th Anniversary Edition, Remastered, 2017, Island Records [FLAC|Lossless|tracks + .cue] <Rap, Hardcore, Horrorcore>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:00)
-02. Great Milenko (01:56)
-03. Hokus Pokus (04:21)
-04. Piggy Pie (05:47)(   Читать дальше...   )Жанр: Rap, Hip-Hop, Hardcore, HorrorcoreПродолжительность: 02:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3582F0697FC8D6F11D61909C26C29CF1164FEE3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

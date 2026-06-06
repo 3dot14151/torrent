@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874772   (1072128) от 
+
+Hubert Kah - Tensongs (1986) 40th Anniversary, 2026, Soundcolours [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Military Drums (7'' Version) (Remastered) (3:39)
+02. Pogo the Clown (Remastered) (3:30)
+03. Lonesome Cowboy (Remastered) (4:07)
+04. Drowning (Remastered) (3:47)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F823A3856F9D93116E873BAE3F276CCDA4FE8D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868093   (1067386) от 
 
 Lazer Club - Forevermore (2026) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -309,6 +338,35 @@ Saigon Blue Rain - Oko (2023) [MP3|320 Kbps] <Synthpop, Darkwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A751EC3DE6F761D9BAC482A529FC125A5F31615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610080   (1042655) от 06.02.2023
+
+Cyberman - Mysterious Galaxy (2022) [MP3|320 Kbps] <Synthwave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Against Machines (4:50)
+02. Gravity (5:29)
+03. Personal Wormhole (7:13)
+04. Space Maneuvers (5:10)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37065DD321D9F20E1DC7CE2E184F435F201E0586
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,64 +744,6 @@ Aviators - Dreams Of The Deep (2021) [MP3|320 Kbps] <Synthwave, Cinematic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A300B38F8D1747849CA285EB5D0783F92735AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461180   (1021933) от 09.04.2021
-
-W O L F C L U B (Wolfclub) - 6 Albums (2017-2021) [MP3|320 Kbps] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strangers Forever (feat. Kieran Scragg) (3:32)
-02. Driving Through the Night to You (feat. Indigo) (2:40)
-03. Nightwave (feat. Indigo) (3:15)
-04. Never Stop (feat. Indigo) (3:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 03:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996F3580801507344EF6425444A8265B04C80560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463807   (1020142) от 20.04.2021
-
-Electric Dark Souls - Planet 0712 (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting Line (5:53)
-02. SOS from Planet 0712 (5:34)
-03. Zero Gravity (Pt.1) (0:59)
-04. Space Rangers (4:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectropopПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412C4BED5FAB38D5486197064CA11238E895694C
 ```
 
 https://mybot314.ru/tekegram_catalog/

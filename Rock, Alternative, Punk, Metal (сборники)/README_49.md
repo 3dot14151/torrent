@@ -1,3 +1,148 @@
+###  Публикация: 1780295   (27325) от 17.02.2025
+
+VA - Music For You vol.29 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buckethead - Soothsayer (Dedicated To Aunt Suzie) (09:05)
+ 02. At Vance - Solfeggietto (01:03)
+ 03. Tony MacAlpine - Tears Of Sahara (03:47)
+ 04. Animals as Leaders - Woven Web (04:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 03:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0063E560117F43BE025674A86B303EF7DA4A0F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780505   (27195) от 18.02.2025
+
+VA - Music For You vol.30 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yngwie Malmsteen - Black Star (04:51)
+ 02. Genesis - Dancing With The Moonlit Knight (08:03)
+ 03. Dream Theater - Octavarium (24:00)
+ 04. Pink Floyd - Sheep  (10:29)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 04:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07162D7BE0C1F068EEE364AA1D6139AB76BFB5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780731   (27015) от 20.02.2025
+
+Leo Moracchioli - Metal Covers Compilation (2014-2024) [MP3|320 Kbps] <Metal, Alternative, Covers>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Like An Egyptian (& The Bangles) (Leo Metal Covers Volume 31 2020)
+02. Skyfall (& Adele) (Leo Metal Covers Volume 44 2023)
+03. (You Gotta) Fight For Your Right (To Party !) (& Beastie Boys) (Leo Metal Covers Volume 38 2022)
+04. Agatha All Along (& Kristen Anderson-Lopez) (Leo Metal Covers Volume 33 2021)(   Читать дальше...   )Жанр: Metal, Alternative, CoversПродолжительность: 15:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59D77A443BF60C31F4559C16C463AB2FE4EF05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782143   (26275) от 27.02.2025
+
+Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Say Goodbye [05:42]
+02. Where the Wild Waters Flow [05:35]
+03. You Want Love [04:34]
+04. Forever Angel (Acoustic) [04:33](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 09:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A812F25E2A89C2DEBF0128E20400187BE8F464DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782937   (25873) от 03.03.2025
+
+VA - Masters of Rock & Metal - The Best Rock & Metal Tracks ever... (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metallica - 72 Seasons [07:39]
+02. Megadeth - Holy Wars...The Punishment Due [06:35]
+03. Deftones - Minerva [04:18]
+04. AC/DC - Let There Be Rock [06:07](   Читать дальше...   )Жанр: Metal, Glam Metal, Hard RockПродолжительность: 03:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5696136FEF7E3B02A845B76682125BE388716863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776078   (25795) от 04.03.2025
 
 U.D.O. - Compilation (1987-2025) [MP3|320 Kbps] <Heavy metal>
@@ -600,151 +745,6 @@ VA - Apathy (2025) [MP3|320 Kbps] <Metal, Hard-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4316DC132A46D729CA532ABB99783DCBC3C30125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795912   (19080) от 07.05.2025
-
-Smokie - Compilation (2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Back in the Arms of Someone [04:05]
-02. Whiskey in the Jar [05:00]
-03. Something's Been Making Me Blue [03:00]
-04. Heat of the Night [05:08](   Читать дальше...   )Жанр: RockПродолжительность: 03:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B8439F05EA61416FBB5778399A27DCF4BA101D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795601   (19028) от 07.05.2025
-
-Voodoo Circle (Alex Beyrodt's) - Compilation (2008-2024) [MP3|320 Kbps] <Hard rock, Heavy metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom Of The Blind (Alex Beyrodt's Voodoo Circle | 2008)
-02. Locked & Loaded (Locked & Loaded | 2021)
-03. Walk On The Line (Raised On Rock | 2018)
-04. Devil's Daughter (Broken Heart Syndrome | 2011)(   Читать дальше...   )Жанр: Hard rock, Heavy metalПродолжительность: 03:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBEC90ADCEDE1E20C114A8A4EB270BBD208AB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796474   (18415) от 13.05.2025
-
-Imagine Dragons - Compilation (2009-2024) [MP3|320 Kbps] <Alternative rock, Indie rock, Pop rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sharks (Imagine Dragons-Live In Vegas | 2023)
-02. Natural (Origins | 2018)
-03. My Life (Mercury-Acts 1 & 2 | 2022)
-04. Radioactive (Night Visions | 2012)(   Читать дальше...   )Жанр: Alternative rock, Indie rock, Pop rockПродолжительность: 03:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0030ED341368BD9881B7674069395EE7B70316B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796372   (18318) от 14.05.2025
-
-KISS - Compilation (2025) [MP3|320 Kbps] <Rock, Glam>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18318.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. My Way [04:00]
-002. Psycho Circus [05:34]
-003. Crazy Crazy Nights [03:48]
-004. Shout It Out Loud [03:17](   Читать дальше...   )Жанр: Rock, GlamПродолжительность: 07:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49E6AB54912649149D8A5AAA0286502A21FCE1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798758   (17281) от 23.05.2025
-
-VA - Сказочный  том (2003-2024) [MP3|320 Kbps] <Folk rock, Post punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17281.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Кровавый Риф - Увертюра
-002. Кровавый Риф - 8 Бит
-003. Nagart - Актёр
-004. Марко Поло - Александрия(   Читать дальше...   )Жанр: Folk rock, Post punkПродолжительность: 08:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623545976C511D20CFDF440F782F7B329B20E94A
 ```
 
 https://mybot314.ru/tekegram_catalog/

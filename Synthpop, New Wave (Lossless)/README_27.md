@@ -1,3 +1,90 @@
+###  Публикация: 1702365   (115856) от 24.02.2024
+
+Max Cruise - Heatwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Saxophone>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key West (05:15)
+02. Shadow in the Night (feat. The Motion Epic) (04:34)
+03. Heatwave (04:58)
+04. The Law (04:36)(   Читать дальше...   )Жанр: Synthwave, Retrowave, SaxophoneПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C26ECD983FF0417F232D1131D6DBDFE22376820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702393   (115821) от 24.02.2024
+
+Max Cruise - Night Cruise (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Saxophone>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fury (05:16)
+02. Run (05:22)
+03. Inertia (05:05)
+04. Lasers and Mirrors (04:02)(   Читать дальше...   )Жанр: Synthwave, Retrowave, SaxophoneПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A8B16F755F9AD455E35A18B4F67F0763AF38B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702217   (115820) от 24.02.2024
+
+Missing Persons - Hollywood Lie (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood Lie (03:23)
+02. King 4 a Day (03:32)
+03. Movie Star (02:49)
+04. Castles in the Sand (03:21)(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4998E0072856CD926E757382803DB087ACC93613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702596   (115714) от 25.02.2024
 
 FM-84 - Atlas (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave>
@@ -658,93 +745,6 @@ Antarsys - Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8568ED2CECA383094BD049383069566DB70C46EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718173   (111019) от 23.04.2024
-
-Sensuous Enemy - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova [00:04:35]
-02. Fire In The Dark [00:04:26]
-03. Drift [00:03:48]
-04. Weeping Woman [00:05:14](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CE0DA6A30BE27B8387B93B9ABB4580A443773E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719041   (110800) от 27.04.2024
-
-Andromeda Dreams - Hyperion (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:22)
-02. Beyond The Galaxy (5:25)
-03. Supernova (4:28)
-04. Obsidian (5:41)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F7371184B1ABE4ABAD0DD5D7DDC49983C420C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720807   (110179) от 05.05.2024
-
-Vector Seven - Atlas Industries (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Of The Void [00:04:12]
-02. Black Chrome [00:03:31]
-03. Tears In The Rain [00:04:05]
-04. Legends [00:03:33](   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 00:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E80E2D1A2A7E7FBE2AD5C8875B5AF39F00505D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

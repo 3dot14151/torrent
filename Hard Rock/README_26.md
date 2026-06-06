@@ -1,3 +1,32 @@
+###  Публикация: 1077421   (306196) от 28.11.2016
+
+Accept - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Stand The Night
+02. No Time To Lose
+03. Seawinds
+04. Amamos La Vida(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C800109462609500675C44D0948BDE1A8ADB6A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333310   (305268) от 24.10.2019
 
 Airbourne - Boneshaker (2019) [MP3|320 Kbps] <Hard Rock>
@@ -721,33 +750,6 @@ Ruud Cooty - Aftermath (2002) [MP3|320 Kbps] <Hard Rock, Heavy Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C51F3C6E533E675E25142CB6394B15433C3A27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272681   (278554) от 19.12.2010
-
-WHITE LION - Дискография (1985-2008) [MP3|320 kbps]<Hard Rock,Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock,Glam RockПродолжительность: 00:57:30
--------------------------------------------------
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

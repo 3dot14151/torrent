@@ -1,3 +1,32 @@
+###  Публикация: 1358657   (967312) от 09.02.2020
+
+VA - Euphonic 300 (Compiled and mixed by Kyau & Albert) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyau & Albert - So True (Original Mix) 03:50
+02. Aldous - Control (Original Mix) 03:31
+03. Kyau & Albert - Meteorite (Em Kole Remix) 04:29
+04. Francesco Sambero - Chekaty (Original Mix) 03:30(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC15B5BCBD96114FE8DB402038C28807B5EEB7AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978038   (964465) от 22.01.2016
 
 VA - Best Of Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Vocal Trance>
@@ -711,35 +740,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD712A4E2ACABB430338FE12880B9976F4587742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197391   (811456) от 09.01.2018
-
-VA - Dream Dance Vol.84 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Dance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811456.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Dream Dance Alliance  -  Coming Home  3:50
-02.  Marshmello feat. Khalid  -  Silence (Tiesto's Big Room Remix)  3:23
-03.  Armin Van Buuren feat. Josh Cumbee  -  Sunny Days (Purenrg Remix)  3:12(   Читать дальше...   )Жанр: Trance, House, DanceПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87543BCB5C4EB0046FDDD4633EED3711E92DDC0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

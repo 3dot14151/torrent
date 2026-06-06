@@ -1,3 +1,90 @@
+###  Публикация: 1016140   (771588) от 13.05.2016
+
+VA - Deep House Remix Compilation (2016) [MP3|320 кб/с] <Deep House, Electro, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771588.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Autodidact Feat Laura - Az Erzes (Moti Brothers Remix) 07:55
+002. Circuito Zeta - Step Down 07:18
+003. Poenitsch & Jakopic - Return To You (Sun Mix) 05:35
+004. Qubiko - If You 06:20(   Читать дальше...   )Жанр: Deep House, Electro, Club, DanceПродолжительность: 10:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1168328CCBC7D0A6597ECACC03D5044D8733A839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016398   (770542) от 14.05.2016
+
+VA - Out Of Trance Airspace (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elfsong - Tesseract (Jeremy Rowlett Remix) 7:48
+02. Solarstone - Lost Hearts (Mark Sherry Remix) 7:27
+03. Yuri Kane & Ana Criado - Running Wild (Liam Wilson Remix) 6:33
+04. Paul Oakenfold - Shanghai Baby (Joyriders Remix) 6:01(   Читать дальше...   )Жанр: TranceПродолжительность: 07:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E183CC4F61E3C22D36A90C2D2987AFBF45BC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016450   (770538) от 14.05.2016
+
+VA - House Music All Night Long (2016) [MP3|320 кб/с] <Dance, Electro House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aldo Moraes - Aria de Rio (Ipanema Beach Mix) (feat. Tony Trumpetta)
+02. Alan Brooker - Ritmo Profundo (Piano House Club Mix)
+03. Mark Moragui - The Oath and the Man (Long Groove Mix)
+04. Minimal Warriors - NCIS Tec (Ibiza Mix)(   Читать дальше...   )Жанр: Dance, Electro House, Tech HouseПродолжительность: 01:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2FCBC2599837132385465ABBD1AE8283BE95CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392185   (769888) от 24.06.2020
 
 VA - Beatport Bassline: Electro Sound Pack #112 (2020) [MP3|320 Kbps] <D&B, Bassline>
@@ -658,93 +745,6 @@ VA - Trance Collection Vol.59 (2017) [MP3|320 Kbps] <Trance, Progressive Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:842448928227741AE9DB3764EB816E051BB3B84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125926   (767067) от 16.04.2017
-
-VA - Record Super Chart #482 (2017) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  2:59
-02.  Грибы - Тает Лёд (Kolya Funk & Lavrushkin Remix)  4:00
-03.  Ofenbach - Be Mine (Amice Remix)  3:23
-04.  Klaas - Riot  4:00(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CC0C0F6A1EF300DBC122DB7023D0B5D070F50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279105   (766976) от 28.01.2019
-
-VA - Yt's My Time: Vocal House (2019) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766976.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Silengton - Shores (Original Mix)
-002. Arty - Perfect Strangers
-003. Audioglider - Chemtrails (Vocal Mix)
-004. Bring Bliss - Just Go On (Original Mix)(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A222C41EDE34DCE7B3FDFDC9625CE75946D5203C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393751   (766914) от 01.07.2020
-
-VA - Rhythm In Me: Dance House Mix (2020) [MP3|320 Kbps] <Club, Dance, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766914.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sammy Deuce - All Night Long (Original Mix)
-002. Luis Martinez - Space Ball
-003. DJ-Chart - Serial Killer
-004. Qubiko - If (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 10:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A47B1C24A8D708E03F084968328C674E1391D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

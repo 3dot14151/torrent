@@ -1,3 +1,55 @@
+###  Публикация: 1684178   (128051) от 14.12.2023
+
+Тейлор Свифт: The Eras Tour / Taylor Swift: The Eras Tour (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Experience the Eras Tour concert, performed by the one and only Taylor Swift.Производство: США / Taylor Swift ProductionsЖанр: документальный, музыка, концертРежиссер: Сэм РенчУчастники: Тейлор Свифт, Аманда Бален, Taylor Banks, Карен Чуэнг, Одри Дугласс, Tori Evans, Tamiya Lewis, Sam McWilliams, Sydney Moss, Natalie PetersonПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (full, SDH), немецкие, испанские, португальскиеПродолжительность: 03:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F2A38207C44802704E0907E796F4347E293FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672015   (127228) от 18.12.2023
+
+Автономная жизнь / Autonomes (2020) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франсуа Бегодо, получивший премию "Сезар" за сценарий киноадаптации его романа "Между стенами / Entre les Murs" (фильм "Класс" (2008) реж. Лоран Канте), в этом документальном фильме знакомит нас с нетипичными персонажами: магнетизером; лозоходцами; горожанами, решившими стать сельскими жителями... Что у них общего? Стремление к альтернативному (   Читать дальше...   )Производство: Франция, 24 ImagesЖанр: документальныйРежиссер: Франсуа БегодоПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Hiventy), немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 01:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E3A33F6A1E5FAB044D28C9A9AECBB575A33E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 633267   (127122) от 19.12.2023
 
 Тайны советского кино. "Семь стариков и одна девушка" (2012) SATRip
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70B37B772A595DF00DE6982C6CA3F3FC8970EA53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482767   (88656) от 15.04.2012
-
-Классические альбомы: Queen - The Making Of A Night At The Opera / Classic albums: Queen - The Making of A Night at the Opera (2006) DVDRip [H.264]
-
->>След.
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88656.jpg" />
-</div>
-
-
-###  Подробнее
-
-"The Making Of A Night At The Opera" - документальный фильм от Eagle Records при поддержке Queen Productions из серии "Classic Albums". Фильм о создании знаменитого альбома группы Queen, включает интервью с Б. Мэем, Р. Тейлором, продюсером Роем Томасом, а также архивные интервью с Фреди Меркьюри.Жанр: Документальный, МузыкаРежиссер: Мэттью Лонгфеллоу / Matthew LongfellowАктеры: Freddie Mercury, Brian May, Ian Hunter, Р. Тейлор, Nuno Bettencourt и другиеПеревод: Многоголосый закадровыйЯзык субтитров: Русские и АнглийскиеПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479950   (87221) от 08.04.2012
-
-Рифмы и Рассудок / Rhyme & Reason (1997) DVDRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87221.jpg" />
-</div>
-
-
-###  Подробнее
-
-На видео можно встретить очень много известных американских рэп звезд, вплоть до самых культовых… Это и эксклюзивные интервью, и интересные истории и в целом история зарождения и появления хип-хопа…Жанр: МузыкаРежиссер: Питер СпирерАктеры: The Notorious B.I.G., Kurtis Blow, Da Brat, Grandmaster Caz, Sean 'P. Diddy' Combs, Chuck D., Dr. Dre, E-40, Louis Freese, Heavy D, Lauryn Hill, Ice-T, Wyclef Jean, Ras Kass, KRS-One, L.V., Mack 10, Craig Mack, Method Man, MC Eight, Keith Murray, Nas, Master P, Q-Tip, Raekwon, Redman, Senen Reyes, Busta Rhymes, RZA, DJ Scratch, Erick Sermon, Tupac Shakur, Todd Anthony Shaw, Adario StrangeПеревод: Двуголосый закадровыйПродолжительность: 1:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D47E5D173AA33BCFE22EACD9626F7A340C66C46
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1332857   (308799) от 22.10.2019
+
+ProShow Producer - Original Frames [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивое и оригинальное слайдшоу с многоцелевым использованием... Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBC3200D2F32C085B097891EE5180CE0DBF56F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076032   (308299) от 27.11.2016
 
 Проекты - Проект ProShow Producer - Wedding Library Proshow Producer Gold Particles Postcard Opener [PSH]
@@ -655,32 +681,6 @@ Inspired Opener Slideshow - проект с оригинальным эффек�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A113D25B8F5BC19FDF9D00EEBE41AF1A82F7C379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184174   (300962) от 17.11.2017
-
-Проекты - Motion Array - Brush Slideshow - 50541 [PRPROJ]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу в программе Premiere Pro. Этот проект включает 5 текстовых подложек, 12 фото и 1 логотип.Формат: PRPROJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7491313E80424F06D6D283828CFE09AEBC182D97
 ```
 
 https://mybot314.ru/tekegram_catalog/

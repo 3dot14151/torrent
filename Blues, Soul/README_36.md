@@ -1,3 +1,119 @@
+###  Публикация: 1593767   (179286) от 29.11.2022
+
+Catch 23 - Blues Hotel (2022) [mp3|320 kbps|tracks] <Blues, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Hotel [00:04:24]
+02. Half The Man [00:03:44]
+03. If It Aint Broke [00:03:13]
+04. Nat Turner [00:03:43](   Читать дальше...   )Жанр: Blues, Classic RockПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3295B4527D28ED7C459F4FCD4C5AAE58E3A46844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666566   (178901) от 05.10.2023
+
+Zucchero - Blue's (1987) [MP3|320 Kbps] <Blues, Pop>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue's Introduction [00:15]
+02. Con Le Mani [04:43]
+03. Pippo [04:44]
+04. Dune Mosse [05:32](   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93102286572F0EC25FF02E95F76E3AF2AB435CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428822   (178148) от 04.12.2020
+
+Henrik Freischlader Band - Missing Pieces (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening (4:03)
+02. New Beginning (7:40)
+03. Power to the Peaceful (3:39)
+04. Let the People Be Free (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE2950430C9A5D4C24A82CC0E121FE8C9C8C25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667710   (175969) от 09.10.2023
+
+Rory Gallagher - Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Start Me Talkin' (Jinx Session / 1982) [03:34]
+02. Nothin' But The Devil (Against The Grain Session / 1975) [04:58]
+03. Tore Down (Blueprint Session / 1973) [05:10]
+04. I Could've Had Religion (WNCR Cleveland Radio Session / 1973) [05:57](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8891CA974E827E4E2ACC5DF4071D5275BC735CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429708   (175709) от 07.12.2020
 
 Taj Mahal - Live at Ultrasonic Studios (2020) [MP3|320 Kbps] <Blues Rock>
@@ -628,122 +744,6 @@ Deadwood - In the Meantime (2015) [MP3|320 кб/с] <Country Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB0F5EFA37D9E66E7A49E5EC06BFB51ABFE01ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433191   (158112) от 20.12.2020
-
-The Blues Hopman - Snooze You Lose (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Don't Know (6:28)
-02. Ludy Low (5:06)
-03. Live My Life (5:24)
-04. It's Too Late (8:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7469E0E94C2F036DE7D046982D2BC3A581B098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433591   (154996) от 22.12.2020
-
-Aaron Schembri - City Lights (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Lights (2:25)
-02. Don't Mean Nothing (feat. Normie Rowe) (3:51)
-03. Don't You Worry Now (feat. Ross Wilson) (3:57)
-04. Good Enough For You (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE2B47966071301F5F19BFFFA4A119F8B674E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676814   (154349) от 15.11.2023
-
-Jaz Blues - Evening Romantic Blues Collection (2022) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evening Blues Collection [04:46]
-02. Soothing for Trouble [03:55]
-03. Crazy Blues (Enjoy Fun & Freedom) [03:49]
-04. Love Ain't Wait [04:17](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7631363869046B6B7EC0476CCF3D40DF2D9FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434054   (153569) от 23.12.2020
-
-Oniblu - Play The Blues (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hide & seek (4:04)
-02. I want you (3:52)
-03. Goodbye yesterday (2:52)
-04. Play the blues (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6510F3A34B98EB3F0E89C624CB053CC2D31F63
 ```
 
 https://mybot314.ru/tekegram_catalog/

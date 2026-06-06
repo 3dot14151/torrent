@@ -1,3 +1,29 @@
+###  Публикация: 1467244   (1017819) от 03.05.2021
+
+Сборник - Joel Grimes - Beauty Brushes NEW BUNDLE + Bonus Brushes - Rain & Splashes [ABR, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите плоское тусклое изображение в невероятный портрет студийного вида всего несколькими щелчками мыши.Формат: ABR, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5D6CC7243FD93EADF1D167AE0BBCC7B90E5DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468020   (1017337) от 06.05.2021
 
 Сборник - InkyDeals - 1000+ Photoshop Resources Bundle [ATN, PAT, ABR, PSD, ASL, AI, EPS]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:790D67FDDBE4C2584A1518E5E7CD9883E6DA4C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374188   (874136) от 09.04.2020
-
-Сборники - Dealjumbo.com - Deeezy - 8 Abstract Geometric Flowers - 14410 [PNG, AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные абстрактные 3D формы в векторе и растре. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNG, AI, EPSРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38643CDC86B52B5290A3B3A960A5293E204D77FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

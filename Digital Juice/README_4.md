@@ -1,3 +1,29 @@
+###  Публикация: 562555   (405564) от 19.10.2012
+
+Digital Juice - Jump Backs SD 54: Fierworks (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_405564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - коллекция высококачественных бесшовных анимированных фонов посвященных разным тематикам продолжительностью 10-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E6CC3F1BF5D1714A1CB1EAFE5D18B448FB35EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562584   (405560) от 19.10.2012
 
 Digital Juice - Jump Backs SD 40: Ethereal (Full ISO)
@@ -642,32 +668,6 @@ Editor's Toolkit Standart 07: Wedding Tools II - тематический сбо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1EBC0AD191FD796FD579BB7DF6D3F3076A65871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569052   (391396) от 03.11.2012
-
-Digital Juice - Editor's Toolkit Standart 09: Christmas Tools (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Editor's Toolkit Standart 09: Christmas Tools - тематический сборник анимированных фонов и шаблонов, содержащий множество отдельных элементов, в нескольких вариаций каждый продолжительностью 10-30 секунд.Разрешение файлов: 720х576, 800x800, 800x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E104C93F320E69444858D3D71E95B8E09DE82C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

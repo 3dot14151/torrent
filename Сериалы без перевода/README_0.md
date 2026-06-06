@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_891699.jpg" />
 </div>
 
 

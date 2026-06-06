@@ -1,3 +1,32 @@
+###  Публикация: 1558375   (531644) от 20.06.2022
+
+VA - Radio Hits 2022 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Animals - Heat Waves (3:58)
+02. OneRepublic - Sunshine (2:43)
+03. Deve - Cold Life (2:37)
+04. Alesso - When I'm Gone (2:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF20AD2FA27B2314C7FD87071F965931851B0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926596   (531610) от 11.08.2015
 
 Karen Marie Orsted (MØ) - No Mythologies to Follow (2014) [MP3|320 кб/с]<Indie Pop, Electronic, Synth-pop>
@@ -720,35 +749,6 @@ VA - Die Grosse 90er Sause - Alle Starken Hits Der 90er (2019) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E791380B965FC6942417ADCA09EB5B569767B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314349   (519361) от 14.07.2019
-
-VA - Stevie Wonder Covers (2019) [MP3|320 Kbps] <Pop, Rock, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Red Hot Chili Peppers - Higher Ground (Remastered) (3:22)
-2.Blackstreet - Love's In Need (4:41)
-3.The Jackson 5 - Don't Know Why I Love You (3:49)
-4.Syreeta - I Love Every Little Thing About You (4:56)(   Читать дальше...   )Жанр: Pop, Rock, Funk, SoulПродолжительность: 01:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBABC268E5689FB3C2899FDD96A5A79880706339
 ```
 
 https://mybot314.ru/tekegram_catalog/

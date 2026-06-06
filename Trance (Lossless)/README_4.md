@@ -1,3 +1,32 @@
+###  Публикация: 1299258   (599897) от 01.05.2019
+
+Orbital ‎ - Orbital 2 (1993) [FLAC|Lossless|tracks + .cue] <Trance, Techno>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Becomes (01:44)
+02. Planet Of The Shapes (09:36)
+03. Lush 3-1 (05:40)
+04. Lush 3-2 (04:41)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73328B8BDE0C0E16493E608B0EA7B48986A0B84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038787   (599286) от 30.07.2016
 
 Chicane - Twenty (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Ambient>
@@ -114,6 +143,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552969   (584708) от 23.05.2022
+
+Fragma - Toca (20th Anniversary Edition) (2022) [FLAC|Lossless|WEB|tracks] <Trance, Euro House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_584708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toca's Miracle (Radio Edit) (3:20)
+02. Everytime You Need Me (Radio Edit) (3:30)
+03. Reach Out (3:23)
+04. You Are Alive (Radio Edit) (3:34)(   Читать дальше...   )Жанр: Trance, Euro HouseПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E46807EA35023CDC2FEE36934609291314C77DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301641   (584092) от 12.05.2019
 
 Physical Dreams - Only Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
@@ -136,6 +194,34 @@ Physical Dreams - Only Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:774A6C151F37778B8F78CC18E007C6AADFE2C913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041743   (581354) от 10.08.2016
+
+E-Mantra - Somnium (2016) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Goa Trance, Psy-Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mahakala (08:07)
+02. Unhcegila (07:26)
+03. Into The Blue (06:24)Жанр: Goa Trance, Psy-TranceПродолжительность: 00:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A537120582D2F225149FF8043FAC2581118ED83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,93 +736,6 @@ VA - Digitally Enhanced Volume Seven (Mixed by Farius & Elevven) (2022) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17FC3011B5C510EAAFE5EFA7E9753F244BBC2DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405324   (485326) от 29.08.2020
-
-Paul van Dyk - Guiding Light (2020) [FLAC|Lossless|tracks] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Van Dyk & Vincent Corver - Deep Within (Original Mix)
-02. Paul Van Dyk & Sue McLaren - Guiding Light (Original Mix)
-03. Paul Van Dyk & Saad Ayub - You Found Me (Original Mix)
-04. Paul Van Dyk & Shedona - Exhale (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 01:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0544A04D26CC3B40C20A80F35B38193CF75D4EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159178   (483910) от 20.08.2017
-
-VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sultan + Shepard - Bloom (Intro Mix)  4:05
-02.  Joonas Hahmo & K-System - Manana (Original Mix)  3:31
-03.  Andy Moor & Ashley Wallbridge - FaceOff (Original Mix)  2:54
-04.  Rodrigo Deem - Tearsdrop (Original Mix)  3:28(   Читать дальше...   )Жанр: TranceПродолжительность: 04:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB06A5780351360FAB66D061B9D79FA280C3F046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055984   (483861) от 24.09.2016
-
-Delerium feat Phildel - Ritual (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dark Ambient, Industrial>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483861.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. - Ritual (Album Mix) 5:13
- 2. - Ritual (Radio Edit) 4:11
- 3. - Ritual (Matt Lange Remix) 6:37
- 4. - Ritual (Alex Klingle Remix) 5:32(   Читать дальше...   )Жанр: Trance, Dark Ambient, IndustrialПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6A7A398B4F63A70ED73503709DC549ED36AC26
 ```
 
 https://mybot314.ru/tekegram_catalog/

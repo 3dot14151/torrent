@@ -1,3 +1,61 @@
+###  Публикация: 1314122   (521322) от 12.07.2019
+
+Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (8:59)
+02. Freedom (4:40)
+03. Follow the Heart (3:37)
+04. Eternal Deva (5:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15D40470BC68EC4B0A4B78EEAF472FA3DC37280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241319   (521071) от 16.08.2018
+
+Önder Bilge - Relaxing Guitar Heaven (2018) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Summer Breeze
+02 Circle in the Sand
+03 Early in the Morning
+04 Awaking(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B317EDF9DE69C1B9F4D0080448FA3C1F02D7B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561223   (515531) от 04.07.2022
 
 Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
@@ -688,64 +746,6 @@ Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D7718C81B3B4FCD52A9F83CE65D9D008A460BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701625   (474277) от 19.09.2013
-
-Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image + .cue] <Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equinoxe Part 1 (2:26)
-02. Equinoxe Part 2 (5:00)
-03. Equinoxe Part 3 (5:10)
-04. Equinoxe Part 4 (6:59)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82163399DE3FD901D9F41769D0CC1E1518636DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058563   (468832) от 01.10.2016
-
-Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks] <Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Meditation [00:12:15]
-02. Believe the Mental Power [00:13:20]
-03. On the Wings of Time [00:13:17]
-04. Reincarnation [00:08:22](   Читать дальше...   )Жанр: MeditationПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA244E70745E24651D5FA118BC5C81A8DC8AC3E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

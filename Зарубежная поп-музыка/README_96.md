@@ -1,3 +1,119 @@
+###  Публикация: 1792040   (21130) от 17.04.2025
+
+VA - Best Of The 90s (2016) 2 CD [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddie Mercury - Living On My Own
+02. Ace Of Base - All That She Wants (Remastered Version)
+03. Michael Jackson - They Don’t Care About Us
+04. Crazy Town - Butterfly(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2D8D123A2A1E8A6CDDCFB0F7753001B9306CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793349   (20394) от 24.04.2025
+
+VA - Classic Road Trip Songs 100 Hits (2025) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Treasure
+02. Coldplay - Paradise
+03. Climie Fisher - Love Changes (Everything)
+04. Stevie Nicks - Edge of Seventeen (2016 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA1B95F7293C1D45095D3187C1ACE58A0E5FD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794880   (19577) от 02.05.2025
+
+VA - Eurovision Song Contest - Turin 2025 (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shkodra Elektronike - Zjerm [00:03:04]
+02. PARG - SURVIVOR [00:02:58]
+03. Go-Jo - Milkshake Man [00:02:52]
+04. JJ - Wasted Love [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 01:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4B3A52ACCD1C7A2A32117D26C74F83AAFB6E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797687   (17867) от 18.05.2025
+
+VA - 50s Best Hits (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Little Anthony & The Imperials - Tears on My Pillow [00:02:19]
+02 - Cliff Richard - Livin' Lovin' Doll (1997 Remaster) [00:02:07]
+03 - Frankie Lymon & The Teenagers - Who Put the Bomp (In the Bomp Bomp Bomp) [00:02:59]
+04 - Ray Charles - What'd I Say, Pt. 1 & 2 [00:05:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31979AEA2D822D14450325649FB25CB27588185A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801323   (15032) от 10.06.2025
 
 Shirley Bassey - The Singer: Classic and Undiscovered Gems 1962-79 (2025) [MP3|320 Kbps] <Pop>

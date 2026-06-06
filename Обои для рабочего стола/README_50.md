@@ -1,3 +1,29 @@
+###  Публикация: 541559   (501490) от 31.08.2012
+
+Landscapes HD Wallpapers (30.08.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E9433F432A0F82D15AC96A96EA4882BB214030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317329   (501290) от 31.07.2019
 
 Обои - Desktop Wallpapers Full HD. Part (487) [JPG]
@@ -644,33 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D2E8D2796CFFF6AB5FA4559BECDB0E6C89A8AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054026   (493769) от 19.09.2016
-
-Обои - LIFEstyle News MiXture Images. Wallpapers Part 1056-1060 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
-В данный пак вошли выпуски из серии 1056-1060.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1EA7141B653A2D5D862662D0B26C641B5F92F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

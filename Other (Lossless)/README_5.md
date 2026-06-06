@@ -1,3 +1,90 @@
+###  Публикация: 640315   (239264) от 26.04.2022
+
+Мужской хор ИПК Валаам - Распевы Кирилло-Белозерского монастыря (1995) [FLAC|Lossless]<Церковные песнопения>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блажен муж
+02. Свете тихий
+03. Преподобне отче наш Кирилле
+04. Ныне отпущаеши(   Читать дальше...   )Жанр: Церковные песнопенияПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87194FB1425837043BD46B2794AEE7DA6BD2146B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628842   (237108) от 02.05.2023
+
+ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237108.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sunken Paths, Towering Vines (08:02)
+2.Glimmering Depths Below (05:26)
+3.Restoration Magic (07:52)
+4.A Change in the Weather (06:13)(   Читать дальше...   )Жанр: Dungeon Synth,  Medieval AmbientПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574437   (236915) от 06.09.2022
+
+VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Souk Criminals - Moroccan Heaven (Arabesque Rework) (4:17)
+02. Bedouin Spirit - Infidel (Jah Debda Sunset Mix) (3:10)
+03. T.I.A.C. - Camel Train (Marrakesh Mix) (4:44)
+04. DJ Ahmed - Nomad's Chant (4:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 03:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6884CD959A72C8D8FF7204F1DC91174137F892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641765   (235120) от 25.06.2023
 
 Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional Mexican>
@@ -679,99 +766,6 @@ Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB572E4C948D53646BA995D80048E476B5E7A913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596652   (130836) от 31.12.2012
-
-VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Soul, Funk/Soul, Disco>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gwen Guthrie - Ain't Nothin' Goin' On But The Rent [03:27]
-02. Donald Byrd - Love Has Come Around [03:38]
-03. Shanon - Let The Music Play [03:32]
-04. Kleer - Get Tough [03:19]
-05. Chaka Khan - I Feel For You [05:45]
-06. Earth, Wind & Fire - Let's Groove [03:30]
-07. Sister Sledge - Thinking Of You [03:42]
-08. Patrice Rushen - Forget Me Nots [04:06]
-09. Bohannon - Let's Start II Dance Again (Part II) [05:13]
-10. Levert - Casanova [03:58](   Читать дальше...   )Жанр: Hip Hop, Electro, Soul, Funk/Soul, DiscoПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525182   (129193) от 21.01.2022
-
-Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop, Acoustic, Lo-Fi>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rumours (04:10)
- 02. Rocky Trail (03:31)
- 03. Comb My Hair (03:06)
- 04. Angel (03:16)(   Читать дальше...   )Жанр: Indie Pop, Acoustic, Lo-FiПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823889   (126113) от 12.10.2025
-
-VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ildar Bik - Talika (5:49)
-02. Gabriel Slick - Searching (5:08)
-03. Inessa - Atacama (7:09)
-04. Tibetania - Orchard (5:43)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 02:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA81BF075B1E4AD45AEFA5D3BB0A5102A8BBEF35
 ```
 
 https://mybot314.ru/tekegram_catalog/

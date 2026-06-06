@@ -1,3 +1,61 @@
+###  Публикация: 1230324   (617382) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 17 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Via Verdi - Love Is A Dream
+02. Ryvon - Sing A Happy Song
+03. Federico L'Olandese Volante - Just Another Love Song
+04. Too Too Toy - Don't Wake Up(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F838F9B09D48919E640BD5C0138A565E4DCD53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230318   (617302) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 16 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiki Gaida - Virginal Mystery
+02. Parsifal - Carillon (English Version)
+03. Tenere - Moon Destination (Vocal English Version)
+04. Zener - New Generation(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CE1DD01FCB7DFBD2C145BBDA75008B49D5926F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230335   (617301) от 11.06.2018
 
 VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
@@ -697,67 +755,6 @@ Emly Starr - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Electronic, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6621AA80C0643E820C878E92AF54455611D0388B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231814   (602770) от 22.06.2018
-
-VA - Disco De Ouro 18/19 (2018) [MP3|320 Kbps] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602770.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-
-01. Quim Barreiros - A Feira
-02. Emanuel - És A Minha Vida(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:36
-
-01. Irmãos Verdades - É Demais
-02. José Malhoa - Há Baile Na Aldeia(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A6E67681DC6D3A65E7B432C30571C626C18A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232421   (600048) от 24.06.2018
-
-VA - Ballerina: The Tribute to Shanghai (2017) [MP3|320 Kbps] <Synth-pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machinista - Bang Bang (3:31)
-02. Saft - Ballerina (4:16)
-03. Electric City Cowboys - Flight 69 (3:28)
-04. OctoLab - Fallen Angel (3:57)(   Читать дальше...   )Жанр: Synth-pop, Italo-DiscoПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF58BBF04083B953A438BDECAF06FAB332ED436
 ```
 
 https://mybot314.ru/tekegram_catalog/

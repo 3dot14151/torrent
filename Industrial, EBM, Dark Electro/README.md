@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1869315   (1067999) от 05.05.2026
+
+:LOR3L3I: - Peace by Proxy (2026) [MP3|320 Kbps] <EBM, Darkwave, Dreampop, Synthpop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cloak of Stars
+02. Black Widow
+03. Fables
+04. Exogenesis(   Читать дальше...   )Жанр: EBM, Darkwave, Dreampop, SynthpopПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE3EC6CA7A7FA79EF2FCA1E16013141D0827EC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845504   (1050624) от 01.01.2026
 
 Portvain - Звук и ярость (2025) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
@@ -723,35 +752,6 @@ Nervenbeisser - Collection (2 Albums: Geschlechterschlacht, Zeitwandel) (2015 - 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E81B958FDDC680B928564D71475C1A246B8531A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097988   (911955) от 28.01.2017
-
-Celldweller - Transmissions Vol. 04 (2017) [MP3|320 Kbps] <Industrial, Alternative>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are Radio Transmission
-02. The Siren's Lullaby (Heart On)
-03. Pulse Injector
-04. Lifeforms (Mother-32 Version)(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22AB47043C12BA5DD0CFC3AF92C2CD73E67EA8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

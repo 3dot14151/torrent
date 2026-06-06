@@ -1,3 +1,32 @@
+###  Публикация: 945008   (437897) от 08.10.2015
+
+Selena Gomez - Revival (2015) Japanese Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival
+02. Kill Em With Kindness
+03. Hands to Myself
+04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2DACEF2F7D4700FB2B2FC402B8F0B25A3200BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323386   (437868) от 03.09.2019
 
 Rocky M - The Best Of (1989) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
@@ -713,35 +742,6 @@ Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B598BDE791CA28147DC5106944A5D98D0EB9872D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571979   (427513) от 24.08.2022
-
-Celine Dion - All The Way... A Decade Of Song (1999) [OGG Vorbis|485 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power Of Love	4:47
-02. If You Asked Me To	3:55
-03. Beauty And The Beast	4:04
-04. Because You Loved Me	4:35(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F179F787B663311724F3D8171C0BFC33FFE9DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

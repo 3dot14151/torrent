@@ -1,3 +1,32 @@
+###  Публикация: 933868   (504510) от 03.09.2015
+
+Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Within
+02. Dusty Rider
+03. Crying
+04. Fun Fare(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA5421C642447A572A56612B12FF4EAFDCF7BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538422   (504499) от 28.08.2012
 
 Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, New Age>
@@ -769,35 +798,6 @@ Club di relax mentale - Esperienza rilassante (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09CB18AD8C261B2CEFDC979C0A0E2DFEF1501F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159330   (486129) от 19.08.2017
-
-VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silvio Piersanti - Mountains
-02. World Music Scene - Black Desert Dub
-03. Gilberto Medda - Flying High in the Sky
-04. Iffar, Klezan - Hybrid(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B21ECB421FE0B518E9503F200A34A503950D8B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

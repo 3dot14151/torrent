@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1872081   (1070220) от 
+###  Публикация: 1872081   (1070220) от 20.05.2026
 
 Red Hat Enterprise Linux 10.2 [x86_64, aarch64] 4xDVD 1xWSL
 

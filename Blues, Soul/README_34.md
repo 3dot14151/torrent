@@ -1,3 +1,122 @@
+###  Публикация: 1082119   (280900) от 11.12.2016
+
+Gary Eisenbraun - Darkest Before The Dawn (2013) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Keep It To Myself  (04:07) 
+02|  Running To The Flame  (05:19) 
+03|  Waiting In Line  (05:10) 
+04|  Barbed Wire  (03:38) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C934688FD6F7ADDEC71BADD19A84A2D01A490F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336253   (280657) от 06.11.2019
+
+Andre & Renee Beeka - Bitin' da Blues (2019) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Play the Blues for You (feat. Paulie Testa, Sal Sax, Stevie Von Shart, Jonathan Fixler & Hank Wansaw) 7:12
+02. A Quitter Never Wins (feat. Hank Wansaw, Sal Sax, Stevie Von Shart, Jonathan Fixler & Paulie Testa) 5:19
+03. Bad Love (feat. Hank Wansaw, Sal Sax, Stevie Von Shart, Jonathan Fixler & Paulie Testa) 9:30
+04. Wee Wee Hours (feat. Hank Wansaw, (   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D37F141920317D016A2CBE19DAD854943B48576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081701   (280158) от 11.12.2016
+
+VA - Rock Blues Years (2016) [MP3|320 Kbps] <Blues Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Supersonic Blues Machine - Remedy (feat. Warren Haynes) 5:44
+002. Joe Bonamassa - This Train 4:21
+003. Omar & The Howlers - That Ain't It 3:03
+004. Walter Trout - Help Me 7:20(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 07:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7090E93049C54881397D300868619614C299F80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264497   (277770) от 25.11.2018
+
+VA - Glitterbox - Pump The Boogie! & Continuous Mixes (2018) [MP3|320 Kbps] <Soul, Jackin, Funky>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glitterbox Presents Pump The Boogie! MIXED 
+
+01. Melvo Baptiste - Glitterbox - Pump The Boogie! Mix 1 (Continuous Mix) 1:13:51
+02. Melvo Baptiste - Glitterbox - Pump The Boogie! Mix 2 (Continuous Mix) 1:08:30(   Читать дальше...   )Жанр: Soul, Jackin, FunkyПродолжительность: 01:49:04
+
+01. Slam Dunk'd Ft. Al-P & Chromeo - No Price (Full Intention Remix)
+02. Advance - Take Me To The Top (Extended Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8348450D9181F03109D367EE5B3A8307D71547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188437   (274730) от 02.12.2017
 
 Supersonic Blues Machine - Californisoul (2017) [MP3|320 Kbps] <Blues Rock>
@@ -629,122 +748,6 @@ Mr Blues - Ain't No Saint (2019) [MP3|320 Kbps] <Blues, Chicago Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22BE2893450ED313395FCED43346ACE689590716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084870   (219059) от 19.12.2016
-
-Bob Lanza Blues Band - From Hero to Zero (2015) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Loving You (03:55)
-02. All over Again (04:41)
-03. Love and Kindness (06:24)
-04. Hero to Zero (03:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9962BC77CBCE99F6D635F59C8D4B60EA1F2B771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966789   (218947) от 18.12.2015
-
-Fiona Boyes - Box & Dice (2015) [MP3|320 кб/с] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juke Joint On Moses Lane  (03:33)
-02. I'm A Stranger Here  (04:50)
-03. Walking Round Money  (03:42)
-04. Smokestack Lightning  (04:22)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E255FE5FFDE77A3123919FF52788C2F5E6F3D55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343418   (218180) от 06.12.2019
-
-Dalannah Gail Bowen - Looking Back (2019) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking Back
-02. What the Hell is That?
-03. Down to the River
-04. I Got You(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A58C51D8F2E7D741B6FBF942631E184D3E9FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269609   (217499) от 16.12.2018
-
-Eric Mcfadden - Does ACDC (Acoustic Tribute) (2018) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hells Bells
-02. Rock’n’Roll Damnation
-03. Girls Got Rhythm
-04. Have A Drink On Me(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1CA4D1363F5E6867BEFB337F618FDAB0D291F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

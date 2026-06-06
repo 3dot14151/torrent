@@ -1,3 +1,377 @@
+###  Публикация: 1518529   (154304) от 20.12.2021
+
+H.1, Hevi - Indigo Night (2021) [AAC|~310 Kbps] <Lounge, Chill Hop, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Way Home (3:10)
+02. Letters for You (2:19)
+03. Indigo Night (1:52)
+04. Moonlight (2:37)(   Читать дальше...   )Жанр: Lounge, Chill Hop, AmbientПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DB19198877D0DE975DAD3997C4118219100749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518534   (154295) от 20.12.2021
+
+SolarFlow - Specter (2020) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SolarFlow, Veela - I Belive in Love (Original Mix) (5:46)
+02. Take It All the Way (Original Mix) (6:00)
+03. Behind a Mirror (Original Mix) (4:16)
+04. Sadness of Rain (Original Mix) (6:08)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8023F0ADCAF144A7CC2DA45E073D6D3D278D4493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518565   (154290) от 20.12.2021
+
+VA - Fireplace Chill - Winter Edition (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menace & Lord - While the Record Plays (Original Mix) (2:50)
+02. Sebastian Bach - Wandering (Original Version) (5:01)
+03. Chambre 37 - A Warm Breeze (Original Mix) (5:49)
+04. Jens Buchert - Raumhafen (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAE3F446FA0B7C7CCB22F432CDB15DB271328AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518562   (154279) от 20.12.2021
+
+VA - Best Vocal Chill Out (Remixes for 2021) (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelo-K - Whatever You Need (Zetandel Chillout Mix) (4:24)
+02. Daminika, Bryan Milton, Natune - I Won't Sleep (Rayan Myers Remix) (5:22)
+03. DJ Artak, Angel Falls - Unity (Owl Stone Chill Mix) (4:17)
+04. Angelo-K - Whatever You Need (S.A.T Chillout Remix) (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BB1CE4D98316B1AA08846278B82B761E8F5BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518532   (154261) от 20.12.2021
+
+SolarFlow - Collection of the Best Tracks From: Solarflow (2020) [AAC|~326 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Sun (Original Mix) (6:04)
+02. Sundrifting, Natune - Just Be (SolarFlow Remix) (5:43)
+03. Two Worlds (Original Mix) (5:56)
+04. Dreaming Way, Angel Falls - A Little While (SolarFlow Chillout Remix) (5:57)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB21BBFDDC1334BE8A32855F831061D2B86FE37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518555   (154248) от 20.12.2021
+
+VA - Winter Relaxation, Vol. 1 (2019) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock, Ivan M-sax - Wavedrops (Original Mix) (4:16)
+02. Myah - Falling (Original Mix) (4:09)
+03. Lemongrass, Jane Maximova - Shiny Pebbles (Original Mix) (5:20)
+04. Rex Kramer - 2800M Above (Original Mix) (5:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6EE5AE934F5FD1FA2C9F45CE5223CB7EF2164F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518533   (154242) от 20.12.2021
+
+SolarFlow - Imagine (2020) [AAC|~323 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begining of Life (Intro Mix) (3:24)
+02. Forest (Original Mix) (6:24)
+03. Dream of Mermaid (Original Mix) (5:37)
+04. Revival the Bird (Original Mix) (5:53)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024F7364B1671AC87BCD3FFEAF79488D206FBE66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518561   (154235) от 20.12.2021
+
+VA - Winter Relaxation, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - The End (Original Mix) (5:33)
+02. Tapelapse - Daydreaming (2:10)
+03. Stargazer - Return of Idleness (Original Mix) (3:35)
+04. Marc Hartman - Come over Here (Original Mix) (5:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03C6C2ACCCADBA0567F2916F6D1B78089C997BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518530   (154191) от 20.12.2021
+
+SolarFlow - Infinity (2020) [AAC|~320 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinity (Original Mix) (5:32)
+02. Apollo 13 (Original Mix) (6:25)
+03. Elements (Original Mix) (5:21)
+04. Dolphins (Original Mix) (4:55)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D622F21959A02FC21B10DE5DCEDB01926645F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518539   (154185) от 20.12.2021
+
+SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 3 (2021) [AAC|~334 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virgo (Original Mix) (6:01)
+02. Leo (Original Mix) (4:37)
+03. MaxLoop, Joni Venchy - Blindside (SolarFlow Chillout Remix) (5:10)
+04. Aries (Original Mix) (4:49)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B767FF91245CA195BC4E165B6A239EEB6018FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518531   (154127) от 20.12.2021
+
+SolarFlow - Eternal Peace (2020) [AAC|~342 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Sun (Original Mix) (6:04)
+02. Springtime (Original Mix) (4:48)
+03. Touch of Sun (Original Mix) (4:35)
+04. Echoes of Dreams (Original Mix) (6:01)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530AACEE66586FB44E749974D86742F33205066F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518537   (154108) от 20.12.2021
+
+SolarFlow - Zodiac (2021) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capricom (Original Mix) (4:00)
+02. Aquarius (Original Mix) (5:20)
+03. Pisces (Original Mix) (4:22)
+04. Aries (Original Mix) (4:49)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DCA7905661A365E0BF61D449D0A4016436959F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518494   (153920) от 20.12.2021
+
+Последняя дуэль / The Last Duel (2021) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нормандский рыцарь Жан де Карруж по возвращении с войны узнаёт, что его сосед и соперник Жак Ле Гри изнасиловал его жену Маргарит. Однако у Ле Гри обнаружились сильные союзники, словам женщины никто не верит, и Карруж обращается за помощью лично к королю Франции Карлу VI. Заслушав все свидетельства, король постановил, что конфликт должен быть разрешён в честном поединке. (   Читать дальше...   )Производство: США, Великобритания / 20th Century Studios, Pearl Street Films, Scott Free ProductionsЖанр: история, драмаРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Адам Драйвер, Джоди Комер, Харриет Уолтер, Бен Аффлек, Алекс Лоутер, Мартон Чокаш, Уильям Хьюстон, Оливер Коттон, Орелиен ЛорньеПеревод: Профессиональный многоголосый, любительский двухголосыйСубтитры: русские, украинские, английскиеПродолжительность: 02:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB59177227F8231814C4B88F41BC0B784FA91FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085544   (153743) от 23.12.2016
 
 Глубоководный горизонт / Deepwater Horizon (2016) WEB-DLRip [480p] iPod
@@ -329,360 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C9E26F76FE54F7949F3EC9FCF2DFD01E6CB1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086197   (152756) от 24.12.2016
-
-Врач  (2016) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Михайлович работает нейрохирургом в городской больнице. Его день состоит из операций, осмотров больных, попыток выбить квоты на размещение пациентов. Каждый день он оглашает людям страшные диагнозы и, словно мольбы о помиловании, выслушивает вопросы о том, есть ли хоть какая-нибудь надежда. Его преследует один страшный образ — человека, обреченного на неподвижную (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Гоша КуценкоАктеры: Гоша Куценко, Мария Порошина, Александр Яцко, Юрий Кузнецов, Анна Михалкова, Виктория Корлякова, Алёна Хмельницкая, Любовь Руденко, Олеся Железняк, Инна ПиварсПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E10C0D2D7A53E448460CC66D326A7265F734CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968506   (152575) от 24.12.2015
-
-Эверест / Everest (2015) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эверест — великая неприступная гора, покорить вершину которой мечтают многие профессиональные альпинисты. Одна из экспедиций на ее вершину закончилась настоящей трагедией, однако этот факт не останавливает отважных альпинистов. Опытный инструктор Роб Холл, собрав группу из лучших альпинистов, собирается совершить восхождение на самую высокую вершину планеты. Все (   Читать дальше...   )Производство: США, Великобритания, ИсландияЖанр: Триллер, драма, приключения, биография, историяРежиссер: Бальтасар КормакурАктеры: Джейсон Кларк, Джош Бролин, Джейк Джилленхол, Сэм Уортингтон, Джон Хоукс, Майкл Келли, Ингвар Эггерт Сигюрдссон, Кира Найтли, Эмили Уотсон, Робин РайтПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 02:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B410111A577F10160132D45A3E2159D01F533423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601067   (151967) от 30.12.2022
-
-Хищники / As bestas / The Beasts (2022) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городская пара переезжает в небольшую деревню в поисках спокойной жизни в гармонии с природой. Однако им придется столкнуться с жестокостью и недружелюбием местных жителей, что приведет к непредотвратимым последствиям.Производство: Испания, Франция / Arcadia Motion Pictures, Caballo Films, Cronos EntertainmentЖанр: триллерРежиссер: Родриго СорогойенАктеры: Марина Фоис, Дени Меноше, Луис Саера, Диего Анидо, Мари Коломб, Луиса Мерелас, Хосе Мануэль Фернандес и Бланко, Федерико Перес Рей, Javier Varela, Дэвид МенендесПеревод: Авторский одноголосыйСубтитры: Английские
-Присутствует ненормативная лексикаПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889FE61C309A8DA3762F1938B399D49C5B0FA7D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347526   (151964) от 23.12.2019
-
-Райские холмы / Paradise Hills (2019) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в дивный новый мир. Здесь создан высокотехнологичный остров, имя которому — Райские холмы. Богатые семьи отправляют сюда «несовершенных» дочерей, чтобы преобразить их по своему желанию. Ведь если ты принадлежишь к высшему обществу, даже в далеком будущем брак по любви — непозволительная роскошь. Красота, покорность и непорочность — вот путь к новой (   Читать дальше...   )Производство: Испания / Nostromo Pictures, Colina Paraiso AIE, Radio Televisión EspañolaЖанр: Фантастика, фэнтези, триллерРежиссер: Элис ВэддингтонАктеры: Эмма Робертс, Даниэль Макдональд, Аквафина, Милла Йовович, Эйса Гонсалес, Джереми Ирвин, Арно Валуа, Дэниэл Хорват, Джои Сордил, Нэнси ДжекПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1643133A4FB19B9F5B9756EAFE9A6281F30C6320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086231   (151852) от 24.12.2016
-
-Землетрясение  (2016) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151852.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 декабря 1988 года в Армении произошло землетрясение, охватившее почти половину территории республики. Были разрушены города Спитак, Ленинакан, Кировакан, Степанаван и ещё более 300 населённых пунктов. 25 тысяч человек погибли, 19 тысяч стали инвалидами, больше полумиллиона остались без крыши над головой. На фоне природной катастрофы разворачивается история двух (   Читать дальше...   )Производство: Армения, РоссияЖанр: ДрамаРежиссер: Сарик АндреасянАктеры: Константин Лавроненко, Мария Миронова, Виктор Степанян, Татев Овакимян, Михаил Погосян, Грант Тохатян, Даниил Изотов, Микаэль Джанибекян, Сос Джанибекян, Арсен ГригорянПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E010F7B2F6FB4CE49E576624B60ECAE4DDE5EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195098   (151830) от 27.12.2017
-
-Иностранец / The Foreigner (2017) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший спецагент, ветеран вьетнамской войны Цюань давно сложил оружие и завел мирную жизнь. Но после того, как в теракте прямо на глазах погибает его дочь-подросток, видя, что власти не спешат разыскивать преступников, Цюань сам начинает поиск убийцы. Он пойдет на все, чтобы совершить праведное возмездие…Производство: Великобритания, Китай, СШАЖанр: Боевик, триллер, драма, криминал, детективРежиссер: Мартин КэмпбеллАктеры: Джеки Чан, Пирс Броснан, Майкл МакЭлхаттон, Лю Тао, Чарли Мерфи, Орла Брэйди, Кэти Льюнг, Рэй Фиарон, Руфус Джонс, Марк ТэндиПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C90B0B64A4729F03D71BD5BEA8BF75501CC108F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529175   (151821) от 30.12.2022
-
-Эдуард Артемьев - Неизданное (2021) [AAC|~281 Kbps] <Film Scores>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Титры (Из кинофильма Курьер) (2:05)
-02. Титры (Из кинофильма ТАСС уполномочен заявить) (3:36)
-03. Полёт истребителя (Из кинофильма Каждый охотник желает знать) (2:44)
-04. Основная тема (Из кинофильма Девочка и дельфин) (1:27)(   Читать дальше...   )Жанр: Film ScoresПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F5424E7E2C965B2F25E0820ED994C5F74DCFA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195102   (151820) от 27.12.2017
-
-Иностранец / The Foreigner (2017) WEB-DLRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший спецагент, ветеран вьетнамской войны Цюань давно сложил оружие и завел мирную жизнь. Но после того, как в теракте прямо на глазах погибает его дочь-подросток, видя, что власти не спешат разыскивать преступников, Цюань сам начинает поиск убийцы. Он пойдет на все, чтобы совершить праведное возмездие…Производство: Великобритания, Китай, СШАЖанр: Боевик, триллер, драма, криминал, детективРежиссер: Мартин КэмпбеллАктеры: Джеки Чан, Пирс Броснан, Майкл МакЭлхаттон, Лю Тао, Чарли Мерфи, Орла Брэйди, Кэти Льюнг, Рэй Фиарон, Руфус Джонс, Марк ТэндиПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A59CBD764810F0531D61803E64D82095848D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518728   (151748) от 22.12.2021
-
-VA - Taj Mah Lounge, Ambient Grooves, Vol. 2 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yantra Mantra - Kusuma (Chandini Mix) (4:46)
-02. Smooth Deluxe, Nizam Kharda - Nabakrishna (2:47)
-03. DJ MNX, Sifat - Om Aa Bi Ya (7:29)
-04. Aquascape - Mechanical, Pt. Two (3:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 02:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436B2DCDA23A287632D7782A9C15C885DB4AC376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854260   (151734) от 28.12.2014
-
-В изгнании / Outcast (2014) HDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма разворачивается в Китае, в Средние века. Наследник императорского престола становится целью убийства у своего презираемого старшего брата и вынужден бежать. Единственное, что остается молодому принцу, – это защита его сестры при помощи воина-крестоносца (Хейден Кристенсен), которому, в свою очередь, придется смириться с собственными демонами и, сплотившись с некогда легендарным воином, ныне ставшим бандитом (Николас Кейдж), вернуть принца на его законное место на троне...Жанр: БоевикРежиссер: Ник ПауэллПродюсер: Джереми Болт, Тоув Кристенсен, Леонард ГловинскиАктеры: Николас Кейдж, Хейден Кристенсен, Лю Ифэй, Рон Смуренбург, Энди Он, Джавед Эль Берни, Фернандо Чиен, Престон Бэйкер, Байрон Лосон, Томер ОзПеревод: Любительский (двухголосый закадровый) (Пиратская студия)Язык субтитров: АнглийскийПродолжительность: 01:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8DA2DC729C391FA29E64F38CBFE5B529D3F1E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518732   (151733) от 22.12.2021
-
-VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bahramji, Mashti - Awareness (7:31)
-02. Smooth Deluxe, Nizam Kharda - Shahmukhi (3:49)
-03. Yantra Mantra - Kabhi Kann, Kabhi Naa (4:23)
-04. Ensemble Ethnique - Aruna Chala (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADE86037529DF270DEACA00B416671F5888FA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518726   (151715) от 22.12.2021
-
-VA - Taj Mah Lounge, Ambient Grooves, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gushi, Raffunk - The Way to You (Intro) (1:48)
-02. HAUA, Marat Taturas - Ufa (5:54)
-03. Bahramji, Beach Messiah - New Yeah (9:15)
-04. Dudubeat - Urartu (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49591F1E1E3687111E2AB698C0794AE3D44C2A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518748   (151706) от 22.12.2021
-
-VA - CLUBWRK - Best of 2021 (2021) [AAC|~332 Kbps] <House, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyron Hapi - Euphoria (2:54)
-02. Will Sparks - Stand By Me (4:28)
-03. Kild - Reality (3:10)
-04. Two Minds Project - The Garden (3:51)(   Читать дальше...   )Жанр: Electro House, Future House, Hard Techno, Hard Dance, TranceПродолжительность: 02:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48D050202E2F3389A848520B09724557D845BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

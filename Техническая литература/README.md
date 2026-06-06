@@ -1,5 +1,111 @@
 https://t.me/izofen
-###  Публикация: 1871816   (1069909) от 
+###  Публикация: 1874295   (1071753) от 01.06.2026
+
+Книжная серия | Книжная полка радиолюбителя [9 книг] (2002 - 2010) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071753.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серии "Книжная полка радиолюбителя" читатель найдет конструкции на любой вкус для радиолюбителей, для домашнего быта, для радиосвязи и для многого другого.
+Для широкого круга радиолюбителей.Жанр: ЭлектроникаИздательство: РадиософтФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691447D6BE21C80B9F27D85E392F5A7F4CA3CBA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873290   (1071134) от 27.05.2026
+
+М.С. Самарин | Вольт, Ампер, Ом и другие. Единицы физических величин в технике (1988) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071134.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книжке рассказывается об ученых и изобретателях, в честь которых названы единицы физических величин, используемых в технике электросвязи.
+В популярной форме поясняется смысл единиц физических величин, используемых в технике электросвязи, приводятся примеры их применения, сообщаются краткие сведения об ученых и изобретателях, в честь которых эти единицы получили (   Читать дальше...   )Жанр: Технические наукиИздательство: Радио и связьФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFE22D88B4128D98C58BCF7664CF44A0D39DBD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873219   (1071108) от 27.05.2026
+
+Г. Головин | Попов - изобретатель радио (1945) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга от изобретателе радио - Александре Степановиче Попове.Жанр: Технические наукиИздательство: Молодая гвардияФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C30ACD12E43BED2A514178E75705E76227B0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872705   (1070888) от 24.05.2026
+
+Коллектив авторов | Подборка книг по синергетике, системному анализу, фракталам и аналитике [630 книг] [PDF, DJVU, FB2, CHM, DOC]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка книг по синергетике, системному анализу, фракталам и аналитике.Жанр: Технические наукиФормат: PDF, DJVU, FB2, CHM, DOCКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECBF95FDD5A11330ABB8D0D9F4CF2FE4C58FC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871816   (1069909) от 18.05.2026
 
 Коллектив авторов | Справочник металлиста [5 томов] (1976 - 1978) [PDF]
 
@@ -26,7 +132,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871824   (1069895) от 
+###  Публикация: 1871824   (1069895) от 18.05.2026
 
 Н.С. Ачеркан (ред.) | Справочник машиностроителя (в 6 томах) [6 томов] (1955 - 1956) [DJVU]
 
@@ -52,7 +158,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871822   (1069893) от 
+###  Публикация: 1871822   (1069893) от 18.05.2026
 
 В.И. Анурьев | Справочник конструктора-машиностроителя (5 издание) [3 тома] (1978 - 1979) [DJVU]
 
@@ -80,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871871   (1069859) от 
+###  Публикация: 1871871   (1069859) от 19.05.2026
 
 Н.С. Ачеркан (ред.) | Детали машин. Расчет и конструирование [3 тома] (1968 - 1969) [DJVU]
 
@@ -573,114 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60942A3D75EAEA6AC6F0AF67E420C2F5E677370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851813   (1055688) от 05.02.2026
-
-Stephen Corda | Introduction to Aerospace Engineering with a Flight Test Perspective (Aerospace Series). 2nd Edition (2026) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comprehensive textbook integrating the fundamentals of flight testing with introductory concepts in aerospace engineering
-
-Introduction to Aerospace Engineering with a Flight Test Perspective provides a solid foundation in the fundamentals of aerospace engineering while illuminating many aspects of real-world flight, covering topics such as aerodynamics, propulsion, (   Читать дальше...   )Жанр: Aerospace Propulsion Technology, Aeronautics, Aeronautical EngineeringЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE847E3025AA94325FBAB4C010456F64DB6FE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850624   (1054618) от 30.01.2026
-
-Francis D. K. Ching, Steven R. Winkel | Building Codes Illustrated. A Guide to Understanding the 2024 International Building Code. 8th Edition (2025) [PDF] [EN]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054618.jpg" />
-</div>
-
-
-###  Подробнее
-
-STAY INFORMED OF THE LATEST UPDATES TO THE INTERNATIONAL BUILDING CODE WITH THE LEADING VISUAL REFERENCE
-
-In the newly revised Eighth Edition of Building Codes Illustrated: A Guide to Understanding the 2024 International Building Code®, architectural drawing expert Francis D.K. Ching and well-known architect Steven R. Winkel deliver a beautifully illustrated and (   Читать дальше...   )Жанр: Architectural Codes & Standards, Architecture, Architectural Drafting & PresentationЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFDEFA52950AEEED427EA5069977D16F766FFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850641   (1054469) от 29.01.2026
-
-Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autonomous Systems (Unmanned System Technologies) (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054469.jpg" />
-</div>
-
-
-###  Подробнее
-
-This textbook provides information about the essential technical components of building autonomous systems. The book starts by briefly covering basic principles of statistical estimation theory, an essential tool required in various steps in the implementation of autonomous systems. The book also includes technical details of the navigation systems along with their (   Читать дальше...   )Жанр: Unmanned System TechnologiesЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CE22F8E567C7496C01D4365D358BD4ABAB1F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850264   (1054145) от 27.01.2026
-
-Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054145.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

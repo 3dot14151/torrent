@@ -1,3 +1,90 @@
+###  Публикация: 983930   (942052) от 07.02.2016
+
+VA - Trance Desire Volume 61 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lange feat. Stine Grove - Crossroads (Original Mix) (03:44)
+02. Sied van Riel feat. Adina Butar - 8 Decades (Matt Davey Remix) (06:47)
+03. Andre Visior feat. Cathy Burton - Daylight (Original Mix) (06:51)
+04. Matt Eray feat. Claire Willis - A Milion Miles (Original Mix) (06:45)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74636DAB62615B0CB63B4DEA3943762FA7C5B9F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363514   (941879) от 28.02.2020
+
+VA - Top50: Tracks Deep House Ver.18 (2020) [MP3|320 Kbps] <House, Deep House, Melodic-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilona Maras - Old Letters XIX (Original Mix) 6:54
+02. Abstraal - Massalia (Danito & Athina Remix) 7:52
+03. Nachap - Loom (THE WHite SHadow) (FR) Remix) 7:23
+04. MAAND & Strangerї - Last Day Breathing (Da Fresh Remix) 6:43(   Читать дальше...   )Жанр: House, Deep House, Melodic-House, Progressive, ElectronicПродолжительность: 05:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C190B8662DC69047BE7E77E1E35BDDE86E3FC8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091838   (941746) от 10.01.2017
+
+VA - Resident Advisor Top 50 Charted Tracks December 2016 (2017) [MP3|204-320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butch, C.Vogt - Bliss (Original Mix) 07:21
+02. Full Intention - Keep Pushing (Original Mix) 06:28
+03. DJ Koze - Driven (Original Mix) 06:39
+04. Pig&Dan - Chemistry (Original Mix) 08:16(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DEC81D39E9B98184661B4188DFAA5D85A90529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091753   (941687) от 10.01.2017
 
 VA - Melody Across The World Dreams (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Harmonic, Energy>
@@ -658,93 +745,6 @@ VA - 100 Greatest Trance Anthems (2020) [MP3|320 Kbps] <Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743164582D5E9C7AF67794484DFCF8C70FA83B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092995   (937429) от 13.01.2017
-
-VA - Trance Elegance On This Year 007 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mark Sixma & Jonathan Mendelsohn - Way To Happiness (Reorder Extended Remix)  5:51
-02.  Xian - Equinox (Original Mix)  8:00
-03.  Stoneface & Terminal With Ana Criado - My Heart Wont Tell You No (Original Mix)  8:20
-04.  STA - Singularity  8:28(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEFFECA011FD716E9AD9F462CD43BC4B1B69D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092841   (937340) от 13.01.2017
-
-VA - Aboved Singles Reviews (Trance Pack  9 January) (2017) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vadim Spark & Dennis Graft - Spells (Radio Edit)  3:23
-02.  Allen Watts - Square One (Original Mix)  6:44
-03.  Mario Piu - Thunderstruck (Voolgarizm Mix)  6:32
-04.  Alexander Dyomin - Reborn (Delta IV Remix)  6:16(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 05:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE30396F9C8C50A745FB4D37F81F60DEB87F177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984954   (937256) от 10.02.2016
-
-VA - Miami Dance - Lights Impression (2016) [MP3|212-320 кб/с] <Acid House, Hard NRG, Electroclash, UK Funky, Bigroom, New Rave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937256.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sandro Silva X Dirtcaps - Someone Like U (Radio Edit) 03:22
-002. Hardwell And Dannic Feat. Haris - Survivors (Original Mix) 04:36
-003. Nervo Ft. Kreayshawn, Dev & Alisa - Hey Ricky (Extended Mix) 04:07
-004. Steve Angello & Laidback Luke - Show Me Love (Feat Robin S) (Anevo Remix) 05:15(   Читать дальше...   )Жанр: Acid House, Hard NRG, Electroclash, UK Funky, Bigroom, New RaveПродолжительность: 10:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1518F3825215807B5D7F1FA792A55100E1C6FE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

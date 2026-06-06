@@ -1,3 +1,32 @@
+###  Публикация: 1275133   (791096) от 10.01.2019
+
+Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets of the Sea
+02. Reverence
+03. River of Dreams
+04. Distant Shores(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BDC8DCC0AFB527325C3A884523DE043A1C1AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201949   (790970) от 27.01.2018
 
 Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
@@ -713,35 +742,6 @@ Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1102DD8B89D8DE35FBE2E6A695FBC8BADFB27E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014512   (776152) от 08.05.2016
-
-Deuter - Ocean Waves (2012) [FLAC|Lossless|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bali    16:58
-02. Cannes    15:33
-03. Lanzarote    12:57
-04. Nice    10:07(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5B0FC45B147FA010726A6675790768A261E4CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

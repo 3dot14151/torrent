@@ -1,22 +1,24 @@
-###  Публикация: 920060   (579929) от 22.07.2015
+###  Публикация: 1041430   (583490) от 08.08.2016
 
-Empires and Allies v1.5.887711 [Ru]
+Волейбол. Олимпийские игры 2016. Женщины. Группа B. Тур 2. Китай - Италия (2016) HDTV [H.264/1080i]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Empires and Allies – интересная военная стратегия, в которой вам необходимо продемонстрировать всю свою мощь и завоевать как можно больше территорий. В это нелёгкое для всех время, сила армии решает всё – Есть армия есть и территории позволяющие выжить нормально существовать. Используйте только самое совершенное, новое и технологичное орудие для подавления силы врага. (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 14 июля 2015 г.Разработчик: ZyngaПоддерживаемая ОС: Android 4.1+Жанр: StrategyЯзык интерфейса: Русский
+08 августа 2016 года, понедельник. 15:30 МСК
+Женщины. Группа B. 2-й тур. Китай - Италия
+Арена: Мараканазиньо (Рио-де-Жанейро, Бразилия)Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 01:12:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:078965366A583FFA8CE9B7079C020D5E6A17DE7C
+magnet:?xt=urn:btih:594F9DA7FC42A87A8BD8A85B59DE8B5A4F36425B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +26,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 920429   (579928) от 22.07.2015
+###  Публикация: 1041447   (583489) от 08.08.2016
 
-Константин Калбазов | Охотник за головами (2015) [FB2]
+Гандбол. Олимпийские игры 2016. Женщины. Группа B. Тур 2. Франция - Россия (2016) HDTV [H.264/1080i]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Второй роман цикла «Одиночка».
+08 августа 2016 года, понедельник. 17:30 МСК
+Женщины. Группа B. 2-й тур. Франция - Россия
+Арена: Фьюче Арена (Рио-де-Жанейро, Бразилия)Телекомпания: Матч Игра HDЖанр: СпортПродолжительность: 01:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE8EF3E9DCC660C21C5365C89FB1FC96885CCEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041241   (583488) от 08.08.2016
+
+Футбол. Суперкубок Англии 2016. Лестер - Манчестер Юнайтед (07.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583488.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 августа 2016, воскресенье. 18:00 МСК
+Финал
 
-Оказаться в фантастическом мире межзвездных империй, путешествовать по безграничным просторам галактики, пользоваться достижениями внеземной цивилизации. Что еще нужно человеку для полного счастья? Самая малость: возможность обнять близких людей.
-(   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
+Стадион: Уэмбли (Лондон, Англия) , вместимость: 90000(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Елагин)Продолжительность: 01:46:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7A476FC8DD2931E8419A6FDE148DFCEED77EA8A
+magnet:?xt=urn:btih:3EE085EA1315895619F7E91717C911938E1067DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,391 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 919913   (579927) от 22.07.2015
+###  Публикация: 1041323   (583487) от 08.08.2016
 
-Проекты - VideoHive - Fashion And Stone [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0FA84D97915769D1CCA2708200985625CCA6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920397   (579924) от 22.07.2015
-
-Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Британской рок группы Whitesnake был записан 15 октября 2011 года во время Японского Loud Park Фестиваля на Saitama Super Arena в Saitama City. Этот концерт группы Кавердейла прошёл в рамках их "Forevermore World Tour". Первоначально представление было записано для Японского телевидения и последующей рекламной компании Loud Park, однако после трансляции (   Читать дальше...   )01. Best Years
-02. Give Me All Your Love Tonight
-03. Love Ain't No Stranger
-04. Is This Love(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A93FABFF32CDEB57A7816A4DF0E99A9049C4C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919859   (579923) от 22.07.2015
-
-Проекты - VideoHive - Crime Titles [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстовой проект. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45C22D5000FB3D02B6FC38BD16BF13BA2761A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920422   (579922) от 22.07.2015
-
-Capture One Pro 8.3.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 июля 2015Разработчик: Phase OneПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-* язык интерфейса программы зависит от дефолтного языка операционной системы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C70699FB27C691D5C33786D730F41E890AD68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920420   (579921) от 22.07.2015
-
-Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Metallica с классической программой в Мехико в 2009 году. Концертное выступление чередуется общением с фанатами и эпизодами с Мексиканского ТВ.1. The Ecstasy Of Gold
-2. Creeping Death
-3. For Whom The Bell Tolls
-4. Ride The Lightning(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashРежиссер: Wayne IshamПродолжительность: 02:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F115A025896E10D0B8E5EBB4E23787BEF108ED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919709   (579920) от 22.07.2015
-
-Проекты - VideoHive - 3D Cyber Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579920.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Cyber Logo - начните свое видео с кибернетического логотипа, или просто вставьте ваш логотип и применяйте где угодно.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E745E16E0D7465B8C592000FB1019A0F5A5167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920498   (579919) от 22.07.2015
-
-Bad Boys Blue - 30 (2015) 2CD [FLAC|tracks+.cue]<Disco, Euro-Disco, Synth-pop, Dance-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of Hearts (Reloaded)
-02. Jungle In My Heart (Reloaded)
-03. Baby Blue (New Hit Version)
-04. The Woman I Love (New Hit Version)(   Читать дальше...   )Жанр: Disco, Euro-Disco, Synth-pop, Dance-popПродолжительность: 02:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4145C8D812DE9DBDC60826F0E58E69873CEAA0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919477   (579918) от 22.07.2015
-
-Проекты - VideoHive - Dynamic Opener - 10855672 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Opener - элегантный проектик для начала вашего фильма, или рекламы в динамическом стиле. Обучение включено.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C03445060D9D1192EF8FA930F380A298BC2F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920453   (579917) от 22.07.2015
-
-Форсаж 7 / Furious Seven (2015) HDRip [Extended cut]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они покорили Токио и Рио, Лос-Анджелес и Лондон. Но мир больше не играет по их правилам. Зной арабских пустынь, неприлично высокие небоскребы, миллионы долларов на колесах и очень, очень знаменитый злодей. Скорость не знает границ.Производство: США /  Universal Pictures, Original Film, Fast 7 ProductionsЖанр: боевик, триллер, криминалРежиссер: Джеймс ВанАктеры: Вин Дизель, Пол Уокер, Дуэйн Джонсон, Джейсон Стэйтем, Мишель Родригес, Джордана Брюстер, Тайриз Гибсон, Курт Рассел, Джимон Хонсу, Лудакрис, Эльза Патаки, Лукас БлэкПеревод: Профессиональный (полное дублирование)  (iTunes Russia)Субтитры: ОтсутствуютПродолжительность: 02:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509D93E24979BAA49AC7723192D5DE9E9E5C8A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920460   (579916) от 22.07.2015
-
-Нет выхода / No Way Out (1987) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высокопоставленный чиновник из Пентагона в порыве ревности убивает свою любовницу. Чтобы скрыть свою причастность к происшедшему и избежать скандала, он придумывает хитрый ход.Производство: США / Orion Pictures CorporationЖанр: Триллер, Драма, ДетективРежиссер: Роджер ДональдсонАктеры: Кевин Костнер, Джин Хэкмен, Шон Янг, Уилл Пэттон, Джордж Дзундза, Джейсон Бернард, Иман, Фред Долтон Томпсон, Леон Рассом, Говард ДаффПеревод: Дублированный, многоголосый, двуголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D2CF42410171296BED0985CAE49FEDDD57BAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360339   (579914) от 08.07.2011
-
-VA - Зажигательное лето (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129B91F68DE02600FB5DC8A8B6B124D8336F4921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360448   (579912) от 08.07.2011
-
-VA - Зарубежные клубные новинки vol.4 (2011) [MP3|320 kbps]<Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Holland feat. Yana Kay - Tears In The Rain (Alex M.O.R.P.H B2b Woody Van Eyden Remix) (8:17)
-02. Ava Mea - In The End (Original Mix) (9:25)
-03. Jarah Damial - Incognata (Original Mix) (9:06)
-04. Rihanna - S & M (Dave Aude Club) (7:28)
-05. Calvin West - Children (5:32)
-06. Bassmonkeys Feat. Natasha Anderson - I 'll Show You Love (Bassmonkeys Club Mix) (6:56)
-07. Daniel Kandi & Phillip Alpha - If It Ain't Broke (Original Mix) (7:26)
-08. J Latif- I Wanna Go There (Stonebridge Club Mix) (6:21)
-09. DJ Danila ft Gosha - Let The Music (Belocca Remix) (7:02)
-10. Filo & Peri vs Ronski Speed - Propane (Original Mix) (6:33)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA82A305CF55C9FFF1687C7BEA097C74E1027E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360693   (579911) от 08.07.2011
-
-VA - Зарубежные клубные новинки vol.8 (2011) [MP3|320 kbps]<Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albin Myers - Faking Love (Sebastien Drums & Rob Adans Remix) (6:03)
-02. Alice Deejay - Better Off Alone (Laidback Luke Remix) (5:03)
-03. Antoine Clamaran feat. Laurent Pautrat - Somebody Scream (Original Mix) (7:03)
-04. Armin Van Buuren feat. Nadia Ali - Feels So Good (Armin Van Buuren Club Mix) (6:26)
-05. Bella - Nobody Loves Me (Hardwell Remix) (6:03)
-06. Belmond & Parker - On The Move 2k11 (Club Mix) (6:17)
-07. Ben Preston feat. Max Fredrikson - Glorious 2011 (Cliff Coenraad Remix) (7:15)
-08. Cahill feat. Joel Edwards - In Case I Fall (Club Mix) (6:56)
-09. Cobra Starship Ft. Sabi - You Make Me Feel (Disco Fries Extended Mix) (5:31)
-10. Craig Connelly - Absolute Electric (Tritonal Club Mix) (7:50)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACEC25B4E2DB208502584DAA48928DCF1449A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360335   (579909) от 08.07.2011
-
-VA - Клубный рай: 100 NEW CLUB YITS 50/50 (2011) [MP3|256 kbps]<Pop/Club>
+VA - Unique Picks (Mixed By Photographer) (2016) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop/ClubПродолжительность: 07:43:25
+01. Witness45 & Eleven Fly - Laserlight (Radio Edit) (3:39)
+02. Alexander Turok & Emma Lock - No Ordinary Day (Radio Edit) (3:51)
+03. Jan Miller - Deity (Radio Edit) (2:53)
+04. Luke Pn Ft. Blackout - Prometheus (Radio Edit) (3:38)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27D71C874822962A576F8A480D091A33ED4F7D60
+magnet:?xt=urn:btih:ED5C5961D842D461CDF4B286FB2993F170E0A73A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,34 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 360658   (579908) от 08.07.2011
+###  Публикация: 1041331   (583486) от 08.08.2016
 
-VA - Trance In Motion vol.91 (2011) [MP3|320 kbps]<Trance, Progressive Trance, Vocal Trance>
+VA - TFB Records - Best Of 2016 Part 1 (Mixed by Joe Cormack) (2016) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Schodt & Sundriver feat. Aida Fenhel - Here With Me (Sundriver Vocal Mix)
-02.Aquile & TeeB feat. Ton Chief - Ruined (Smart Apes Remix)
-03.Ashley Wallbridge - JYNX (Original Mix)
-04.After Meridian & Dave Costa - Blur (Dave Schiemann Remix)
-05.Gareth Emery feat. Lucy Sounders - Fight The Sunrise (Mark Eteson Remix)
-06.Betsie Larkin with Super8 & Tab - All We Have Is Now (Original Mix)
-07.Dash Berlin - Earth Hour (Club Mix)
-08.Johnny Yono - Suspended Dimension (Original Mix)
-09.Craving - Inflection
-10.Jordan Suckley - 23!(   Читать дальше...)Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:15:58
+01. Acues - #Selfie (Eryon Stocker Remix) (7:16)
+02. Aeden - Blanche (Alex Shevchenko Remix) (7:31)
+03. Aeden - Noir (Original Mix) (6:36)
+04. Arman Dinarvand - Hope (Astuni Re-Lift) (6:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:10:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1F5B79D3EA1636172D88F66263F5D8EEFF659C7
+magnet:?xt=urn:btih:CB8B3CA34BA80AE9FB84A881C89EDD27F1F4B725
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,34 +141,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 360476   (579902) от 08.07.2011
+###  Публикация: 810422   (583481) от 05.08.2014
 
-VA - NeuroShoKK pres. Lost Emotion (2011) [MP3|320 kbps]<Trance>
+Ella Fitzgerald, Count Basie, Joe Williams - One O'clock Jump (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Close for Comfort [03:05]
+02. Smack Dab in the Middle [03:38]
+03. Amazing Love [03:31]
+04. Only Forever [03:37](   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, Big BandПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE533845A1D9C2255F8AE602A150B0AA4DE2E0CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040993   (583465) от 08.08.2016
+
+Polite Force - Canterbury Knights (1996) [WavPack|Lossless|image + .cue] <Canterbury Scene, Prog Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birdworld (2:03)
+02. Childsplay (6:00)
+03. Mr. Sax Speaks Solitude (4:18)
+04. Solitude (6:17)(   Читать дальше...   )Жанр: Canterbury Scene, Prog Rock, Jazz RockПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A92556CFCEB5B86B476131D79E3AF185DBFB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041440   (583464) от 08.08.2016
+
+Плавание. Олимпийские игры 2016. Предварительные и Финальные заплывы (06.08.2016) HDTV [H.264/1080i]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Envio - Time To Say Goodbye (Arksun's Filmscape Mix)
-   02. David Forbes feat. Antonia Lucas - Because Of You (Original Mix)
-   03. Kuffdam feat. Lo-Fi Sugar - The Last Time (Original Mix)
-   04. Chris Grabiec feat. Christina Nicola - Salvation (Original Mix)
-   05. Dash Berlin - Till The Sky Falls Down (Vocal Mix)
-   06. Luigi Lusini - Kiunguja (Fausto Fanizza Edit)
-   07. Starchaser feat. Lo-Fi Sugar - So High (Martin Roth Remix)
-   08. Tilt - Angry Skies (Vadim Soloviev Mix)
-   09. Moonbeam - See The Difference Inside (Inside Mix)
-   10. Moonbeam feat. Avis Vox - 7 Seconds (Original Mix)(   Читать дальше...)Жанр: TranceПродолжительность: 01:18:06
+06 августа 2016 года, суббота
+Арена: Олимпик Акватикс (Рио-де-Жанейро, Бразилия).
+Мужские и женские предварительные и финальные заплывы.Телекомпания: Матч! Арена HDЖанр: СпортПродолжительность: ~ 01:57:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08DA18E8EDF1F39FAD7044095A29E0FF7D3CE3CA
+magnet:?xt=urn:btih:80441DDB819BD7D37CEBCBFE81D26A6FFEB4A810
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,25 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 360418   (579900) от 08.07.2011
+###  Публикация: 1041293   (583463) от 08.08.2016
 
-[Wallpapers] WallpapersHD (07.07.11)
+Don Wilkerson - The Texas Twister (1960) 2001, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01.The Twister [06:33]
+ 02.Morning Coffee [07:53]
+ 03.Idiom [05:22]
+ 04.Jelly Roll [07:45](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0A8507A292D265AE95FE50A359EAD985CE8835C
+magnet:?xt=urn:btih:DA409AFD3392752B697D78FEA3F1B0D7CF0F31DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,193 +256,482 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 360683   (579897) от 08.07.2011
+###  Публикация: 1040870   (583462) от 08.08.2016
 
-Журнал | Открытия и гипотезы №07 [2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579897.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Открытия и Гипотезы" - журнал представляющий свежий взгляд на самые главные загадки вселенной и человечества, его проблемы и открытия. Представлены теоретические и практические материалы. Никогда еще наука не была такой интересной. Очевидные вещи не действуют на нас - нам нужна тайна!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C961BD5829D76D91B26B47B7617F776023B35C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360688   (579896) от 08.07.2011
-
-Myrath - Desert Call (2010) [FLAC|Lossless]<Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever And A day (5:38)
-02. Tempests Of Sorrows (4:40)
-03. Desert Call (7:43)
-04. Madness (6:16)
-05. Silent Cries (10:43)
-06. Memories (4:51)
-07. Ironic Destiny (5:42)
-08. No Turning Back (5:36)
-09. Empty World (7:04)
-10. Shockwave (7:15)(   Читать дальше...)Жанр: Power MetalПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553951   (579895) от 28.05.2022
-
-Маленькая ведьма / Die kleine Hexe (2018) BDRip [H.264/1080p] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая ведьма очень хочет повеселиться на вечеринке в честь Вальпургиевой ночи, но ей всего 127, она слишком молода для такого мероприятия. Девушка тайком пробирается на праздник, но ее ловят и в наказание поручают выучить все заклинания из великой магической книги за один год, чтобы доказать всем, что она уже взрослая. Однако усердие и трудолюбие не являются (   Читать дальше...   )Производство: Германия, Швейцария / Studio Canal, Claussen + Putz Filmproduktion, Teleclub AGЖанр: Фэнтези, драма, комедия, семейныйРежиссер: Мике ШёрерАктеры: Каролина Херфурт, Аксель Праль, Луис Ворбах, Momo Beier, Сюзанна фон Борсоди, Barbara Melzl, Каролин Списс, Эвелин Холл, Тереза Аффолтер, Ангелика БёттигерПеревод: Профессиональный многоголосый (CВ Студия)Язык озвучки: Русский, немецкийСубтитры: Русские (Full), немецкиеПродолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B148F1A3941AD55F7496BEF89E99B862757FA528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553622   (579894) от 28.05.2022
-
-Сын (2014) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финляндия, наши дни. По анонимному доносу из семьи молодого перспективного политика и его русской жены социальные службы забирают сына. В жестоком обращении обвиняется мать ребенка. События разворачиваются на фоне избирательной кампании, в которой отец ребенка участвует в качестве лидера партии. Он вынужден делать нелегкий выбор между сохранением семьи и политической (   Читать дальше...   )Производство: Россия / Amalgama StudioЖанр: ДрамаРежиссер: Вячеслав РоссАктеры: Арсений Ромашин,  Мария Миронова, Андрис Кейшс,  Юозас Будрайтис,  Мирдза Мартинсоне,  Гундарс Аболиньш, Лидия Байрашевская,  Андрей Мерзликин, Ольга Сутулова,  Гиртс КруминьшСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C835D7A68D4BE41AA7C4840C6BDA29A28275FF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554118   (579893) от 28.05.2022
-
-Однажды в России (27.05.2022) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E0531915BE383EB4B9BBA3623B3EC013D7EF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554109   (579892) от 28.05.2022
-
-ByClick Downloader Premium 2.3.27 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579892.jpg" />
-</div>
-
-
-###  Подробнее
-
-ByClick Downloader (бывший YouTube By Click) - отличный и удобный в использовании загрузчик видео роликов из популярнейшего портала YouTube. Кроме этого хостингового ресурса, поддерживается также скачивание файлов из Facebook, Vimeo, Dailymotion и других сайтов. Разработчики постарались сделать это приложение максимально комфортным в работе. Для того, чтобы скачать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3390DF77C85FE89F9D3CEA8F51B40D2BA3CD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553893   (579891) от 28.05.2022
-
-Keith Thompson - Smoke and Mirrors (2022) [FLAC|Lossless|WEB-DL|tracks] <British Blues-Rock>
+Luke Walter Jr - Back To Normal (1996) [FLAC|Lossless|tracks + .cue] <Blues Rock, Soft Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Easy Money [05:32]
-02. Moment of Choice [06:03]
-03. Anybody's Guess [04:02]
-04. Sandcastles of Lies [05:58](   Читать дальше...   )Жанр: British Blues-RockПродолжительность: 00:54:39
+01. As The Crow Flies    03:38
+02. Hole In The Sky    04:00
+03. Mobile Telephone    03:15
+04. Good Woman Bad    03:43(   Читать дальше...   )Жанр: Blues Rock, Soft RockПродолжительность: 00:51:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B91B42107443DFDACEE3C4B74F43B18A2A08390
+magnet:?xt=urn:btih:B0FD7959BE1275873C4DA5F9EB82851AC13DC815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041287   (583461) от 08.08.2016
+
+Волейбол. Олимпийские игры 2016. Мужчины. Группа B. 1-й тур. Россия - Куба. (07.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583461.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 августа 2016 года, понедельник. 02:30 МСК
+Волейбол
+
+Арена: Мараканазиньо (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Стецко)Продолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269C3A5AF8DBA1A98C5D51A9E6E53C2B13EE5B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041393   (583460) от 08.08.2016
+
+VA - Goa Vol.60 (Compiled By DJ SIM & Champa) (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suntree  -  The Future (Aerospace Remix)  8:52
+02. Liquid Soul & Ritmo  -  Be Right  7:10
+03. Orisma  -  Come Out  7:53
+04. Tristate  -  Artificial Mind  8:41(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 02:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088351F835189FD13929C055891C7058097AF6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041011   (583459) от 08.08.2016
+
+Blue Coupe - Million Miles More (2013) [FLAC|Lossless|tracks + .cue] <Rock, Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophets, Dukes, and Nomads    03:32
+02. Hellfire Hurry (feat. Buck Dharma)    03:47
+03. Hallow's Grave (feat. Alice Cooper)    03:33
+04. Everybody Goes Insane    04:04(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard RockПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AED2F1E4D13556238CE79E2F0BCFE4F0FB72EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041009   (583458) от 08.08.2016
+
+Steve Hooks - No More Rock and Roll (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Rock and Roll
+02. Same Old Song
+03. It's Just a Wonderful Song
+04. C-Drive(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDB38745E2C9C96DCD84820721C149FBBCE79E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041262   (583457) от 08.08.2016
+
+Стрельба из лука. Олимпийские игры 2016. Женщины. Командное первенство. Финал (07.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583457.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 августа 2016 года, воскресенье. 23:05 МСК
+Стрельба из лука
+
+Арена: Самбодромо (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Руслан Гатаулин, Зоригто Манханов)Продолжительность: 01:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F57876FA6A55B5D95DE06D71C176737D7BF987D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041280   (583456) от 08.08.2016
+
+The Wilde Flowers - Tales of Canterbury: The Wilde Flowers Story (1994) Compilation [WavPack|Lossless|image + .cue] <Canterbury Scene>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583456.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Wilde Flowers - британская группа, названная в честь Оскара Уайлда, существовавшая в округе Кентербери, Англия, в 1964-1967 годы. За время своего существования группа не выпустила ни одной записи, но побочным продуктом её деятельности стали две другие группы, ставшие знаменитыми и влиятельными - Soft Machine и Caravan.  Участниками группы в разные периоды были: (   Читать дальше...   )01. Impotence (2:10)
+02. Those Words They Say (2:40)
+03. Memories (1:35)
+04. Don't Try To Change Me (2:26)(   Читать дальше...   )Жанр: Canterbury SceneПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562EF3F01F742575733A16990686AFF4BD21FBEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040459   (583455) от 08.08.2016
+
+KeyFlow Pro 1.6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Личный Asset Management и многое другое
+KeyFlow Pro является простым, но мощным приложением для управления медиа-активами для одного пользователя и малых рабочих групп. KeyFlow Pro сохраняет все свои активы в Интернете, для поиска, редактирования, и легкого совместного использования.
+
+ KeyFlow Pro обеспечивает плавный рабочий процесс с Final Cut Pro X , а также с (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 августа 2016Разработчик: Malgn Technology CO, LTDПоддерживаемая ОС: OS X 10.9.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818915827560EBDD40229C3239758D0A47D2D2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041362   (583454) от 08.08.2016
+
+VA - Club Dance Ambience Vol.81 (2016) [MP3|320 Kbps] <House, Progressive, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583454.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DubVision  -  Primer (Original mix)  3:07
+002. Sam F & Yntendo  -  Vegas To LA (Original mix)  3:10
+003. Alex Freel & NIRI  -  Ghost (Original mix)  3:56
+004. Dancekraft & Michel Amberg ft. Deekey & Stellix  -  First Beat (Original Mix)  3:27(   Читать дальше...   )Жанр: House, Progressive, Electro HouseПродолжительность: 07:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A60A5C44BDF7320E82C1795D8EB1A2C77F4D626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041239   (583453) от 08.08.2016
+
+Нереальные аферисты. Гости столицы (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналист телеканала "Москва24" изучают популярные жульнические схемы, рассчитанные на отсутствие бдительности у гостей столицы. Как мошенники пользуются неосведомленностью приезжих в некоторых нюансах жизни мегаполиса? Как совершенствуют свое воровское искусство "карманники"? Чем может закончиться экстремальная экскурсия по крышам Москвы, если (   Читать дальше...   )Производство: Москва 24Жанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C65B44C4C2881B4755FC2CF506AF10385BC1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041269   (583452) от 08.08.2016
+
+Волейбол. Олимпийские игры 2016. Женщины. Группа A. 1-й тур. Россия - Аргентина (06.08.2016) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583452.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 августа 2016 года, воскресенье. 02:30 МСК
+ Предварительный раунд. Группа A. 1-й тур.
+
+Стадион: Мараканазиньйо (Рио де Жанейро, Бразилия) , вместимость: 12000Телекомпания: Матч Игра HDЖанр: СпортПродолжительность: 01:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8C0CE944F9D8C639267D1C6988A94FED03A4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041236   (583451) от 08.08.2016
+
+Наука 2.0. На пределе. Пуля против меча (2014) SATRip
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научное шоу, в котором автор и ведущий Александр Колтовой проверит предел прочности различных явлений и утверждений, а заодно - свой и съемочной группы. Были ли американцы на луне? Что будет с желудком человека, если сначала выпить диетической кока-колы, а потом съесть мятную конфету? И на что способен обычный лом, сброшенный с большой высоты? Это и многое другое (   Читать дальше...   )Телекомпания: Наука 2.0Жанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F3ED4B49DE2AEDE8B055E927A643BF0A1A6906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041349   (583450) от 08.08.2016
+
+Luther Wright & The Wrongs - Rebuild The Wall (2001) [MP3|320 Kbps] <Rock, Folk, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Flesh?
+02. The Thin Ice
+03. Another Brick in the Wall (part 1)
+04. The Happiest Days Of Our Lives(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D5EA28FEF014E9A32E656C585EE45C6A167B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041033   (583449) от 08.08.2016
+
+М. Шейнман | Религиозность и преступность (1927) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583449.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время все чаще приходится слышать от приверженцев религии, что религия уже по одному тому нужна человеческому обществу, что она оказывает благотворное влияние на поведение людей. Без религии будто бы человечеству угрожает преступность, всевозможные пороки.
+
+В задачу настоящей работы не входит освещение вопроса о причинах преступности. Есть достаточно (   Читать дальше...   )Жанр: История, религиоведение, политология, психология, криминалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53197FCB5201958EDEE37BE303C9109830C15D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041089   (583448) от 08.08.2016
+
+Michel Pepe - Offrandes (Best Of 2008-2015) (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myriades de lumière [00:05:41]
+02. Eternelle gratitude [00:04:49]
+03. Vision de l'ame [00:04:15]
+04. Beauté elfique [00:05:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB6D6DBC6D9E6277637C6C5CFF7074F81D5648A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041049   (583447) от 08.08.2016
+
+И. И. Артеменко, А. П. Моця | Боги созданы людьми (1989) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В научно-популярной книге на разнообразном материале археологических исследований на территории Африки, Азии и Восточной Европы, в том числе Северного Причерноморья, прослеживаются возникновение и развитие человека, формирование материальной и духовной культуры, государственности у населения этого региона. Показываются причины зарождения религиозных верований у древних (   Читать дальше...   )Жанр: История, религиоведение, археология, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78720CF3664B8F5232E337932F84D1CAFFFAF2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041382   (583446) от 08.08.2016
+
+VA - Trance - Gold Collection (2016) [MP3|320 Kbps] <Trance,  Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eduardo Espada  -  We Will Together (Original Mix)  4:12
+02. Merida One  -  Mein Weg  7:11
+03. Aviator  -  The Struggle Within  6:24
+04. Eduardo Espada  -  Tonight  4:41(   Читать дальше...   )Жанр: Trance,  ProgressiveПродолжительность: 05:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFB2EF055F9A342BF0E94CEF25F1BC26B44721F
 ```
 
 https://mybot314.ru/tekegram_catalog/

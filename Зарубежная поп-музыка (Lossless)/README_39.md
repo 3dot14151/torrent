@@ -1,3 +1,180 @@
+###  Публикация: 509674   (675454) от 12.06.2012
+
+Sucre - A Minor Bird (2012) [FLAC|Lossless]<Pop Rock, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hiding Out 3:28
+2. When We Were Young 2:54
+3. Troubled Waters 3:56
+4. Light Up 2:33
+5. Chemical Reaction 5:08
+6. Say Something 4:04
+7. Persuasion 3:22
+8. Stampede 2:58
+9. No Return 4:18
+10. Endless Sleep 3:17(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536282   (675145) от 12.03.2022
+
+Clark Datchler - Journey Songs One (2022) 3xCD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675145.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Raindance Remastered:
+01. State Of Play (3:31)
+02. Drowning My Sorrows (3:41)
+03. Crown Of Thorns (5:03)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9641B65897F2EC209E7D0045BB5C91343595F7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136495   (674623) от 22.05.2017
+
+Julio Iglesias - The Very Best Of Julio Iglesias (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674623.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Amor (3:20)
+2. Nathalie (3:54)
+3. Pobre Diablo (2:54)
+4. To All The Girls I've Loved Before (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACB741EBD9407E1D59A873F50EB2711A416B07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030414   (674568) от 30.06.2016
+
+VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Clapton • Luciano Pavarotti • East London Gospel Choir - Holy Mother
+02. Joan Osborne - Saint Teresa
+03. Elton John - I Guess That's What They Call It The Blues
+04. Liza Minnelli • Luciano Pavarotti - New York, New York(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030213   (674567) от 30.06.2016
+
+VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Jazz, Soul, DiscoПродолжительность: 04:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341D6306477011C1F01E054CAFF04EDC9B2A1B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290984   (674346) от 22.03.2019
+
+VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edith Piaf - La Vie en Rose
+02. Margaret Whiting - Moonlight in Vermont
+03. Peggy Lee - I've Got You Under My Skin
+04. Sarah Vaughan - Come Rain or Come Shine(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BA2D8DF8161A2933E47F13B4F46EF061139345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290854   (674340) от 22.03.2019
 
 Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Dream-Pop, Synth-Pop>
@@ -571,180 +748,6 @@ Delta Goodrem - Wings Of The Wild (2016) Sony Music Entertainment [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0864259794C98AC40F51B9012135D0C4D831510C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031265   (668599) от 03.07.2016
-
-The Pointer Sisters - Best Of The Pointer Sisters (1998) [APE|Lossless|image + .cue] <Pop, R'n'B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm So Excited
-02. Jump (For My Love)
-03. Automatic
-04. Neutron Dance(   Читать дальше...   )Жанр: Pop, R'n'B, SoulПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5778584DE032F97E2C7F563DE7420AF2480EA7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031253   (668590) от 03.07.2016
-
-Book Of Love - MMXVI-The 30th Anniversary Collection (Remastered) (2016) [FLAC|Lossless|tracks] <Synth-Pop, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy (2016 Remastered)
-02. Book Of Love (2016 Remastered)
-03. I Touch Roses (2016 Remastered)
-04. You Make Me Feel So Good (2016 Remastered)(   Читать дальше...   )Жанр: Synth-Pop, PopПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61239B44B885642A356364F89719EDF6B11EFFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031378   (668499) от 03.07.2016
-
-VA - Radio Italia - Summer Hits (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zucchero - Partigiano reggiano (3:00)
-02. Alessandra Amoroso - Vivere a colori (4:20)
-03. Vasco Rossi - Il blues della chitarra sola (3:07)
-04. Tiromancino - Piccoli miracoli (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BA1D1A178A5486C039544D84BDA73AE9587705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224128   (668106) от 08.05.2018
-
-West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Grease
-02.	Summer Nights
-03.	Hopelessly Devoted To You
-04.	You're The One That I Want(   Читать дальше...   )Жанр: Musical, PopПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137568   (667880) от 26.05.2017
-
-Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is A Place On Earth (4:07)
-02. I Get Weak (4:52)
-03. World Without You (4:42)
-04. Runaway Horses (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B4EBF2ED4C5AC40DBDF82D4D8B451D0433D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537506   (667835) от 16.03.2022
-
-VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame Impala - Eventually (5:18)
-02. Glass Animals - Heat Waves (3:58)
-03. Sean Paul - No Lie (3:41)
-04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
 ```
 
 https://mybot314.ru/tekegram_catalog/

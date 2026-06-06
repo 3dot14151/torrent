@@ -1,3 +1,61 @@
+###  Публикация: 950797   (365993) от 28.10.2015
+
+Dudley Taft - Skin and Bones (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skin and Bones (03:59)
+02. Lonesome Memphis Blues (04:02)
+03. Ain't Nothing Gonna Stop Us Now (03:37)
+04. Leland Mississippi Blues (03:41)(   Читать дальше...   )Жанр: Blues Rock, Memphis BluesПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CDB88DCC289E6DDCD6FB73A4873D33456FAEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950856   (365989) от 28.10.2015
+
+Midnite Johnny (Morana) - So Complicated (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Trouble (03:29)
+02. Come On Home (03:52)
+03. Spy Boy (05:18)
+04. Everybody Ought To Make A Change (04:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB79A60D643EA3CB2B40B37338B28C55E2B7BD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950564   (365853) от 28.10.2015
 
 Dana Gillespie - Where Blue Begins (1991) [MP3|320 кб/с]<British Blues>
@@ -687,64 +745,6 @@ Amos Milburn - Blues, Barrelhouse & Boogie Woogie: 1946-1955 (1996) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9A2A9140D87B322A66D672D15A7C3A1D0AFF8D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953867   (344761) от 06.11.2015
-
-Big Cat - Big Cat (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Now On (04:41)
-02. Under The Bridge (03:56)
-03. Thief Of Hearts (04:16)
-04. Stand Up Man (03:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FF63851E74D80E628C2180F21AE3D0E3B839DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954107   (344500) от 06.11.2015
-
-Affonsinho - Bluesing (2015) [MP3|320 кб/с]<Modern Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love To Love You
-02. Just Stay
-03. Love's Philosophy (Feat. Percy Shelley)
-04. Jimi's Vibe(   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0DABEAAEDA2CA5CF38AD9EA7B6B40CAFF6A5D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

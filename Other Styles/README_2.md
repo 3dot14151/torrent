@@ -1,3 +1,351 @@
+###  Публикация: 1438931   (1040421) от 10.01.2021
+
+John Weider - Intervals In Sunlight (1987) [FLAC|Lossless|tracks + .cue] <New Age, Jazz Rock, Folk, Acoustic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intervals In Sunlight (2:07)
+02. Ravenscourt (2:32)
+03. Galopp (1:51)
+04. Solitude (2:45)(   Читать дальше...   )Производство: Gold Castle – CDVGC3Жанр: New Age, Jazz Rock, Folk, AcousticПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B231530C7C6AF2AAEC6D7966E7BB3E5C25ADA860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612266   (1040314) от 15.02.2023
+
+Richard Clayderman - The Music of Love (1984) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy listening, Lounge>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till (2:14)
+02. How Deep Is Your Love (3:47)
+03. Begin the Beguine (From Jubilee ) (3:26)
+04. Hello (3:09)(   Читать дальше...   )Жанр: Instrumental, Easy listening, LoungeПродолжительность: 01:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC32FE2231F428D19BB916A5331E52EC9A39191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613720   (1038587) от 22.02.2023
+
+Super Djata Band - 3 Albums (1982-2022) [MP3|320 Kbps] <World Music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Super Djata Band - 1982 - En Super Forme Vol. 1 (Numero Group, 2022)
+Super Djata Band - 1983 - Vol. 2 (Numero Group, 2023)
+Super Djata Band - 2022 - Authentique 80Жанр: World MusicПродолжительность: 3 CD, 01:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1442C35A1DE844FE71E40E4E8C313B073F048A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439640   (1038463) от 18.01.2021
+
+VA - Soul, Original Motion Picture Soundtrack - (2020) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Soundtrack, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon Batiste - Born to Play (02:00)
+02. Jon Batiste - Born to Play Reprise (00:50)
+03. Jon Batiste - Bigger Than Us (01:51)
+04. Jon Batiste - Collard Greens & Cornbread Strut (00:37)(   Читать дальше...   )Жанр: Contemporary Jazz, Soundtrack, AmbientПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A34FADD5C1C316D5BCBCEF8CDE91D67BA28CB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614825   (1038307) от 23.02.2023
+
+Вокально-инструментальный ансамбль "Песняры" (1971) 2023, АО "Фирма Мелодия" [FLAC 2.0|24/44.1|WEB-DL|tracks] <Pop, RockPop, Rock, Folk>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038307.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ты мне весною приснилась
+2. Косил Ясь конюшину
+3. В поле верба
+4. Ой, рано на Ивана(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B704D5C58141D77EAC98276B0B4AD0CDC13728ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615055   (1038102) от 24.02.2023
+
+VA - Top Country Soul of a Nation (2023) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zach Bryan, Maggie Rogers - Dawns (feat. Maggie Rogers) [04:51]
+02. Ashley McBryde, Brandy Clark, Caylee Hammack, Pillbox Patti - Bonfire at Tina's [03:41]
+03. Blake Shelton - No Body [03:08]
+04. Cole Swindell - Drinkaby [03:03](   Читать дальше...   )Жанр: CountryПродолжительность: 03:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B758E35CB45F1E6986B2F38DF0B74F48449AB3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614945   (1038099) от 24.02.2023
+
+Heidevolk - Wederkeer (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Black-metal, Folk-metal, Viking-metal>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hagalaz (5:31)
+02. Drink met de Goden (Walhalla) (5:06)
+03. Klauwen Vooruit (5:28)
+04. Schildenmuur (1:46)(   Читать дальше...   )Жанр: Black-metal, Folk-metal, Viking-metalПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B8AE87B89A50E9B28E705CE63E4997B08D3F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441638   (1037437) от 22.01.2021
+
+Steve Hackett - Under A Mediterranean Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mdina (The Walled City)
+02. Adriatic Blue
+03. Sirocco
+04. Joie De Vivre(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF1D15E6294230953C3EC1AC2F4C9533648298E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615131   (1037276) от 27.02.2023
+
+Chinmaya Dunster - The Akasha Project (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Purnamada
+02. Gayatri Mantra
+03. Prem Hari
+04. Sarve Bhavantu(   Читать дальше...   )Жанр: World, MantrasПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEC5661B5775981E031785695202086247DE213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442227   (1036933) от 24.01.2021
+
+Moreza - Fragrance (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Nuevo Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragrance (5:29)
+02. Moreza;Lorenzo de Medici - King Of Guitarras (4:45)
+03. Love Story (4:30)
+04. Miss Guitar (Deep Lounge Mix) (5:43)(   Читать дальше...   )Жанр: Chillout, Nuevo FlamencoПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD79A7FCD03822F7131D791FF8259E7FD615F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442221   (1036880) от 24.01.2021
+
+Gabriella Quevedo - Acoustic Cover Songs, Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Brick In The Wall (4:27)
+02. Back (3:44)
+03. Blackbird (2:30)
+04. Californication (5:56)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29679E3EB1DF0295465921166ADE858898B3DD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442225   (1036870) от 24.01.2021
+
+Gabriella Quevedo - Gabriella’s Acoustic Arrangements (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultans Of Swing (5:24)
+02. That's Life (3:18)
+03. Wanted Dead Or Alive (5:02)
+04. Lay All Your Love On Me (4:48)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 01:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CACE22C23373E01D94FF0BC8A19A255B5CEF499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616678   (1036112) от 03.03.2023
 
 VA - Enigma-Forest-Transit 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
@@ -397,355 +745,6 @@ Yakuro - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75F7DD9CA78DCCA5EE8BB4AE3DAF871515EB6CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445331   (1033513) от 06.02.2021
-
-Flaer Smin - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish U Were Here (Re-Edition 18 Mix) (7:41)
-02. Alone In The Dark (6:59)
-03. Adagio For Love (7:41)
-04. Catharsis (7:08)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3258AA985A1AD47FA4C79D8C4993410D718734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445334   (1033506) от 06.02.2021
-
-Flaer Smin - Karma (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste (3:56)
-02. The Highway (5:21)
-03. Can You Hear Me (6:07)
-04. aXe (5:21)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57018010E627245FBB55975C4C1FD2DD8C5DBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445333   (1033495) от 06.02.2021
-
-Yakuro - My Space (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:16)
-02. Fragment of Sun (6:12)
-03. Signal from the Nebula (8:02)
-04. Hymn to the Wind (6:50)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FDF4D90C4AA22F2A3BE51FC3347DA697EB32BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618812   (1033396) от 14.03.2023
-
-Baran Yildiz - Interbeing (2019) [FLAC|Lossless|WEB-DL|tracks] <Handpan, World, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquillity, Pt. 1
-02. Tranquillity, Pt. 2
-03. Interbeing
-04. Hope(   Читать дальше...   )Жанр: Handpan, World, InstrumentalПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1997EABB8C0AF2B4B2603D028D6EDC18C172EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618785   (1033392) от 14.03.2023
-
-Таверна - Не о средневековье (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кем мы стали? [00:03:20]
-02. Нео-средневековье [00:04:00]
-03. Новое время (feat. Тэм Булатов) [00:04:13]
-04. Синяя птица [00:04:13](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C2BF50A551003FB4D54FF99480C7C5B4D42CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445941   (1033276) от 07.02.2021
-
-VA - Romantic Piano - the Rose (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronnie Aldrich Piano with Romantic Strings - Love Theme from Romeo and Juliet (3:29)
-02. Ronnie Aldrich, Piano - Wally Stott Orchestra - Theme from Love Story (3:35)
-03. Ronnie Price Piano and Orchestra - A Man and a Woman (1:58 )
-04. Marian McPartland, Piano - I've Got a Crush on You (3:14)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D14894BC8594F370B0522AB54E71897F0CDA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444627   (1033267) от 07.02.2021
-
-Deguess - Chillstep Piano Renditions Vol. 1 (2014) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackmill - The Drift (02:15)
-02. Blackmill - Fortune Soul (03:15)
-03. Blackmill - Journey's End (03:29)
-04. Blackmill - Love At Heart (04:28)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775EA1E9FE80AEB7D4AF887875894F24A43F9D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441781   (1033248) от 07.02.2021
-
-Wardruna - Kvitravn (2021) [FLAC 2.0|24/48|tracks + .cue|WEB-DL] <Nordic, Ambient, Neofolk>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synkverv [00:04:50]
-02. Kvitravn [00:06:17]
-03. Skugge [00:06:38]
-04. Grá [00:03:32](   Читать дальше...   )Жанр: Nordic, Ambient, NeofolkПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356F4653DFC6E6CB6CC77757BFF69952971679F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343469   (1033234) от 07.02.2021
-
-Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Хацко (Alexey Khatsko), известный в музыкальной сфере как Amure и DJ.Amure, родился 2 октября 1976 года в городе Обнинск. В числе первых работ Алексея были ремиксы к детским песням (Учат в школе, Дважды два четыре, Крылатые качели и др.), которые неплохо ротировались на радио Kidsmusic (Kids-hits). В 2007 году Алексей записывает свой дебютный альбом "Исповедь", (   Читать дальше...   )01. Фантазия №1 (5:52)
-02. Фантазия №2 (Аллилуя) (5:52)
-03. Фантазия №3 (Rock'n'Roll Mega Drive) (6:39)
-04. Фантазия №4 (6:47)(   Читать дальше...   )Жанр: New Age, Enigmatic |Продолжительность: 18:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FB8D57218B437DC372F2FB3DA0225FA8E10A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446749   (1032507) от 10.02.2021
-
-Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юлия Монастыренко - профессиональная пианистка и талантливый композитор из России. Автор и продюсер инструментальной музыки.01. Meetings and Partings (4:22)
-02. Gothic Venus (5:12)
-03. Christmas Lullaby (3:46)
-04. Dive in September (4:01)(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91A2D57C562EFC719E0041C8EF02CB34F861365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619215   (1032497) от 18.03.2023
-
-VA - Enigma-Forest-Transit 13 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indigo - Indigo Sunshine + As Above, So Below
-02. Dao Dezi - Hebrides
-03. Deep Forest - Madazulu
-04. Wes - Ken Mouka(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF19E3ECB09159F2569881BC0BDECC336ADC4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619964   (1032492) от 18.03.2023
-
-Blackmore's Night - Shadow Of The Moon (2023) 25th Anniversary Edition [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все песни были смикшированы заново и зазвучали по-новому, а в некоторых местах аранжировки обрели совсем иной характер.
-На издании присутствуют два бонус-трека, записанные Ричи и Кэндис в прошлом году - это новые акустические версии "Shadow of The Moon" и "Spirit Of The Sea".01. Shadow of the Moon (25th Anniversary New Mix)
-02. The Clock Ticks On (25th Anniversary New Mix)
-03. Be Mine Tonight (25th Anniversary New Mix)
-04. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C979B485CF82F614EFC6E90A1FD22D9B6B9DBD52
 ```
 
 https://mybot314.ru/tekegram_catalog/

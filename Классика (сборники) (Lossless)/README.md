@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1873547   (1071317) от 28.05.2026
+
+VA - The Best 100 of Classical Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071317.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:34)
+002. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
+003. Katya Kramer-Lapin - Rhapsody on a Theme of Paganini, Op. 43 Variation No. 18. Andante cantabile (Transcr. for Piano Solo by Michael R. Loveridge) (3:12)
+004. Katya Kramer-Lapin - Suite Bergamasque, L. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E170624F176E5E1A9876EE2B57AB93DE366D1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869042   (1067871) от 03.05.2026
 
 VA - The Best Classical Instrumental Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -732,35 +761,6 @@ Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35897A2798BB4141522F2542559C74C728BDFAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992288   (902418) от 01.03.2016
-
-VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Classic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902418.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1: 
-01. Sarah Brightman -  Time To Say Goodbye (Quarantotto) (4:07)
-02. Il Divo -  You Raise Me Up (Lovland) (4:02)
-03. Nigel Kennedy -  Czardas ((Monti) (5:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: СD1: 01:14:49; CD2: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD12FD85EFC495BE19EAD94D7812A598C91CD72
 ```
 
 https://mybot314.ru/tekegram_catalog/

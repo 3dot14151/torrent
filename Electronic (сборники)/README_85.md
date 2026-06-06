@@ -1,3 +1,90 @@
+###  Публикация: 1132368   (701018) от 09.05.2017
+
+VA - Club Dance Ambience Vol.108 (2017) [MP3|320 Kbps] <Club House, Vocal House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 20 Fingers Ft. Roula - Lick It (Block & Crown & Mike Ferullo Remix) 5:26
+002. Alaia & Gallo, Kevin Haden - Go (Original mix) 5:56
+003. AlexEnn - Come In Time  (Original mix) 3:20
+004. Alok - Never Let Me Go (Extended Mix) 4:14(   Читать дальше...   )Жанр: Club House, Vocal House, HouseПродолжительность: 07:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A99340F0DE0391B1DA2AE12ECFAC04127AEFBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132358   (700716) от 09.05.2017
+
+VA - Deep House Collection vol.120 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700716.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Accurate, Linda Axelsson - Wake Up  (Original Mix) 5:17
+002. Akora & Mike Stil - Can't You See (Olej Dub Remix) 6:00
+003. Alateya, Lisitsyn, MBNN - Call Me Now (Extended Mix) 4:49
+004. Aldo Bergamasco feat. Tommie Cotton - In My House  (Vocal Mix) 6:27(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1278C5B41678D6EF083F84944F69F27350948806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220741   (700636) от 21.04.2018
+
+VA - Chill Night (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Ambient, Deep Dubstep, Future Garage>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brambles - Are Te [06:12]
+02. Nils Frahm - Familiar [03:31]
+03. Aether - Watching You Fake A Smile [03:37]
+04. Kaisaku - Waiting For The Rain [04:39](   Читать дальше...   )Жанр: Ambient, Deep Dubstep, Future GarageПродолжительность: 03:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A474D3F5ECFC73797750882D5F27E2AB280F38A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026770   (700509) от 17.06.2016
 
 VA - Lounge Spotlight Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -658,93 +745,6 @@ VA - Record Super Chart 649 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:212EFEDE178E4F050D9E2F0DA1DB78A42293E6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402899   (697328) от 16.08.2020
-
-VA - TOP Non-Stop 2010-2019 - Deep House (2020) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umami - And Stay With Me There Forever (2019) (4:02)
-02. Corazza & Steve Paradise - Pachamama (FNX Omar remix, 2018) (5:15)
-03. Damian Lazarus & The Ancient Moons - Vermillion (&Me remix, 2015) (7:12)
-04. Mike Salta - Escape From Rico Bay (Drop Out Orchestra club cut, 2012) (5:35)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 09:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C926E7DA21667718DA3694D5DFC92772874E7B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133215   (697218) от 11.05.2017
-
-VA - Trance Сollection Vol.60 (2017) [MP3|320 Kbps] <Trance , Progressive Trance ,Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4 Strings & Denise Rivera - In The Middle Of A Dream (Original Mix) 5:13
-002. Above & Beyond, OceanLab - On a Good Day (ilan Bluestone Remix) 4:22
-003. Airborn, Bogdan Vix & KeyPlayer Feat. Danny Claire - What Is Loneliness (Original Mix) 6:22
-004. Akamana & Alaera - Frozen Sky (Original Mix) 9:02(   Читать дальше...   )Жанр: Trance , Progressive Trance ,Uplifting TranceПродолжительность: 10:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CC4F75EFA0A6E6D71C6D4CA3FEDC7FECC65CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132957   (697215) от 11.05.2017
-
-VA - Mimicry 2: Psy Trance Digest (2017) [MP3|233-320 Kbps] <Psychodelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697215.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Awwen Vs Overdream - Forest Virus 8:17
-002. Kaayaas - Aurora Borealis 7:07
-003. Lost Reflection - Selene 147 Bpm 8:28
-004. Music Simplified - Atmic Spheres 5:58(   Читать дальше...   )Жанр: Psychodelic TranceПродолжительность: 10:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7759749D59F3BAD8445F555AD16B90B39A930A28
 ```
 
 https://mybot314.ru/tekegram_catalog/

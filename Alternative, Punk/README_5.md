@@ -1,3 +1,32 @@
+###  Публикация: 995259   (885827) от 10.03.2016
+
+3 Doors Down - Us and the Night (2016) [MP3|320 кб/с] <Alternative Rock, Post - Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Broken
+ 02. In The Dark
+ 03. Still Alive
+ 04. Believe It(   Читать дальше...   )Жанр: Alternative Rock, Post - GrungeПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4DA0A8C4771A9182B9320DBB7502EE5AF0CEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995175   (884618) от 11.03.2016
 
 Circle of Dust - Circle of Dust (1992) Remastered, 2016, FiXT Music [MP3|320 кб/с] <Industrial Rock, Electronic Rock>
@@ -711,35 +740,6 @@ The Cat Empire - Rising With The Sun (2016) [MP3|320 кб/с] <Ska, Funk, Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D35E3C8584C4216A7B08459707B2812DBB2E01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379824   (837691) от 30.04.2020
-
-VA - NOW Alternative Classics (2020) [MP3|320 Kbps] <Indie & Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.E.M. - The One I Love
-02. The Killers - All These Things That I've Done
-03. The Wallflowers - One Headlight
-04. Massive Attack - Protection(   Читать дальше...   )Жанр: Indie & AlternativeПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DA294E74E485E01EE09FE28334EF13CB0275D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

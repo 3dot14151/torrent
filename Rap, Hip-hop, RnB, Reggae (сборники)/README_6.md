@@ -1,3 +1,32 @@
+###  Публикация: 1162625   (456610) от 02.09.2017
+
+VA - Original Sound Of Reggae (2017) [MP3|320 Kbps] <Reggae, Ska, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456610.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Super Beagle - Dust A Sound Boy
+002. Cocoa Tea - No Threat
+003. Johnny Osbourne - No Ice Cream Sound
+004. Tenor Saw - Ring The Alarm(   Читать дальше...   )Жанр: Reggae, Ska, SoulПродолжительность: 09:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913DE8CDFEDE5B02B7CC91E0A48151BA7277F36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322007   (452485) от 27.08.2019
 
 VA - Rhythm Of My Song (2019) [MP3|320 Kbps] <Pop, RnB>
@@ -716,35 +745,6 @@ VA - Rhythm And Blues: Maximum Live (2018) [MP3|320 Kbps] <RnB, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582C0536D5F448DFD231F282FF341008407C9A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256718   (351884) от 23.10.2018
-
-VA - Golden A Capella (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351884.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chrisjenkins - Chances
-002. Lil Marvaless - Pray For Me
-003. Selastoutseul - Sakura
-004. Whoisskitzo - Start Me Up(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FDFBBCBB5BD2FEF3BE73038280573AA305674B
 ```
 
 https://mybot314.ru/tekegram_catalog/

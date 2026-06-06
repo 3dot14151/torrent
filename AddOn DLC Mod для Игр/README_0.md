@@ -519,6 +519,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040205   (587062) от 04.08.2016
+
+Grand Theft Auto: Province (2016) [Ru] (0.1.7) Mod JS TEAM
+
+>>След.
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587062.jpg" />
+</div>
+
+
+###  Подробнее
+
+GTA Province - глобальный русский мод (проект), разрабатываемый на GTA San Andreas командой JS TEAM. Разработка мода начата - 02.03.2014. В игре имеется 3 русских города (Мирный, Приволжск и Невский), так же сельская местность (деревни, села, пгт). Города являются вымышленными, но имеют в себе огромное количество реально существующих объектов из разных городов России.Тип издания: ModРазработчик: JS TEAMЖанр: Action (Shooter), Arcade, Racing, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96858439B7B90968F111122EBD110DB7A5320BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361209   (574290) от 11.07.2011
 
 [Мод] S.T.A.L.K.E.R. - История прибоя [Rus] v.1.1 (2008) | Metro: Last Light
@@ -672,32 +698,6 @@ Football Manager 2015 Metallic Logos Graphic Megapack (2014) [Multi] (5.3) Mod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD0F4E60EA45B598E83A6248177312AC7EF7BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833102   (558524) от 03.08.2015
-
-Football Manager 2015 Graphic Megapack (2014) [Multi] (6.3/3.0/5.3) Mod [Cut-Out Facepack, SS Kits, Metallic Logos]
-
->>След.
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Графический пак-реплейсеров, который включает в себя: фото игроков и персонала в стиле Cut-Out; логотипы клубов, сборных и соревнований в стиле Metallic; формы команд в стиле SS.Тип издания: Неофициальный | Графическая модификацияРазработчик: Dr. Fess, FMFan, sortitoutsi, Kremmen
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F60E5CAC9B5A887DF45C676AE2BCF4EBB7C84E
 ```
 
 https://mybot314.ru/tekegram_catalog/

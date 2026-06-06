@@ -1,3 +1,90 @@
+###  Публикация: 1327635   (372568) от 26.09.2019
+
+Ahmed Romel - RUYA (2019) [FLAC|Lossless|WEB|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahmed Romel - Be My Eyes (Original Mix) (3:39)
+02. Ahmed Romel - Dystopia (Original Mix) (5:13)
+03. Ahmed Romel - Vanya (Original Mix) (3:54)
+04. Ahmed Romel & Simon O'Shine - The Love Potion (Original Mix) (4:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D168592DD1831A2209D749F535F3236BD12AC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327682   (372437) от 26.09.2019
+
+VA - Solarstone presents Pure Trance 7 (Extended) (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neptune Project ft. Christopher Lovell - Elixir of Life (Original Mix) (3:28)
+02. Mike Saint-Jules - Parachuting (Club Mix) (7:05)
+03. Paul Sawyer - Meridian (12 Version) (7:25)
+04. Elfsong - Crenshinibon (Extended Dub Mix) (6:27)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E42AF5E5CE04C4CC93737F754E2970A8FEA168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327442   (372266) от 26.09.2019
+
+Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [FLAC|Lossless|WEB|tracks] <Trance, Tech Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Shift (Extended Mix) (06:39)
+02. Belasco (Extended Mix) (06:39)
+03. Another Day in L.A. (Extended Mix) (06:49)
+04. Empty World (Extended Mix) (06:57)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BBC398D67CE039380EE5063FEEA995E638499B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327662   (372259) от 26.09.2019
 
 VA - A State Of Trance Ibiza 2019 (Mixed by Armin van Buuren) (2019) [FLAC|Lossless|CD|image + .cue] <Trance, Progressive Trance>
@@ -649,93 +736,6 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2017) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D761977B1714FB451DE23F2A2DF2BD6989A3F492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184209   (303521) от 16.11.2017
-
-VA - The Dark Side Of The Noom (1995) [FLAC|Lossless|tracks] <Acid, Hard Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Clarke - Dark Side Of The Noom Intro (2:53)
-02. Commander Tom - Are Am Eye? (9:15)
-03. Mandala - Evolution (6:52)
-04. Nuclear Hyde - Observer (5:47)(   Читать дальше...   )Жанр: Acid, Hard TranceПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3081BB92372BBD71CC71368FFD77658125B30E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078328   (302103) от 30.11.2016
-
-Robert Miles - Dreamland (Remastered) (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children (Dream Version) (7:10)
-02. Fable (Message Version) (6:27)
-03. Fantasya (5:38)
-04. Landscape (6:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2628D32FBF90FEFC596D07E54B72EF80AB653A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333715   (301438) от 26.10.2019
-
-Robert Nickson - Tellurian (2019) [FLAC|Lossless|tracks + .cue] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arecibo (2:43)
-02. Iridium Flare (5:20)
-03. Feed My Soul (with Thea Riley) (3:41)
-04. California (4:21)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD69412F59E94DFD24D732C5B6AF056F300CE98
 ```
 
 https://mybot314.ru/tekegram_catalog/

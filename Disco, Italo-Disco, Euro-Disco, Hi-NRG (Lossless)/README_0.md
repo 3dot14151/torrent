@@ -1,3 +1,61 @@
+###  Публикация: 1443197   (1035707) от 28.01.2021
+
+Steps - What the Future Holds (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop, Euro Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What the Future Holds (Single Mix) [03:49]
+02. Something in Your Eyes [03:02]
+03. Clouds [03:55]
+04. To the Beat of My Heart [03:10](   Читать дальше...   )Жанр: Dance Pop, Euro DiscoПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8374C7A1593273BFD1997E5DA150BBEA712AC74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443596   (1035475) от 29.01.2021
+
+Mark Ashley - MT (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Not Alone (Radio Version) (3:39)
+02. The Fans of Modern Talking (Club Mix) (5:35)
+03. Cheri Cheri Lady (Extended 2018) (4:43)
+04. You're My Heart You're My Soul (Radio Version) (3:44)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11A2DD9775D8DD1BFF69761FF936F357A4B9B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443589   (1035473) от 29.01.2021
 
 Mark Ashley - Christmas for My Fans (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -687,64 +745,6 @@ Modern Boots - Garden of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC341DCF6BBDA4A567B119D57EADB986B6294FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450562   (1029019) от 26.02.2021
-
-VA - Italo Made In Spain 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various - Italo Made In Spain 4 (Edicion Mexico) (16:15)
-02. Various - Italo Made In Spain 4 (Summer Session) (28:49)
-03. Francesco Napoli - Lady Fantasy 2018 (Italo New Extended Mix) (6:54)
-04. Naoky feat. Stylove - Cybernetic Love (Extended Mix) (6:13)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B42741A4A931A8A57BC9D6FDDA0E005343BE0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450603   (1028863) от 27.02.2021
-
-VA - Disco Deluxe - Disco Classics (2005) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Chocolate - You Sexy Thing (4:05)
-02. Gloria Gaynor - I Will Survive (Re-Rec) (4:52)
-03. Two Fons O'fon - I Got The Feeling (5:17)
-04. Marshall, Hain - Dancing In The City (3:45)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 02:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8571158AF4819F40506C838EEADF048B15374BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

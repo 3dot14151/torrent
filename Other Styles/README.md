@@ -1,5 +1,352 @@
 https://t.me/izofen
-###  Публикация: 1870817   (1069640) от 
+###  Публикация: 1874806   (1072170) от 
+
+Blonker - Fantasia & Inside  (1997) Super 2 Series, Reissue, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aranjuez 4:48
+02. Sidewalk cafe 3:16
+03. Pavane 4:05
+04. Anak 4:36(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF07F0345A035E6029C68EC0385A04EAEF7F5472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874815   (1072168) от 
+
+Blonker - Essential (1998) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sidewalk Cafe 3:18
+02. La Valetta 3:27
+03. Jorney To The Windward Islands 5:26
+04. September 6:01(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CA3078453F96FFA70EB3DA730112AA929B3499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874645   (1072022) от 
+
+Magic Melody Makers - Spanish Flamenco & Guitar Classics (Dreamland Music House) (2025) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barcelona Nights (2:52)
+02. Spanish Guitar Serenade (2:11)
+03. Madrid Flamenco Fiesta (2:32)
+04. Spanish Sunset Guitar (3:24)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED95B5ED4E52241A45CA5B79BDB29A5BE75356CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874405   (1071869) от 02.06.2026
+
+ERA - ERA VIII (2026) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fallen King [04:03]
+02. Everything's Gonna Be Alright [03:35]
+03. Will You Call My Name [03:27]
+04. Not You Again [05:03](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A011A1F1FA557471B099E45AC6875CEED71D5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874064   (1071681) от 31.05.2026
+
+VA - The Orient Collective: Sacred Stories (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Slick - Searching (5:08)
+02. Erhan Yılmaz - The Night Long Way Down (4:58)
+03. Divenitto - Goa (6:43)
+04. Erhan Yılmaz - Fifteen Seconds (6:10)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C422AA181F860EEE7220FE2AFDF1EF1154013C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873950   (1071469) от 30.05.2026
+
+Paul Mauriat - Transparence (1985) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alla Figaro
+02. Careless Whisper
+03. Like A Virgin
+04. No More Lonely Nights(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CEAB44C02AAF73643B6331D22E032929542330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873976   (1071453) от 30.05.2026
+
+Paul Mauriat - Nagekidori (1987) [FLAC 24/96, 192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nagekidori (L'oiseau blessé) (feat. Gheorghe Zamfir)
+02. Didn't We Almost Have It All
+03. Camp Fire -Жанр: InstrumentalПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C190A8ABDD25A6F0BC4337632D6D4932686230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873852   (1071356) от 30.05.2026
+
+Magic Melody Makers - Greek Tavern Nights (Dreamland Music House) (2025) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greek Tavern Dance (1:55)
+02. Ouzo & Olives (2:16)
+03. Santorini Sunset & Wine (3:11)
+04. Sirtaki & Souvlaki (2:03)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F507D7EAD49AFA66A8DE4425E6855ED4F4C9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873596   (1071290) от 29.05.2026
+
+ERA - ERA VIII (2026) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fallen King (4:02)
+02. Everything's Gonna Be Alright (3:35)
+03. Will You Call My Name (3:26)
+04. Not You Again (5:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D73B08F8B5C843EB4716E0C53D5BF625CAB9019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873608   (1071282) от 29.05.2026
+
+Magic Melody Makers - Turkish Nights 2026 (Dreamland Music House) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Istanbul Sunset Lounge (2:33)
+02. Bosphorus Breeze (2:06)
+03. Turkish Delight Evenings (1:59)
+04. Meze by Candlelight (3:33)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDAEE6349B2C56FDE3E306DBDB0D9E0A305DD8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873450   (1071021) от 29.05.2026
+
+Magic Melody Makers - Italian Summer Hits 2026 (Dreamland Music House) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road to the Beach (Verso il Mare) (2:08)
+02. Golden Beach (Spiaggia Dorata) (3:02)
+03. Coffee in the Sun (Caffè al Sole) (2:49)
+04. Blue Umbrella (Ombrellone Blu) (2:04)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD35E7157C7941EE936EE2EF414180B2572BE20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872546   (1070335) от 23.05.2026
+
+VA - The Orient Collective: Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antea Minerva, Marco Mateus, Tibetania - Exodus (5:12)
+02. bahri bekil, Tibetania - East & West (4:31)
+03. Tamer ElDerini, Tibetania - Lafta (5:50)
+04. Kaisser Bouzriba, Tibetania - Yallah - Yallah (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C72F09B0F83EB9389C3861619003A6915E738E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870817   (1069640) от 17.05.2026
 
 VA - Beverly Hills Cop (Music From The Motion Picture Soundtrack) (1984) [FLAC|Lossless|image + .cue] <1985>
 
@@ -28,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870828   (1069639) от 
+###  Публикация: 1870828   (1069639) от 17.05.2026
 
 VA - Soundtrack Smashes - The 80's (1989) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
 
@@ -57,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871275   (1069605) от 
+###  Публикация: 1871275   (1069605) от 16.05.2026
 
 VA - The Orient Collective: Voices of the Ancients (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
@@ -86,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870010   (1069154) от 
+###  Публикация: 1870010   (1069154) от 11.05.2026
 
 Govi - Cuchama (1993) [FLAC|Lossless|tracks + .cue] <Latin Jazz, New Age>
 
@@ -115,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 27937   (1068580) от 
+###  Публикация: 27937   (1068580) от 09.05.2026
 
 Немецкое танго 1930-1940 гг.
 
@@ -144,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869754   (1068509) от 
+###  Публикация: 1869754   (1068509) от 08.05.2026
 
 VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
@@ -173,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869712   (1068449) от 
+###  Публикация: 1869712   (1068449) от 08.05.2026
 
 Capcom Sound Team - PRAGMATA Original Soundtrack (2026) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
 
@@ -398,354 +745,6 @@ Raymond Wong - Shaolin Soccer (Убойный футбол) (2001) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0AE75D0324869831C89F16C47E6A5298CE32AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865291   (1065984) от 
-
-Carl Doy - Piano by Candlelight (1987) [FLAC|Lossless|image + .cue] <Pop, Music Hall, Light Music>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065984.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Memory
-2		Cavatina (Theme From The 'Deerhunter')
-3		Endless Love
-4		Theme From 'The Summer Of '42'(   Читать дальше...   )Жанр: Pop, Music Hall, Light MusicПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9FF898546C269A6B52E82D28C7C0949A1CE344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866142   (1065850) от 19.04.2026
-
-VA - The Orient Collective: Tales From the Sand (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaisser Bouzriba - Soul of the Oasis (4:29)
-02. Tamer ElDerini - Lafta (5:50)
-03. Kaisser Bouzriba - Yallah - Yallah (5:58)
-04. Moji - Bayatilar (3:20)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC309531E8B460AD805E8443D10AD640894F4CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864816   (1065647) от 16.04.2026
-
-Bond - Shine (2002) [FLAC|Lossless|image + .cue] <Electronic, Pop, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Allegretto	3:53
-2		Shine 3:57
-3		Fuego 2:59
-4		Strange Paradise 4:28(   Читать дальше...   )Жанр: Electronic, Pop, Modern ClassicalПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0256F9B579B7124DA36BCB281F6B908A0102FFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865939   (1065446) от 18.04.2026
-
-VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065446.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GeoffPlaysGuitar/Алла Пугачёва/Atomic Heart - Позови меня с собой (Geoffrey Day Remix)
-2. GeoffPlaysGuitar/Эдита Пьеха/Atomic Heart - Только мы (Geoffrey Day Remix)
-3. IOWA/Acid Minerale/Atomic Heart - Мой ненаглядный
-4. GeoffPlaysGuitar/Atomic Heart - Lambada (Geoffrey Day Rework)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80540A21FAC7D38F34F1EE721D94E61F658BE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865943   (1065445) от 18.04.2026
-
-VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [FLAC 24/48|Lossless|WEB-DL|tracks] <OST>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065445.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GeoffPlaysGuitar/Алла Пугачёва/Atomic Heart - Позови меня с собой (Geoffrey Day Remix)
-2. GeoffPlaysGuitar/Эдита Пьеха/Atomic Heart - Только мы (Geoffrey Day Remix)
-3. IOWA/Acid Minerale/Atomic Heart - Мой ненаглядный
-4. GeoffPlaysGuitar/Atomic Heart - Lambada (Geoffrey Day Rework)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF177FDC48AFB9EDC95F13B77AC234F379BA680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864705   (1065092) от 
-
-The St. John Damaskin children’s and youth choir (Детско-юношеский хор преподобного Иоанна Дамаскина) - Pascha of the Faithful (Пасха верных) (2009) [FLAC|Lossless|tracks + .cue] <Духовные песно ...
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behold, the Bridegroom cometh...
-02. Thy Bridal Chamber...
-03. Today there is hung upon the Tree...
-04. Bells of the Lord’s Tomb Christ is risen...(   Читать дальше...   )Жанр: Духовные песнопенияПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A491B17856D835602D1AB976609B52A765E206F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864769   (1065081) от 
-
-VA - The Orient Collective: Ancestors Still Speak (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.J. Thor - Sussurro (4:28)
-02. Aydn Britt - Albaraan (4:26)
-03. Marga Sol - Memoria (4:45)
-04. m.age.project - Crystal Beauty (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B577A52FC21008C34386280F29633D2D92E23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864779   (1065076) от 
-
-Paul Mauriat - Blooming Hits (1967) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somethin' Stupid
-02. Penny Lane
-03. This Is My Song
-04. Alone In The World(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90EDDBCFA6B0FC2AD8244592FB6A345039685C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860850   (1064189) от 30.03.2026
-
-Александр Софикс - Дискография (2004-2009) [MP3|320 Kbps] <New age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Город радости (Viva Gomel)
-02. Океан
-03. По дну океана
-04. Я скоро буду с тобой(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908B84FC7BA16CC737E69A8986AECE5E78D2BCAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863092   (1063728) от 02.04.2026
-
-VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Suvorov - Orchard (5:43)
-02. Ildar Bik - Talika (5:49)
-03. Gavr - Kamishek (7:22)
-04. Noyan Music - Moyo (5:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41AAE91F46233549F4BD1CAED0FA1BA7203FC39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863365   (1063477) от 04.04.2026
-
-VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gobi Desert Collective - Assez (5:02)
-02. Dj Renat - Busindre Reel (7:11)
-03. ARTYDAL - Viajero (Vocal Mix) (6:05)
-04. Marga Sol - Orolalo (4:08)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BD3FDA152DC097CAB0D0D093A1DE4E8FBFB239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864023   (1062939) от 08.04.2026
-
-Maura O’Connell - Helpless Heart (1989) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Stop the Girl    [0:03:13.42]
-02. Helpless Heart    [0:04:47.10]
-03. Summerfly    [0:03:02.60]
-04. Trouble in the Fields    [0:03:24.60](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE4961BD2FB61BD59B149C998F385B7AEA204CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,51 +1,22 @@
-###  Публикация: 1531623   (720839) от 16.02.2022
+###  Публикация: 1023511   (724646) от 05.06.2016
 
-VA - Chill Horizons, Vol. 2 (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marie Therese - Drive Your Way (Original Mix) (5:03)
-02. Simon Le Grec - Look at Me (Original Mix) (4:31)
-03. Viktor (UA) - Watercolor (4:52)
-04. The Soul Crusaders - Open Sea (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531714   (720838) от 16.02.2022
-
-Valentina Studio Pro 12.0.1 [Multi/Ru]
+Сам себе режиссёр (05.06.2016) SATRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 14.02.2022Разработчик: © 2021 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Программа "Сам себе режиссер" - это развлекательное шоу, в основе которого лежит демонстрация любительского видео. Оригинальное озвучивание каждого сюжета, осуществляемое группой профессиональных актеров московских театров, - главное и принципиальное отличие от зарубежных аналогов. Программа пользуется огромной популярностью у зрительской аудитории уже (   Читать дальше...   )Телекомпания: Россия 1Жанр: Телепередача, ЮморПродолжительность: 00:38:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90D5F9907038C070721E747A91FAE56DA759D5C8
+magnet:?xt=urn:btih:5BDBBBEE18C559CA11FDCD750201228412F3D5A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531719   (720837) от 16.02.2022
+###  Публикация: 1128899   (724645) от 27.04.2017
 
-GraphicConverter 11 v11.6 [Multi/Ru]
+VA - Best-of-ka от радио Шансон выпуск № 2 (2017) [MP3|256 Kbps] <Шансон>
 
->>Архив торрентов
->>Архив 4Apple
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2022Разработчик: © 2021 Lemke Software GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+001. Слава Благов - Золотая 3:45
+002. Сборная Союза - Звенит Холодное Стекло 4:10
+003. Смирнов & Компания - Далеко Далеко 3:39
+004. Ильдар Южный - Побежали Ручьи 3:44(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4F7E3C37CF3D3B9576D0136F0AF5BB4B4448182
+magnet:?xt=urn:btih:8410E7A46A7595718A8F0CF9EE27ACCAA759B8DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531685   (720836) от 16.02.2022
+###  Публикация: 1023676   (724644) от 05.06.2016
 
-Artstudio Pro 4.0.4 [En]
+VA - Home Chill Prelude (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 
->>Архив торрентов
->>Архив 4Apple
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+001. Maremare - That Beach Is Mine
+002. Paul Cuddeford - Jenny Wren
+003. Pedro Del Mar Feat. Fancy Vienna - Windows To My Soul
+004. Chilhouette - The Way You Look At Me (Extended Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:31:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:212E716745B5CD234C91099E637A8B396CC80BA1
+magnet:?xt=urn:btih:9FD1A03EA6526CF69A750C04DB37BAFB9886D0C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531622   (720835) от 16.02.2022
+###  Публикация: 1023603   (724643) от 05.06.2016
 
-VA - Chill Horizons, Vol. 1 (2020) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+Воскресное время - Первый канал (05.06.2016) SATRip
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724643.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris le Blanc, Paris Bizarre - Si Vous Voulez (Original Mix) (4:28)
-02. Roberto Bronco - Islands (Original Mix) (3:20)
-03. Marc Hartman - Sandcastles (5:34)
-04. Marc Hartman, Airily - Endless Summer (Shining Sun) (4:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:10
+Информационно-аналитическая программа Первого канала, выходящая в эфир каждое воскресенье (кроме праздников) с начала сентября по начало июля в 21:00 с хронометражем в 1 час. Рубрик не имеет. Состоит из двух частей примерно по полчаса каждая, разделенных рекламным блоком. Производится Дирекцией информационных программ ОАО «Первый канал».Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:14:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8807DB4D27806C7E0F76098519F42CF2F3FF8474
+magnet:?xt=urn:btih:47AC7AE8AF6B74487E6A1F8C2778B2F3131E7D79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531641   (720834) от 16.02.2022
+###  Публикация: 1128817   (724642) от 27.04.2017
 
-Marga Sol - Mandala (Oriental World Lounge Vibes) (2017) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Club Dance Ambience Vol.106 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Je T'aime (5:17)
-02. Mandala (6:20)
-03. Be Mine (5:04)
-04. Desedena (4:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:03:16
+001. 5sta Family - Везувий (Buzzy Remix) 6:17
+002. Aleo - Hospital 6:41
+003. Alok & Bruno Martini feat. Zeeba - Hear Me Now (DJ Strong Remix) 4:24
+004. Alphaville - Big in Japan (Albina Mango & Dj ZeD Remix) 3:54(   Читать дальше...   )Жанр: Dance, Club, Club House, HouseПродолжительность: 07:28:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E114BEE94A04E41872DBEF46CC513509AAA3DDEC
+magnet:?xt=urn:btih:601A2370C877EC17EEFEBB8D90F811E2DE156636
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,28 +137,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531633   (720833) от 16.02.2022
+###  Публикация: 1023269   (724641) от 05.06.2016
 
-Johnny Hodges And His Orchestra - Perdido & Creamy (1955) 2010, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing>
+Виктория Гранкина - Золотая карусель (2007) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Золотая карусель - 3:28
+02. На родные берега - 4:34
+03. Мама я иду к тебе - 5:41
+04. Просто дождь - 5:18(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B976B7E46EEBE7AD83ACE0810ADD9EA867661EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023672   (724640) от 05.06.2016
+
+VA - Sensual Vocal Trance vol 12 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724640.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Attractive Deep Sound - Attention (Intro Vocal Mix)
+002. Gareth Emery - Meet Her In Miami (Original Mix)
+003. The Madison - Follow Up (Original Mix)
+004. Cathy Burton - Heaven (DNS Project Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 11:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3688521C836256F1B47EC44B9125A5BA95B883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023567   (724639) от 05.06.2016
+
+Boo Boo Weavils - Who The Hell Are The Boo Boo Weavils (2016) [MP3|320 кб/с] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724639.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rose Room [6:52]
-02. Blues For Basie [6:22]
-03. Mood Indigo [6:22]
-04. Squatty Roo [6:52](   Читать дальше...   )Жанр: SwingПродолжительность: 01:19:40
+01. Who The Hell Are The Pt. 1 (00:57)
+02. Chasing The Sun (03:14)
+03. When Is High (03:49)
+04. Lucky Man (02:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBD4FC954F798BA6370AA3D2086C7336F7A0434F
+magnet:?xt=urn:btih:FFA11E9D6E947E6A0BD5AA0D8842229932542756
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,28 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531630   (720832) от 16.02.2022
+###  Публикация: 1128931   (724638) от 27.04.2017
 
-VA - Think Deep, Vol. 1 (Deluxe Chill House & Atmospheric Deep House Music) (2021) [AAC|~316 Kbps] <Chill House, Lounge, Downtempo>
+VA - Fitness Mania: Electro Tech House (2017) [MP3|320 Kbps] <Electro, Tech House>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724638.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marga Sol - What I Long For (Original Mix) (5:41)
-02. Marga Sol, Darles Flow - Real Air (Original Mix) (7:23)
-03. Jero Nougues - Cerberus (Original Mix) (8:00)
-04. Deeperteque - Time to Deep (Original Mix) (6:56)(   Читать дальше...   )Жанр: Chill House, Lounge, DowntempoПродолжительность: 02:54:35
+001. A&A - Indie (Original Mix) 3:39
+002. Miro Pajic - Dizzy Danza 7:10
+003. Agresias - New Day (Original Mix) 4:54
+004. Wndlrs - Ingewikkeld 6:32(   Читать дальше...   )Жанр: Electro, Tech HouseПродолжительность: 10:22:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:930F903786630173D09B2F3864DD7042C571CE62
+magnet:?xt=urn:btih:C54D3677E43646F18418A4AC10F42ABD512169ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,25 +253,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531659   (720831) от 16.02.2022
+###  Публикация: 1285161   (724617) от 24.02.2019
 
-App Icon Generator 1.4 [En]
+Пётр Иванов | Тайна святых. Введение в Апокалипсис (1993) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственное, на сегодняшний момент издание работ П.К. Иванова – это репринт книги «ТАЙНА СВЯТЫХ. Введение в апокалипсис». Что само собой уже говорит об уникальности издания. В этой работе Петр Иванов рассматривает самые насущные вопросы современной церкви с привлечением самого широкого исторического, богословского и апологетического материала.
+По толкованию Иванова, (   Читать дальше...   )Жанр: Богословие, экзегезаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13FEAF86050BA66FFDBFF8C66D64914883CBCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284922   (724616) от 24.02.2019
+
+The Claypool Lennon Delirium - South of Reality (2019) [FLAC|Lossless|tracks + .cue] <Experimental, Indie Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Fishes (06:06)
+02. Blood and Rockets - Movement I, Saga of Jack Parsons - Movement II, Too The Moon (06:29)
+03. South of Reality (03:27)
+04. Boriska (05:25)(   Читать дальше...   )Жанр: Experimental, Indie Rock, Psychedelic RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB3596B30F2BDE3B3EE206B4098273EB2D6289A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284996   (724615) от 24.02.2019
+
+Дэшил Хэммет | Кровавая жатва (2018) [MP3, Сергей Пухов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работник сыскного агенства приезжает в небольшой городишко Отервилль для встречи с клиентом, но спустя несколько часов узнает, что встречаться ему уже не с кем — человек, назначивший ему встречу, застрелен. И сыщик все глубже и глубже погружается в заваренную им же «кровавую кашу», а число трупов вокруг него растет не по дням, а по часам.....
+
+Дэшил Хэммет | Красная (   Читать дальше...   )Жанр: Крутой детективИздательство: Аудиокнига своими рукамиПродолжительность: 07:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B924E05AB65FE6EA8AC5DD6C4F5F7698E40BD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284895   (724614) от 24.02.2019
+
+Dictionaries 1.3 [En]
 
 >>Программы для macOS
->>Офис, Интернет для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создавайте значки приложений за миллисекунды для iOS, watchOS и macOS простым  «drag, a drop» и кликом.Тип издания: macOS SoftwareРелиз состоялся: 16.02.2022Разработчик: © 2017 - 2022 Tom CoomerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+Встроенный в macOS «Словарь.app» всегда вызывал у пользователей противоречивые чувства. С одной стороны, его можно удивительно легко вызвать, в нём есть отличный Оксфордский словарь, а с недавнего времени — даже «Толковый словарь русского языка». С другой же стороны сам набор словарей в нём довольно ограничен, и если вы — не англоговорящий и не изучаете английский, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2019Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B99E94ED336063B67C1207298CCC5C307512583F
+magnet:?xt=urn:btih:5AB2EEDE102F7586A58AF59D07BC35AC1D636846
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -247,28 +363,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531645   (720830) от 16.02.2022
+###  Публикация: 1284930   (724613) от 24.02.2019
 
-VA - Buddha Gold, Vol. 2 - The Finest in Mystic Bar Music (2018) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Record Super Chart 575 (2019) [MP3|320 Kbps] <House, Club, Dance>
 
->>нет
->>нет
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724613.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Persia Beatz - Sha Hai (Morgenland Miles Cut) (6:48)
-02. Frank Borell - Alive (Electric Dream Cut) (4:18)
-03. Asian Chill Art - Bahai Jar (Continental Cut) (5:01)
-04. Sean Hayman - Imagine (Dreamwave Mix) (5:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:14:50
+01.  Calvin Harris & Rag'n'Bone Man - Giant
+02.  Marnik & Smack - Gam Gam
+03.  Hugel & Amber Van Day - Wtf
+04.  Gryffin feat. Zohara - Remember(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:25
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D0ED8ED5F3AD061352FAFBB93E8455D4B45AB790
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,25 +392,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400367   (720829) от 04.08.2020
+###  Публикация: 1285150   (724612) от 24.02.2019
 
-Hetman Partition Recovery 3.1 + Portable [Multi/Ru]
+ExamDiff Pro Master Edition 10.0.1.9 [En]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hetman Partition Recovery – флагманский продукт Hetman Software. Используемый компанией инновационный алгоритм позволяет найти и восстановить в полном объеме практически все файлы, в подавляющем большинстве случаев. Программа восстанавливает данные жестких и внешних дисков, а также любых других устройств под управлением файловых систем FAT / exFAT, NTFS / ReFS, APFS (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+ExamDiff - мощная и легкая в использовании программа для сравнения текстовых или бинарных файлов и директорий. Программа обладает уникальными возможностями, которые отличают ExamDiff Pro от других аналогичных приложений для сравнения файлов. ExamDiff Pro предлагает более эффективный и удобный способ для сравнения файлов и папок. С помощью ExamDiff Вы сможете сравнивать (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1376EE6760F8292D77DF5169D44AA541C739AB2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,25 +418,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400127   (720828) от 04.08.2020
+###  Публикация: 1285050   (724611) от 24.02.2019
 
-Шпион / Spy (2015) WEBRip [H.264/1080p-LQ] [Open Matte] [Локализованная версия] [PR]
+Rod Stewart - Atlantic Crossing (1975) Remastered [FLAC|Lossless|image + .cue] <Pop Rock>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сьюзан Купер всю свою жизнь мечтала стать секретным агентом и даже устроилась работать в ЦРУ. Однако, дальше сотрудника самой низкой ступени ей так и не удалось продвинуться. Понимая, что осуществить свою мечту практически невозможно, она все-таки продолжает надеяться на лучшее и с нетерпением ожидает своего шанса. И вскоре судьба дарит ей такую возможность. Лучший (   Читать дальше...   )Производство: США, Великобритания, Франция, Венгрия, Германия / Twentieth Century Fox, Chernin Entertainment, Feigco EntertainmentЖанр: боевик, комедия, криминалРежиссер: Пол ФигАктеры: Мелисса МакКарти, Джейсон Стэйтем, Джуд Лоу, Роуз Бирн, Миранда Харт, Бобби Каннавейл, Морена Баккарин, Раад Рави, Джессика Чаффин, Сэм Ричардсон, Кэти Дипполд, Джейм Пачеко, Ромейн Апельбаум, Ричард БрэйкПеревод: Дублированный (Лицензия)Субтитры: русские (forced hardsub, full), английскиеПродолжительность: 02:00:04
+01. Three Time Loser
+02. Alright For An Hour
+03. All In The Name Of Rock 'N' Roll
+04. Drift Away(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:635E81A9C385861F4B3FB04A387D4B9D152875B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,25 +447,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400361   (720827) от 04.08.2020
+###  Публикация: 1285026   (724610) от 24.02.2019
 
-Harvard Business Review (HBR) | Гид HBR. Как управлять своей карьерой (2020) [EPUB]
+Andrey Zhitnev - The Best Of Playing Space and Ray Orion (2017) [MP3|320 Kbps] <Spacesynth>
 
->>нет
->>нет
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В высококонкурентной деловой среде сегодня востребованы сотрудники с наибольшим набором разных компетенций. Постоянное развитие и освоение новых навыков стало приоритетом для тех, кто хочет достичь новых карьерных высот. Никто так не заинтересован в вашем росте и развитии, как вы сами. Но возможно ли постоянно наращивать профессиональное мастерство самостоятельно? (   Читать дальше...   )Жанр: Бизнес, Поиск работы, карьераПеревод: Ирина ОкуньковаФормат: EPUB
+01. Star Track (4:29)
+02. Meteoric Shower (2:51)
+03. The Heart Of The Jedi (5:10)
+04. Storm Of Love (5:01)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:38:59
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A691F33DCC1C4CE8B0606BEF256D36DCD2FC5E54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,28 +476,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 234819   (720826) от 04.08.2020
+###  Публикация: 1285146   (724609) от 24.02.2019
 
-Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar Concertos>
+VA - Workout Beats EDM 2019 Power And Workout Motivation Music [MP3|320 Kbps] <House, BigRoom, Dance>
 
->>Other Styles
->>Other (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Granados: Danzas espanolas, op.37 no.5 "Andaluza" (04:00)
-02. Granados: Danzas espanolas, op.37 no.4 "Villanesca" (05:33)
-03. Granados: Danzas espanolas, op.37 no.2 "Oriental" (04:40)
-04. Granados: Goyescas: Intermedio (04:43)(   Читать дальше...   )Жанр: Instrumental, Guitar ConcertosПродолжительность: 00:41:28
+01. Sofiane - Let's Party (Original Mix) 3:53
+02. Wavejackers - Asgardia (Extended Mix) 4:53
+03. Wizard - Wizarding World (Original Mix) 6:04
+04. Zoom Square - Dangerous (Original Mix) 2:56(   Читать дальше...   )Жанр: House, BigRoom, DanceПродолжительность: 01:05:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0367653D71AA03379BD5AFA7100A7ED42C932C63
+magnet:?xt=urn:btih:E0FF307772041EB8EB97AD8A774A3646BB50411A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,25 +505,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400252   (720825) от 04.08.2020
+###  Публикация: 1285097   (724608) от 24.02.2019
 
-Черити Мейджорс, Лейн Кэмпбелл | Базы данных. Инжиниринг надежности (2020) [PDF]
+Король, обманувший Гитлера / The King Who Tricked Hitler (2016) HDTVRip
 
->>Компьютерная литература
->>нет
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сфере IT произошла настоящая революция — с инфраструктурой стали работать как с кодом. Этот процесс создает не только новые проблемы, но и возможности для обеспечения безотказной работы баз данных. Авторы подготовили это практическое руководство для всех, кто желает влиться в сообщество современных инженеров по обеспечению надежности баз данных (database reliability (   Читать дальше...   )Жанр: Базы данныхФормат: PDF
+Это одна из самых невероятных историй Второй мировой войны, рассказанная последним королем Румынии Михаилом I. Это история о решении короля, который в критический момент Второй мировой войны отказался от поддержки Германии, направив Румынию к союзникам. Считается, что это сократило войну на несколько месяцев, однако свобода Румынии была недолгой... Это история дворцовых (   Читать дальше...   )Производство: РумынияЖанр: Документальный, биография, война, историяРежиссер: Тревор ПоотсПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Субтитры: Английские на румынскую речь (вшитые)Продолжительность: 00:43:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F69B526D857905107A6ADF96FB24FA7C6F735E2F
+magnet:?xt=urn:btih:71020ABBC017AE43FCC6A1D249B25E6BA181652E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -409,26 +531,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400284   (720824) от 04.08.2020
+###  Публикация: 1285011   (724607) от 24.02.2019
 
-День воина / Day of the Warrior (1996) BDRip [H.264] [DVO]
+Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 2-й матч. Валенсия (Испания) — Селтик (Шотландия) (21.02.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бывший агент ЦРУ, по кличке Воин возглавляет преступный синдикат, занимающийся контрабандой алмазов, порнобизнесом и работорговлей.
-Внедриться в ряды армии Воина и остановить его по силам только обворожительным агенткам из спецподразделения правительства.Производство: США / Malibu Bay FilmsЖанр: Боевик, Триллер, ПриключенияРежиссер: Энди СидарисАктеры: Кевин Лайт, Кристиан Летелье, Джули Стрэйн, Джули К. Смит, Шаэ Маркс, Маркус Багвелл, Рэй Холлитт, Родриго Обрегон, Джералд Окамура, Ричард Кансино, Кэссиди Филлипс, Тэмми ПарксПеревод: Двуголосый профессиональный, НТВ+Субтитры: Английские (Full, SDH)Продолжительность: 01:36:40
+21 февраля 2019, четверг. 20:55 МСК
+Лига Европы УЕФА 2017 - 2018. Плей-офф.
+1/16 Финала. 2-й матч.
+Валенсия (Валенсия, Испания) — Селтик (Глазго, Шотландия)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66753A8F0263547A022302907E3F12D95A852B4C
+magnet:?xt=urn:btih:9A2F1D979ACA907EFFC83D17B54AF0C57692C6D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,25 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400399   (720823) от 04.08.2020
+###  Публикация: 1285051   (724606) от 24.02.2019
 
-Осушение океана: Вторая мировая война / Drain the Ocean WWII (2016) WEB-DL [H.264/1080p]
+Master PDF Editor 5.3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Места кораблекрушений Второй мирорвой войны густо рассыпаны по земному шару, на дне океанов скрыты величайшие тайны. Представьте, что мы осушили океаны, отвели воду, чтобы узнать, какие секреты таятся на глубине. Теперь это возможно благодаря новейшей технологии подводного сканирования. Впервые мы можем получить ответы на давно существующие вопросы: кто нанес первый (   Читать дальше...   )Производство: Великобритания, Канада, Mallinson Sadler Productions, Northern Sky Entertainment, Discovery Channel Canada, National Geographic ChannelЖанр: Документальный, научно-познавательныйРежиссер: Майк СлиПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:02
+Master PDF Editor - это программа, предназначенная для просмотра и редактирования документов в формате PDF. Приложение включает в себя удобные инструменты выделения текста и картинок на страницах, дает возможность легко перемещаться по документу при помощи оглавления, а также добавлять заметки и комментарии. Одним из важнейших преимуществ программы можно считать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C3025AB67152754B9BC6419056B17849E414FDD
+magnet:?xt=urn:btih:0E02300F7DD86448619C4835E57D963C4AD2457E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,26 +586,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400369   (720822) от 04.08.2020
+###  Публикация: 1285045   (724605) от 24.02.2019
 
-Лиа Каллис | Силовая йога. Энергия. Концентрация. Баланс (2020) [EPUB]
+Avast Secure Browser 72.0.1151.82 [Multi/Ru]
 
->>Разное (категория книг)
->>Эзотерика
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доступная для новичков (и полезная для инструкторов) иллюстрированная книга по йоге с большим количеством упражнений.
-Силовая йога, пауэр-йога – спортивный, динамичный и современный стиль йоги, предполагающий занятия до пота и усталости. Акцент в нем делается на позах, которые улучшают физическую форму и концентрацию, ускоряют метаболизм. В конечном счете вы сможете (   Читать дальше...   )Жанр: ЙогаПеревод: Юлия ЗмееваФормат: EPUB
+Avast Secure Browser - обновленная и улучшенная версия браузера Avast SafeZone. В дополнение к функциям браузера SafeZone, Avast Secure Browser теперь включает Центр безопасности и конфиденциальности.
+Центр безопасности и конфиденциальности - коллекция инструментов и функций, которые позволяют анализировать и контролировать вашу онлайн активность и безопасность.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:616E7611170B0FD97FE1EECF63E36BAF8A970FDC
+magnet:?xt=urn:btih:FEB4147FE55E9C1FF6B43178123E0FCFEC9B8A22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,25 +613,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400226   (720821) от 04.08.2020
+###  Публикация: 1285004   (724604) от 24.02.2019
 
-[Pluralsight] Jean-Michel Bihorel | Facial Tracking in 3DEqualizer and Maya (2012) PCRec [En, Ru]
+VA - Early Morning Raga: Chill House Music (2019) [MP3|320 Kbps] <Chill, Deep House>
 
->>нет
->>нет
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом курсе вы узнаете как делать трекинг объекта в 3DEqualizer. Мы начнем с рассмотрения того, что важно при подготовке к шоту, имеющему объект для трекинга. Затем мы посмотрим как правильно снять сетку, для того чтобы в дальнейшем убрать искажения объектива. Затем мы подготовимся к трекингу нашего первого шота. После чего мы переидем к обзору доступных в 3DE инструментов, (   Читать дальше...   )Производство: PluralsightЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 1:57:00
+001. Nailon Gray - Body And Soul
+002. Draud - Celesta
+003. Winnie Deep - Conversations With God
+004. Jan Mir - Moby Dick(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 09:53:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:12C627DF869224756DF089874FD195BB30C7EF62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +642,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 258033   (720820) от 04.08.2020
+###  Публикация: 1285119   (724603) от 24.02.2019
 
-Ottmar Liebert + Luna Negra XL - Little Wing (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+Yola - Walk Through Fire (2019) [FLAC|Lossless|tracks + .cue] <Soul, Blues, Folk>
 
->>Other Styles
->>Instrumental (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Agua Fria (Cold Water)	(04:02)
-02. Little Wing			(04:49)
-03. The Girl From Ipanema	(06:31)
-04. Interlude #1: Longing	(01:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:46
+01. Faraway Look
+02. Shady Grove
+03. Ride Out In The Country
+04. It Ain’t Easier(   Читать дальше...   )Жанр: Soul, Blues, FolkПродолжительность: 00:41:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91FAED298740D8FE93E2FE75A6D9FA01B727816E
+magnet:?xt=urn:btih:57E54E797D11934F9BE1A9AA392E1D428DAC4FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,26 +671,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400264   (720819) от 04.08.2020
+###  Публикация: 1284975   (724602) от 24.02.2019
 
-Хроники Риддика / The Chronicles of Riddick (2004) BDRip [H.264] [Director's Cut]
+Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 2-й матч. Байер (Германия) — Краснодар (Россия) (21.02.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Последние пять лет Риддик провел в бегах среди забытых миров на задворках галактики, прячась от наемников, назначивших цену за его голову. Теперь беглец оказался на планете Гелион, где живет прогрессивное многонациональное общество, завоеванное лордом Маршалом, фанатиком, решившим поработить человечество армадой своих воинов, некромонгеров.
-Совершив побег из подземной (   Читать дальше...   )Производство: США / Universal Pictures, Radar Pictures, One Race ProductionsЖанр: фантастика, боевик, триллер, приключенияРежиссер: Дэвид ТуиАктеры: Вин Дизель, Колм Фиор, Тэнди Ньютон, Джуди Денч, Карл Урбан, Алекса Давалос, Лайнас Роуч, Йорик ван Вагенинген, Ник Чинланд, Кит ДэвидПеревод: Дублированный, многоголосый закадровый, двухголосый закадровый, авторскийСубтитры: русские, английскиеПродолжительность: 02:14:06
+21 февраля 2019, четверг. 23:00 МСК
+Лига Европы УЕФА 2017 - 2018. Плей-офф.
+1/16 Финала. 2-й матч.
+Байер (Леверкузен, Германия) — Краснодар (Краснодар, Россия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:40:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1C3B563B3B3B9F9B987E74D8E891F849F2A1EE7
+magnet:?xt=urn:btih:81DAE96CA30361DBF722ED5E6BBDD852E428953A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,130 +700,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400377   (720818) от 04.08.2020
+###  Публикация: 1284896   (724601) от 24.02.2019
 
-Артем Сазыкин | Инструкция для манипулятора. Все секреты влияния на людей (2019) [EPUB]
+Николай Бахрошин | Викинги. Скальд (2019) [MP3]
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Манипулировать окружающими – умение, которым желают овладеть многие. Это искусство основано на знании самых скрытых уголков человеческой психики и целого ряда слабостей, которые мы все так привыкли друг от друга скрывать. Испокон веков люди искали способы воздействия на разум и мысли себе подобных. Сейчас эти знания применяются везде: в политике, религии, рекламе, (   Читать дальше...   )Жанр: Социальная психологияФормат: EPUB
+Еще в детстве он был захвачен в плен викингами и увезен из славянских лесов в шведские фиорды. Он вырос среди варягов, поднявшись от бесправного раба до свободного воина в дружине ярла. Он прославился не только бойцовскими навыками, но и даром певца-скальда, которых викинги почитали как вдохновленных богами. Но судьба и заклятие Велеса, некогда наложенное на него (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 09:08:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8ACA8BE2787E6D94A8A2F94AE8DC86CFF44EB6E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399845   (720817) от 04.08.2020
-
-Профессор Т.: Особые преступления / Professor T. (2018) WEBRip (сезон 3, серии 1-13 из 13) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сезон об эксцентричном профессоре начинается с событий после шокирующего финала 2-го сезона. Яспер Тирлинк, теперь уже бывший профессор криминальной психологии антверпенского университета, в наручниках отправляется в тюрьму. Будучи неприспособленным к жизни за решёткой, Яспер плохо справляется с новой ситуацией, которая усугубляется тем, что он становится мишенью (   Читать дальше...   )Производство: БельгияЖанр: драма, комедия, криминалРежиссер: Тим МилантсАктеры: Коэн Де БоуЮ Таня Остфогельс, Гуле Дерик, Карри Госенс, Хервиг Илегемс, Элла Лейерс, Стив Гирц, Вивиан де Мюйнк, Барбара Сарафьян, Барт Холландерс и др.Перевод: Двуголосый профессиональный (ViruseProject)Субтитры: русскиеПродолжительность: ~00:50:00 серияРеклама: присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C462510A36A2904153AFF2A72834B993D45A298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400307   (720816) от 04.08.2020
-
-Вадим Санжаров | Психосоматика на пальцах. Не верить, а проверить! (2020) [EPUB]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вадим Санжаров – практикующий психолог, гипнолог и специалист по психосоматике, который в своем аккаунте @sanzharovvadym рассказывает своим подписчикам о психосоматике просто и наглядно. Проводит бесплатные прямые эфиры, медитации и практики на аудиторию более 180 тыс. человек. Его авторские программы помогли тысячам людей посмотреть по-новому на свое здоровье и (   Читать дальше...   )Жанр: Практическая психология, Психотерапия, Популярно о медицинеФормат: EPUB
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394681   (720815) от 04.08.2020
-
-Чудо-доктор / Чудо-врач / Mucize Doktor (2019-2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-28 из 28) SesDizi [PR]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк популярного американского и корейского сериала "Хороший доктор". Повествует он о молодом хирурге с диагнозом аутизм, который получает работу в одной из престижных клиник за свой прирожденный талант спасать жизни пациентов, и бросающий вызов скептицизму своих коллег.Производство: Турция / MF YapımЖанр: драмаРежиссер: Юсуф ПирхасанАктеры: Танер Ольмез, Синем Унсал, Онур Туна, Озге Оздер, Реха Озджан, Мурат Айген, Хазал Тюресан, Фырат Алтунмеше, Корхан Хердуран, Хаяль КёсеоглуПеревод: Двуголосый любительский (SesDizi)Продолжительность: ~02:00:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400140   (720814) от 04.08.2020
-
-Роман Злотников, Даниил Калинин | Пламя войны (2020) [MP3]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два года назад отгремела битва у Львиных Врат, и Рогора завоевала независимость. Молодое королевство стремительно развивается и набирает силу, а Аджей Руга наслаждается тихим семейным счастьем в редкие, свободные от службы минуты – принц-консорт служит Родине на границе со степью.
-Но Республика не смирилась с потерей южной провинции. Сейм возглавил герцог Бергарский, (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 07:56:11
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:76335FF00D401C9C1FA601857B4A1FBA5DF831B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

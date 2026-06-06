@@ -1,3 +1,90 @@
+###  Публикация: 1411475   (427345) от 25.09.2020
+
+Хаски - Хошхоног (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [03:33]
+02. Шаг влево, шаг вправо [02:33]
+03. Никогда-нибудь [02:25]
+04. Люцифер [02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F199BFC78A6FEC2A2FFCC7D5C71A6208FD9116A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324254   (427331) от 08.09.2019
+
+The Dualers - Palm Trees and 80 Degrees (2019) [MP3|320 Kbps] <Funk, Ska, Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got to Do Better Than That (03:54)
+02. Dancin till the Sun Comes Up (04:06)
+03. It's a Wonderful Life (04:30)
+04. Spend Some Time (04:08)(   Читать дальше...   )Жанр: Funk, Ska, ReggaeПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976FD33CB0405BBD7E04A137CD20CB43D35A5B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946247   (427304) от 13.10.2015
+
+Nekby - Алхимия (2015) [MP3|320 кб/с]<Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алхимия 03:13
+02. Стрелки 03:57
+03. Пятое Тело 03:09
+04. Фрэнк Андервуд 02:55(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA15F01AA581C2CFEA6738477C44417F3C4E4468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411431   (427289) от 25.09.2020
 
 Public Enemy - What You Gonna Do When The Grid Goes Down? (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -664,95 +751,6 @@ Plc - Новый (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:151EB9E8B41089FFBA004D5A811EE7FA26FCC082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414640   (383410) от 09.10.2020
-
-Рыночные Отношения - 2020 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Область ч.2 [02:35]
-02. Бездарь (feat. Loc-Dog) [03:48]
-03. Классика [03:33]
-04. Соковыжималка (feat. Pra(Killa'Gramm)) [03:33](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39ADE4F93A826C58ADD3B106D2A2E2B00032011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572353   (382439) от 09.11.2012
-
-Bob Marley & the Wailers - Legend (2012 (1984)) [FLAC 2.0 192/24 |WEB-DL]<Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_382439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is This Love (3:50)
-02. No Woman No Cry (Live) (7:08)
-03. Could You Be Loved (3:57)
-04. Three Little Birds (3:00)
-05. Buffalo Soldier (4:17)
-06. Get Up Stand Up (3:17)Жанр: ReggaeПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574981   (381316) от 07.09.2022
-
-Биг Берия Тейп, Dessar, ZombieFido - Red Alert (2022) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Биг Берия Тейп feat. ZombieFido - Буревестник
-02. Биг Берия Тейп feat. Горькие усы, Мутный, Dessar - Далёкое далёко
-03. Биг Берия Тейп - No pasaran
-04. ZombieFido feat. Биг Берия Тейп - 420(   Читать дальше...   )Жанр: RapПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D53E5BC8C96BDBC29C0A204BE97273435641AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

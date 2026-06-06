@@ -1,3 +1,58 @@
+###  Публикация: 1497542   (864945) от 22.09.2021
+
+Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay On The Line (4:20)
+02. Tonight Is The Night (5:02)
+03. Asi Como Asi (3:32)
+04. Little Maggie (3:56)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE3ECFD1B0C92A8A334898108CEC2B0DB9A91B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497473   (864877) от 22.09.2021
+
+Miko Vanilla - Vanilla (2021) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless LoveЖанр: DiscoПродолжительность: 01:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7889D9BE4AA6D79F642398662626857A736A77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108249   (864530) от 24.02.2017
 
 VA - Italo Disco Extended Versions Vol.7 (Italo Holiday) (2017) [MP3|320 Kbps] <Italo-Disco>
@@ -693,64 +748,6 @@ Bad Boys Blue - MP3 Play (2015) [MP3|320 Kbps] <Disco, EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85AB8E50783869D43944005AC0CA00E9DEA99405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501574   (835204) от 10.10.2021
-
-Humphrey Robertson - Essentials (2021) [MP3|320 Kbps] <Eurodance, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love in Your Eyes (Radio Version) (3:30)
-02. Don't Stop Loving Me (Radio Version) (3:51)
-03. Touch of Summer (Radio Version) (3:35)
-04. One Step Closer (Radio Remixed) (3:38)(   Читать дальше...   )Жанр: Eurodance, Euro-DiscoПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA6E288AC68B65789B4B300C1E71241CA914ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501656   (835189) от 10.10.2021
-
-Harmony Cats - Harmony Cats (1982) LP [MP3|320 Kbps] <Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bate Bate (3:10)
-02. A Terra Do Faz De Conta (Land Of Make Believe) (3:42)
-03. Eu Amo Amar Voce (3:24)
-04. Estrela Amiga (3:05)(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4005B1A9443E33F531C684F11F3D58162678BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

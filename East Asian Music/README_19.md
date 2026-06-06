@@ -1,3 +1,264 @@
+###  Публикация: 1433577   (154439) от 22.12.2020
+
+Passcode - Strive (2020) [MP3|320 Kbps] <Metalcore, Electrocore, Post Hardcore>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spark Ignition [00:03:38]
+02. Majestic [00:04:40]
+03. Shedding Tears [00:03:37]
+04. Seize Approaching Brand New Era [00:03:40](   Читать дальше...   )Жанр: Metalcore, Electrocore, Post HardcoreПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2B9E18432D21A80F3F399035ACFBC5312E5D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969143   (148798) от 26.12.2015
+
+Nozomu Wakai's Destinia - Requiem For A Scream (2014) (Japanese Edition) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Requiem for a Scream
+02.Sweet Vengeance
+03.End of Sorrow
+04.Ready for Rock(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A3A59AE986922A7122662F4DFD7846F6CEFB44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434246   (145918) от 27.12.2020
+
+Damian Hamada's Creatures - The Old Testament in Hell Chapter 1-2 (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal, Symphonic Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel of Darkness [00:06:58]
+02. Deepest Red [00:03:53]
+03. The New Moon Minuet [00:06:31]
+04. Death and Venus [00:05:00](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Symphonic MetalПродолжительность: 2 CD, 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5EA7B92F1A3365528314D7594D5DA44B37D932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 722209   (145539) от 27.12.2020
+
+Haruka Nakamura - 6 Albums (2007-2013) [OGG|~320 kbps]<Ambient, Acoustic, Electronic, Folktronica>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamp feat. Nujabes 06:40
+02. AURORA 03:31
+03. soar feat. Substantial 04:37
+04. days 01:53(   Читать дальше...   )Жанр: Modern Classic, AcousticПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA764556F3F059C348FF2B89B69E8AAC9EE7229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590364   (138938) от 18.12.2012
+
+Haruna Luna - 3 сингла (2012) [MP3|320 кб/с]<J-Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138938.jpg" />
+</div>
+
+
+###  Подробнее
+
+SinglesЖанр: J-PopПродолжительность: 00:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B21BCA24538F76B9E6F9B0DE2502B50BDB96D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591587   (135529) от 22.12.2012
+
+LAMA - 2 альбома, 3 сингла (2011-2012) [MP3|320 кб/с]<J-Pop, Electro>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135529.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-Pop, ElectroПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111B0DB70FB896EA94B1612C6DC89AE944DF0DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593559   (135408) от 23.12.2012
+
+Chamras Saewataporn - Green the World (2011) [MP3|320 кб/с]<New age, Instrumental, Relax>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135408.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:24) 01. Green The World
+(3:50) 02. A place in the heart
+(3:04) 03. The tree of Life new
+(3:35) 04. In the year 2012
+(3:53) 05. The Voice in the Jungle
+(3:15) 06. Secret of Paradise
+(3:08) 07. Forest Home and Sleepy Momo
+(3:48) 08. Thai Rice
+(3:48) 09. The Time Traveler
+(3:21) 10. First time I ever Saw this World(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE879427D2F93FD188A0724CFD462938FEA51F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682534   (131436) от 07.12.2023
+
+Manna - Chabako Trick (1979) [MP3|320 Kbps] <Electronic, City Pop, Disco, Funk, Synth-pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Magic Carnival (3:13)
+02. 黒船 (3:42)
+03. 椰子の木陰で (3:06)
+04. ほろほろ草子 (4:08)(   Читать дальше...   )Жанр: Electronic, City Pop, Disco, Funk, Synth-popПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544439D15301878A4FC32344CBC04DF8620D66DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685372   (126618) от 22.12.2023
+
+Luna Sea - Mother (1994) 2023, avex trax [FLAC|Lossless|WEB-DL|tracks] <Art rock, Progressive rock, Gothic rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LOVELESS [00:05:40]
+02. ROSIER [00:05:32]
+03. FACE TO FACE [00:04:46]
+04. CIVILIZE [00:03:25](   Читать дальше...   )Жанр: Art rock, Progressive rock, Gothic rock, Punk, Hard rock, Alternative rock, Heavy metal, Post punk, ClassicalПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1988A196D97302D676A75ADE354A4B3088DD44CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686323   (126617) от 22.12.2023
 
 Lovebites - Knockin' At Heaven's Gate - Part II (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
@@ -498,289 +759,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789432   (68319) от 04.04.2025
+###  Публикация: 352193   (74077) от 04.02.2012
 
-VA - Melon Top 100 K-Pop Singles Chart (22-03-2025) [MP3|320 Kbps] <K-Pop, Dance, Other, Rock, RnB, Asian>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68319.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. G-Dragon, Anderson .Paak - TOO BAD (00:02:34)
-002. ZO ZAZZ - Don`t you know(PROD.ROCOBERRY) (00:05:02)
-003. JENNIE - like JENNIE (00:02:04)
-004. G-Dragon, Taeyang, Daesung - HOME SWEET HOME (00:03:31)(   Читать дальше...   )Жанр: K-Pop, Dance, Other, Rock, RnB, AsianПродолжительность: 05:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB960E0FE7C0181B2AAE47BBEF1E17F97F63B57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799149   (66540) от 25.05.2025
-
-Galneryus - The Stars Will Light The Way (2024) Japanese Edition, Limited Edition [WavPack|Lossless|image + .cue] <Power Metal>
+A-Mei - 17 albums (1996-2011) Complete discography [FLAC|Lossless]<Chinese,Mandopop,C rock,R&B>
 
 >>East Asian Music
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_74077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Go Towards the Utopia
-02. The Reason We Fight
-03. Lost in the Darkness
-04. Finally, It Comes!(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:39
+01. 给我感觉
+ 02. 日出
+ 03. 给我感觉(unplugged)
+ 04. 给我感觉(弦乐版)1996-2011Жанр: Chinese,Mandopop,C rock,R&BПродолжительность: 00:18:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1714F28F60C40BB8CC7C614963060FC201F62C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802284   (66083) от 15.06.2025
-
-Sabbrabells - Sabbrabells Complete Box (2018) Japanese Edition, Box Set, 9XCD, Compilation, Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Sabbrabells (1983)
-02 Dog Fight Ep (1985)
-03 Sailing on the Revenge (1986)
-04 Live! (1986)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 07:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D680676158FB82EDE0605E78F45EE79BAA9D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805309   (65486) от 05.07.2025
-
-Isiliel - Moonbow Rebellion (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Moon [00:03:51]
-02. Sanguine Covenant [00:03:48]
-03. Vesperal Salvation [00:05:24]
-04. Umbral Exorcism [00:04:03](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCBDC4F547C0E9391BC95744F519C5E728469CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706688   (62539) от 18.03.2024
-
-Gacharic Spin - W (2024) [MP3|320 Kbps] <J-Rock, Alt. Rock, Electronic>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. レプリカ [00:04:03]
-02. The Come Up Chapter [00:02:52]
-03. カチカチ山 [00:04:24]
-04. rabbithole [00:03:52](   Читать дальше...   )Жанр: J-Rock, Alt. Rock, ElectronicПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E12CB2F9C31E6D68C5B1D02B8B240B33D9C9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721547   (57300) от 07.05.2024
-
-Blood Stain Child - 2 Albums (2024) [MP3|320 Kbps] <Modern Melodic Death Metal, Electronic>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. QUINTESSA [00:03:56]
-02. OMNIVERSE [00:03:58]
-03. Wild Horizon [00:04:13]
-04. Morning Star [00:03:53](   Читать дальше...   )Жанр: Modern Melodic Death Metal, ElectronicПродолжительность: 2 CD, 01:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526EB5AFDBEA9909F7CC958B199E709B90635E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562227   (54690) от 01.06.2024
-
-Prompts - Fracture (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Nu Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54690.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Age of Fracture
-2. Face Me
-3. Asphyxiate (feat. Ryo Kinoshita of Crystal Lake)
-4. Be My Cure, Be My Pain(   Читать дальше...   )Жанр: Progressive Metalcore, Nu MetalПродолжительность: 00:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCF0209D596558FD950D9623AA6D92FFC144CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768182   (32286) от 01.01.2025
-
-VA - Melon Top 100 (2024-11-30) [MP3|320 Kbps] <K-Pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G-DRAGON - HOME SWEET HOME (feat. TAEYANG & DAESUNG) (03:32)
-02. ROSÉBruno Mars - APT. (02:50)
-03. aespa - Whiplash (03:04)
-04. G-DRAGON - POWER (02:24)(   Читать дальше...   )Жанр: K-Pop, Dance, OtherПродолжительность: 05:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88977E755287ABC9F5CF1E50B4CCDDB4811FA73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792184   (14331) от 17.06.2025
-
-VA - Melon Top 100 K-Pop Singles Chart (11-04-2025) [MP3|320 Kbps] <K-Pop, Dance, Other, Rock, RnB>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G-DRAGONAnderson .Paak - TOO BAD (feat. Anderson .Paak).mp3
-02. ZO ZAZZ - Don`t you know(PROD.ROCOBERRY).mp3
-03. JENNIE - like JENNIE.mp3
-04. WOODZ - Drowning.mp3(   Читать дальше...   )Жанр: K-Pop, Dance, Other, Rock, RnBПродолжительность: 05:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9914ABCE2F3A49C4528427085602F8CBBA921976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764119   (14319) от 17.06.2025
-
-momoland - Discography (2016-2021) [FLAC 16/44.1, 24/96|Lossless|WEB-DL|tracks] <K-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14319.jpg" />
-</div>
-
-
-###  Подробнее
-
-MOMOLAND - женская K-Pop группа компании MLD Entertainment. Группа была сформирована через шоу Finding Momoland и дебютировала 10 ноября 2016 года с первым мини-альбомом Welcome to Momoland. В 2017 в группу были добавлены две новые участницы: Дэйзи 28 марта и Тэха 9 апреля.Альбомы в раздаче:
-(2016) - momoland - Welcome to MOMOLAND
-(2018) - momoland - Fun to The World
-(2019) - momoland - Show Me(   Читать дальше...   )Жанр: K-PopПродолжительность: 02:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F683F0A1B0BD5B680C624ACF9510894B5A2EE10F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

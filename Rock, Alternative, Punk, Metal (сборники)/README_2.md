@@ -1,3 +1,148 @@
+###  Публикация: 1437542   (1041688) от 06.01.2021
+
+Mick Jagger - Angel in My Heart (2021) 2CD, Compilation [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wired All Night
+02. Lucky Day
+03. Out of Focus
+04. God Gave Me Everything(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6368F2E1049B2377E7D20A5F751E571503AC6860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437887   (1041448) от 07.01.2021
+
+Ian Gillan - Unchain Your Brain (2021) 2CD, Compilation  [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain Your Brain
+02. You Make Me Feel So Good
+03. Don't Stop
+04. Born Again(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7EEEB04A004E1FEA8AE8237D61C09DB254CC49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610851   (1041383) от 11.02.2023
+
+Dorothy - Compilation (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Beautiful Life
+02. Down to the Bottom
+03. Flawless
+04. Get Up(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594995FD73F7861F34D2C312F632B6B2FF50C7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612255   (1040306) от 15.02.2023
+
+Omega - Movin' World (2023) 2CD Compilation  [MP3|320 Kbps] <Rock, Psychedelic, Space Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bird [04:21]
+02. Silver Rain [05:12]
+03. Don't Keep Me Waitin' [07:26]
+04. The Hall Of Floaters In The Sky [02:51](   Читать дальше...   )Жанр: Rock, Psychedelic, Space RockПродолжительность: 02:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDB54EDC7E06225F5B7F47EE0F981F44A728622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439079   (1040286) от 11.01.2021
+
+VA - Private Partners: Rock Blues Lyric Collection (2021) [MP3|320 Kbps] <Rock Blues, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящие ветераны и винтажные мастера рок блюза в очередной раз порадуют своих фанов выпуском полноформатного коллекционного сборника "Private Partners". Выделять какие-то треки в особенности нет смысла – если бы не паузы между песнями, то можно было бы воспринять все как один большой трек, с лирическими перекатами по настроению, но с одним и тем же чувством (   Читать дальше...   )001. Eric Brooke - Movin' Uptown
+002. Don Griffin - Back To Chicago
+003. Dirty Dave Osti - Rebel Run
+004. Robert Randolph - Simple Man(   Читать дальше...   )Жанр: Rock Blues, BluesПродолжительность: 09:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACFFFE446F686A330A4A97A452D1CACD601F078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440828   (1038252) от 19.01.2021
 
 VA - XV Anniversary Compilation (2021) [MP3|320 Kbps] <Doom Metal, Drone, Post-Metal>
@@ -600,148 +745,6 @@ VA - Rockstar: The True Feeling (2021) [MP3|320 Kbps] <Rock, Hard Rock, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:264DFE6BD601B238FF41F2ABDAD8617192A34C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451634   (1028215) от 03.03.2021
-
-Geordie - Keep on Rockin' (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama's Gonna Take You Home
-02. Little Boy
-03. Going to the City
-04. Look at Me(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8ADDAFAAEB307E5CC3BA6546142245DB60167F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451711   (1028174) от 03.03.2021
-
-Queen - We Will Rock You! (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc one:
-01. Death On Two Legs (Dedicated To...)
-02. Killer Queen
-03. We Will Rock You(   Читать дальше...   )Жанр: RockПродолжительность: 02:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A0C60E629CD9844963BD1767777304A3BE7EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452905   (1027383) от 08.03.2021
-
-Axxis - Tales Of Glory Island, 2CD, Compilation (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal, Power MetalПродолжительность: 02:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AD7FE546015BF63DD3C214FD350CB121A9014F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454614   (1026218) от 15.03.2021
-
-VA - Classic Rock Legends (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queen - We Will Rock You - Remastered (2:02)
-002. The Kinks - All Day and All of the Night (2:23)
-003. The Doors - Break on Through (To the Other Side) (2:27)
-004. Bob Dylan - Knockin' On Heaven's Door (2:29)(   Читать дальше...   )Жанр: RockПродолжительность: 07:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E287BCB5FD0EE975771C3C9641343C1B7FC3DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455081   (1025750) от 18.03.2021
-
-VA - Rock Music 2021 [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Stairway to Heaven - Remaster (8:02)
-02. Stonerhead - The Wizard In The Town (7:39)
-03. The Doors - Riders on the Storm (7:14)
-04. Guns N' Roses - Paradise City (6:45)(   Читать дальше...   )Жанр: RockПродолжительность: 06:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F944A36BAB03F1822F53B404A6BD91309140E4B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

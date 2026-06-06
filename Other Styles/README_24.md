@@ -1,3 +1,349 @@
+###  Публикация: 988372   (918527) от 21.02.2016
+
+Santiano - 3 альбома (2012 - 2015) [MP3|320 кб/с] <Pop, Rock, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lieder Der Freiheit  03:40
+02. Rolling The Woodpile  03:13
+03. Die Letzte Fahrt  04:13
+04. Johnny Boy  03:32(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A53BF39D93B679BB4456F805C1DF3F6B992C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 100669   (918210) от 14.03.2020
+
+Сборники "Звуки природы" -  музыка для релаксации [FLAC|Lossless|image + .cue] <Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2001 - Звуки джунглей
+2001 - Волшебство Ниагарского водопадаЖанр: Музыка для релаксацииПродолжительность: 01:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C86D9CA7576AAFA637EF285ABE43CAFD889FBD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757315   (917522) от 16.02.2014
+
+ДиДюЛя - Однажды cегодня (2013) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мечта (5:11)
+02. Охота на волка (4:03)
+03. Колыбельная (4:21)
+04. Ханг (4:12)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACD54066B72BF9DBB00C7A4152A461507E12E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096356   (917510) от 25.01.2017
+
+James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue] <Bluegrass, Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917510.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blue In The Blue Ridge
+2. Bill Cheatum
+3. I Just Think I'll Go Away
+4. Down At Mylow's House(   Читать дальше...   )Жанр: Bluegrass, GuitarПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99221641EEC0942DD8E203231D67F431A85AA17C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367415   (917235) от 15.03.2020
+
+Myrkur - Folkesange (2020) [MP3|320 Kbps] <Dark Folk, Female Vocal>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ella [00:03:54]
+02 - Fager som en Ros [00:02:50]
+03 - Leaves of Yggdrasil [00:04:00]
+04 - Ramund [00:03:28](   Читать дальше...   )Жанр: Dark Folk, Female VocalПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F60A21D9F4FE9C567E1C0278BDDAFC0D05098B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423792   (916968) от 15.03.2020
+
+Jonn Serrie - Sunday Morning (2005) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jonn Serrie - композитор в жанрах космической музыки, эмбиент, нью-эйдж. Он записал не менее восемнадцати альбомов и работал над различными проектами для Lucasfilm, корпорации IMAX, NASA, военно-морских сил США, планетария Хейдена, Экспо Севилья и CNN.01. Sunday Morning (11:26)
+02. Maiden Voyage (11:38)
+03. The Enlightened Path (7:18)
+04. Breath Of The Valley (7:57)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057F671B468D957B7FD32E13745E421A49E08900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 32966   (916820) от 15.03.2020
+
+Space – Just Blue (1978) [FLAC|Lossless|tracks] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Blue (4:30)
+02. Final Signal (4:21)
+03. Secret Dreams (4:29)
+04. Symphony (4:57)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC9D486D29CBB2A5FA87F9B41A3477BCC288DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289765   (916745) от 01.02.2011
+
+David Sun Productions - Звуки океана для ароматерапии (2005) [MP3|320 kbps]<Звуки природы/релакс>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.David Sun Productions - Zvuki okeana
+
+Описание:Жанр: Звуки природы/релаксПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B8E563891433AEEFD29E302DB982E87E5782E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497660   (916690) от 15.03.2020
+
+Conjure One - 12 albums (2002-2011) [FLAC|Lossless] <Chillout, Ambient, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Ice (Marcus Schossow Extended Remix) (09:24)
+02. Like Ice (Album Edit) (04:37)
+03. Like Ice (Rampue Remix) (06:59)
+04. Like Ice (Chris B Remix) (06:24)(   Читать дальше...   )Жанр: Chillout, Ambient, New Age, DowntempoПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10AE6F67B54B82AE03ED6166AB1932C79C19B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989837   (915802) от 23.02.2016
+
+Damien Dubois - Evasion (2015) [MP3|320 кб/с] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le livre des secrets
+02. Envol
+03. Jardin de cristal
+04. Chemin d'etoiles(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFBD9B19B1C9435F8F0ABFF6F88F2F5B579E0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989752   (915701) от 23.02.2016
+
+Isgaard - The Early Days (2015) [MP3|320 кб/с] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My World
+02. Little Girl
+03. Save Me
+04. Anima (Remix)(   Читать дальше...   )Жанр: New age, Classical CrossoverПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A31E5D2FF57DA08CFF6C1A42EEFC617B47DC3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366744   (915692) от 16.03.2020
+
+Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915692.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:57| 01. Intro
+|01:37| 02. Helicopter
+|01:05| 03. Tribunal
+|02:05| 04. Serbian Theme(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA263DEFE40A10B02424BE584213CDD35E06BE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366743   (915664) от 16.03.2020
 
 Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -396,354 +742,6 @@ Amaste - Spirit of Tibet (2015) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A89E0B165CD10BB5AB11804573AB418F5B5FE7B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097531   (912054) от 28.01.2017
-
-Jamie Dupuis - Tonalism (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Lost Forest  (03:49) 
-02|  Breathe  (03:38) 
-03|  Street Buskin (Introduction)  (01:23) 
-04|  Street Buskin  (02:59) (   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70690505EF0A1A79E682F6DD28E7A219D1415A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990516   (912004) от 25.02.2016
-
-Guy Sweens - Pathways (2016) [MP3|320 кб/с] <New Age, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pathway to the Past
-02. Celebrating Ancient Times
-03. Dance of the Spirits
-04. Festival at the Castle(   Читать дальше...   )Жанр: New Age, EthnicПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6203A7B3BC044442D6B7002EE2F6E84D83763BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990387   (911758) от 25.02.2016
-
-Medwyn Goodall - The Portal (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Portal, Pt. 1
-02. Orbit
-03. A New Paradigm
-04. The Portal, Pt. 2(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1622B13A3207E4DC1298311357E5284ADE86509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990130   (911723) от 25.02.2016
-
-КичКок - Три Товарища (2009) 3CD [FLAC|Lossless|tracks + .cue] <Mash up>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911723.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Один Dj - хорошо, а три - еще лучше!» - решили 3 давних друга, Георгий Петрушин, Дмитрий Ашман и Сергей Минаев, 24 апреля 2009 встав за диджейский пульт. Результатом работы этого трио стал диск с любимой музыкой в стиле mash up. Похоже, именно любовь к хорошей музыке объединяет 3 товарищей: Георгия Петрушина – модного клубного промоутера, организатора самых ярких (   Читать дальше...   )01. Elvis Presley vs Junkie XL - A Little Less Conversation (2:18)
-02. Goran Bregovic - Mesecina (1:00)
-03. Manu Chao - Me Gustas Tu (3:02)
-04. Madness - One Step Beyond (1:48)(   Читать дальше...   )Жанр: Mash upПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C896DA66C42CA7505DD3701D0823AD41B0822C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990796   (909762) от 26.02.2016
-
-Paul Sills - Devas 2 - Ocean Spirits (2016) [MP3|320 кб/с] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Necksa Rising
-02. Calming Tides
-03. Drifting On Waves
-04. Etheric Weavers(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E11AA97565918A6F86927FED93DA2B133D25EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368087   (909160) от 20.03.2020
-
-Gordon Giltrap - Pofacetilly (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cathy's Waltz
-02. Pofacetilly
-03. I Heard You Smiling
-04. Winter Magic(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0689E485DBB663440A13621132DC035AE56B6784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368005   (909135) от 20.03.2020
-
-Александр Рябцев - Сквозь вечность (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Между небом и землёй (1:42)
-02. Первое свидание (3:07)
-03. Сон во сне (3:38)
-04. Контакт (4:25)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0F44E57FEB4A2EE1A2A8C68910889870A2369C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368006   (909122) от 20.03.2020
-
-Александр Рябцев - Между прошлым и будущим (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Между прошлым и будущим (4:45)
-02. Листопад (3:59)
-03. Скажи своё имя (4:00)
-04. Полнолуние (5:55)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BC1E3DFCB01036BE79E84D07027C841E9419B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367998   (909095) от 20.03.2020
-
-Александр Рябцев - Дайте мне крылья (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дайте мне крылья (5:04)
-02. Пробуждение (4:02)
-03. В вечность (3:34)
-04. Ледяной замок (4:27)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9595C13C65D03205E6BAE235B266986D8A26630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368008   (909074) от 20.03.2020
-
-Александр Рябцев - Ностальгия (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Расставание (4:31)
-02. На одном дыхании (3:45)
-03. Осень (3:38)
-04. Влюблённая во флейту (4:49)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42498AC32BB5B0ABD0C270A9E0B544E2DD6A5300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098310   (908944) от 30.01.2017
-
-Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [00:07:37]
-02. A Safe Place [00:06:00]
-03. Sensing the Emotion [00:03:16]
-04. Working With Energy [00:03:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EBF3A647C2AA48DABA4506140D5EFE35E6669F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098324   (908937) от 30.01.2017
-
-Asha - Thunderheart (2016) [MP3|320 Kbps] <New Age, Contemporary Christian>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacramental Song
-02. Will You Marry Me
-03. Where Are You
-04. Thunderheart(   Читать дальше...   )Жанр: New Age, Contemporary ChristianПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A7E71DBF46E90FBE9A8689CD4829CADF2852E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

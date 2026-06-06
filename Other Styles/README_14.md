@@ -1,3 +1,357 @@
+###  Публикация: 744272   (972156) от 11.01.2014
+
+David Arkenstone - Gentle Rain (2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:03)
+02. Sunshower (9:57)
+03. Sparkling Pools (6:25)
+04. Water of Life (8:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15582BCCF7B24D355FD766CC093E8179640EE89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975690   (972107) от 15.01.2016
+
+Douglas Blue Feather - Rhythms of the Night (2015) [MP3|320 кб/с] <New Age, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Ride
+02. Eagle And Condor
+03. Cool Breeze
+04. Rhythms Of The Night(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1682CB5755BD5297A2A46752C03223F29D7B56C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356560   (971725) от 05.02.2020
+
+Алексей Глухов (Лёша Закон) в проекте PODZA... PERHOTЬ - Van Huevel's Destructive Forceps (Zymotic Productions Ultra) (2020) [MP3|320 Kbps] <Noise, Goregrind, Grindcore>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Вступление в к.. (intro)
+02-Встреча с музыкой
+03-Лопаются бельма
+04-Жильцы колумбариев(   Читать дальше...   )Жанр: Noise, Goregrind, GrindcoreПродолжительность: 00:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6E4E75B6DB7BA8F0AB8B2F796647D7636585CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617081   (971264) от 13.02.2013
+
+Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971264.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:46) 1. Infinity 
+(7:15) 2. Rising Above It All
+(8:44) 3. Wings To Guide Me 
+(6:48) 4. Rain Walking
+(6:12) 5. Presence
+(6:12) 6. Closer To The Light
+(9:02) 7. Beyond The CloudsЖанр: New ageПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1645612714832C143D1B687C5EEABD7EFC46D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616974   (971187) от 13.02.2013
+
+The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971187.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:39) 1. Sa Na Du
+(6:56) 2. Waka Zia
+(6:26) 3. Donde Djembeh
+(4:26) 4. Umna Sa
+(4:46) 5. Na No Mi Ne
+(5:46) 6. Adjah Bihem
+(5:04) 7. Nouri SamahЖанр: New age, Instrumental, RelaxПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517AA0BD7BCF379130E5DEDB194E8DEA3B78F4EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975823   (970810) от 16.01.2016
+
+Enigmatic Obsession - Secrets Of Seduction (2005) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening My Eyes (feat. Luisa Fernandez)
+ 02. In The Recent Past (feat. Luisa Fernandez)
+ 03. The Delta Of The Red River
+ 04. Northern Horizon (feat. Helene Horlyck)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852E17BAA6FC3127B90764A5012EC5DF3216DD60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975770   (970807) от 16.01.2016
+
+Jens Gad (ex.-Enigma) - Le Spa Sonique (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (1:28)
+ 02. El Momento (6:02)
+ 03. Navajo (4:43)
+ 04. The Orbiting Suns (4:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBA6E7A85538AB46C31A8F34467479428CB205F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976103   (970803) от 16.01.2016
+
+Ennio Morricone - Correspondence (La Corrispondenza) Original Soundtrack (2016) [MP3|320 кб/с] <Soundtracks, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Casa Sul Lago
+02. Una Stella, Miliardi Di Stelle
+03. Improvvisazione In Sol
+04. Stuntgirl(   Читать дальше...   )Жанр: Soundtracks, InstrumentalПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3818881BBC80C75B2B45A14C9497DA05FCF151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357245   (970732) от 06.02.2020
+
+Tom Kenyon - Songs of Magdalen (2005) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Meeting at the Well (4:17)
+02. I and My Beloved (8:36)
+03. Sar'h's Song (3:27)
+04. The Skies over Jerusalem (2:54)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D2ACF8BC2BD56579349B59B37512F5F92FF300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357327   (970644) от 06.02.2020
+
+Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Old Oak Wood
+02. Jade
+03. I Love The Rain
+04. Cherry Blossom Street(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357704   (970632) от 06.02.2020
+
+Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of His Eyes the Peace V (7:05)
+02. After of Your Life (6:34)
+03. Mea Maxima Culpa (6:25)
+04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9D49C8E8CA5497C891F6CA87CCDB7D3F423CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974313   (970582) от 16.01.2016
+
+Христина Соловій - Жива вода (2015) [FLAC|Lossless|image+.cue] <Pop-Folk, Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Несе Галя воду (3:57)
+02. Янчик (2:41)
+03. Тримай (3:28)
+04. Синя пісня (3:18)(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1720B062A974FF1FF948667554E119641A194BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975966   (970471) от 16.01.2016
 
 VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [MP3|320 кб/с] <Soundtracks>
@@ -397,360 +751,6 @@ VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD99B804748B20E87BCBE24AE7DFA675A01A99CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618767   (966675) от 17.02.2013
-
-VA - Bombshell: The New Marilyn Musical From SMASH (Deluxe Edition) (2013) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966675.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Katharine McPhee & Megan Hilty - Let Me Be Your Star (Extended Intro) (3:43)
- 2. Bernadette Peters With Sophia Caruso & Ensemble - At Your Feet (2:44)
- 3. Megan Hilty, Katharine McPhee & Ensemble - Smash! (2:15)
- 4. Katharine McPhee - Never Give All The Heart (3:11)
- 5. Katharine McPhee & Ensemble - The 20th Century Fox Mambo (2:42)
- 6. Magan Hilty & Ensemble - The National Pasttime (2:33)
- 7. Megan Hilty, Will Chase & Ensemble - History Is Made At Night (4:20)
- 8. Megan Hilty With Debra Messing, Nick Jonas, Christian Borle, Will Chase, Jaime Cepero, Phillip Spaeth & Ensemble - I Never Met A Wolf Who Didn't Love To Howl (3:45)
- 9. Megan Hilty & Will Chase - Mr. & Mrs. Smith (3:34)
- 10. Christian Borle & Ensemble - Don't Say Yes Until I Finish Talking (2:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32A332D042DC660E78ADC2F2D4AA5E6A5A1EE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977175   (966478) от 20.01.2016
-
-Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-set 3CD [MP3|320 кб/с] <Contemporary Instrumental, Instrumental Pop, Neo-Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966478.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ballade Pour Adeline  (2:34)
-02. Candle In The Wind  (5:10)
-03. One Moment In Time  (4:48)(   Читать дальше...   )Жанр: Contemporary Instrumental, Instrumental Pop, Neo-ClassicalПродолжительность: 03:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C787D02E315DF00FB4BABF85B28198EA89B060DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358697   (966204) от 10.02.2020
-
-Randy Newman - Marriage Story / Брачная история (Original Music from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966204.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:26| 01. What I Love About Nicole
-|03:43| 02. What I Love About Charlie
-|01:41| 03. Last Critique
-|01:20| 04. Procession to the Trailer(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364C92F40D8B6A89BBBBEEA8FD213160383DB1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358696   (966202) от 10.02.2020
-
-Randy Newman - Marriage Story / Брачная история (Original Music from the Netflix Film) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966202.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:26| 01. What I Love About Nicole
-|03:43| 02. What I Love About Charlie
-|01:41| 03. Last Critique
-|01:20| 04. Procession to the Trailer(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275D7205F9C8CCEFC3128F2ED08B40B7474957C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358539   (966195) от 10.02.2020
-
-Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are So Beautiful
-02. Right Here Waiting
-03. On The Wings Of Love
-04. The Rose(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF5ABC8852F1027E7DED07E2B39F6BFBA14CA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620138   (966182) от 17.02.2013
-
-V.A. - We Are The World - USA For Africa (1985) [FLAC (tracks+cue)|Lossless]<Pop, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. USA For Africa - We Are The World
-02. Steve Perry - If Only For The Moment Girl
-03. The Pointer Sisters - Just A Little Closer
-04. Bruce Springsteen &The E-Street Band - Trapped(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358947   (966086) от 10.02.2020
-
-VA - 100 Greatest Country The Best Hits from Nashville And Beyond (2020) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966086.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dolly Parton - To Know Him Is to Love Him
-002. Zac Brown Band - Chicken Fried
-003. Willie Nelson - Whiskey River
-004. Blake Shelton - God Gave Me You(   Читать дальше...   )Жанр: CountryПродолжительность: 05:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D63264EAA50E44AD7360D81C4E6E888856BAEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358717   (965962) от 10.02.2020
-
-VA - Death Stranding (Songs from the Video Game) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965962.jpg" />
-</div>
-
-
-###  Подробнее
-
-|06:13| 01. Low Roar - Don't Be So Serious
-|02:50| 02. Low Roar - Bones
-|04:48| 03. Low Roar - Easy Way Out
-|02:03| 04. Low Roar - Poznan(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224D1D552E878545B66483111EF879C3CE0FC07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977539   (965684) от 21.01.2016
-
-VA - Country Hitmix (2000) Mix [FLAC|Lossless|image + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mix 1 - 4:59
-1.1	United Cowboys - Let's Go Nashville
-1.2	Gordon Lange & Kactus - Lone Star State Of Mine
-1.3	Willie Nelson - On The Road Again(   Читать дальше...   )Жанр: CountryПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8607AF4701B92BECEA5104DC238F00A16DFD376A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977738   (965539) от 21.01.2016
-
-Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (02:00)
-02. Tsunami (02:37)
-03. Aftermath (02:41)
-04. Wright Patterson (01:16)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1B2DD5BC0045A0CF3EA849B6516CF96FF663E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359361   (964992) от 11.02.2020
-
-Грязный Эндрю - Матерные частушки (2019) [MP3|320 Kbps] <Частушки>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Матерные частушки, часть1
-2. Матерные частушки, часть2
-3. Матерные частушки, часть3
-4. Матерные частушки, часть4(   Читать дальше...   )Жанр: ЧастушкиПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB78E5DF6025CE9068DF8650E16D7228B365E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978160   (964709) от 22.01.2016
-
-Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine in the Rain
-02. The Road Before Us
-03. Daybreak
-04. As the River Flows(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
 ```
 
 https://mybot314.ru/tekegram_catalog/

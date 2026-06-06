@@ -1,3 +1,90 @@
+###  Публикация: 1827575   (187865) от 22.10.2025
+
+VA - NRJ Music Awards 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Gaga - Abracadabra 04:29
+02. Gims - Ninao 02:52
+03. David Guetta, Hypaton, Bonnie Tyler - Together 02:36
+04. Charlotte Cardin - Feel Good 02:42(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08C666EACC44F0D4F84437EFE300F6B8E7D7A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590946   (187799) от 16.11.2022
+
+Bee Gees - Number Ones (2004) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massachusetts
+02. World
+03. Words
+04. I've Got A Message To You(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29287C17711B4486467EA2455B5C49B81E57A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591386   (186793) от 19.11.2022
+
+Michael Jackson - Thriller 40 (1982) 2022, Epic/Legacy [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin' (6:03)
+02. Baby Be Mine (4:20)
+03. The Girl Is Mine (3:42)
+04. Thriller (5:58)(   Читать дальше...   )Жанр: PopПродолжительность: 02:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997957B30EEBC900F244824D0D3704C1009B3EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591609   (185214) от 20.11.2022
 
 Various - Greatest Hits Of The 90's (2004) 8 CD Box [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Reggae, Pop>
@@ -657,93 +744,6 @@ David A. Stewart Featuring Candy Dulfer - Lily Was Here (1989) [OGG Vorbis|480 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66C0E19543B78F471427F70F663B70438E92D6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671964   (170932) от 26.10.2023
-
-VA - Bravo The Hits 2023 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170932.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Miley Cyrus - Flowers (3:20)
-02. Udo Lindenberg & Apache 207 - Komet (2:47)
-03. Metro Boomin, The Weeknd & 21 Savage - Creepin' (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBB71A1405FBE948736CD68C248311F90820723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672084   (170385) от 27.10.2023
-
-VA - A'dam After Disco (2023) [MP3|320 Kbps] <Funky, Nu Disco, Indie Dance, Soulful>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazibiza & House Of Prayers - One Night In The Disco (Original Mix)
-02. Mike Newman - Say I Love You (Original Mix)
-03. House Of Prayers & Crazibiza - Double Disco (Radio Mix)
-04. Ryan Fz & Mike Newman & Crazibiza - So Much Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Nu Disco, Indie Dance, SoulfulПродолжительность: 02:53:33 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFDC7EBE3A0B703DE32DCED614A051F193D8D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671989   (170375) от 27.10.2023
-
-DJ Shadow - Action Adventure (2023) [MP3|320 Kbps] <Hip-Hop/Rap>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ozone Scraper
-02. All My
-03. Time and Space
-04. Craig, Ingels, & Wrightson(   Читать дальше...   )Жанр: Hip-Hop/RapПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6283FE242B1D99912BF04769F2808AA3D8104E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

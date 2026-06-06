@@ -1,3 +1,32 @@
+###  Публикация: 1108539   (862579) от 25.02.2017
+
+Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashrouk
+02. Darkness
+03. Ethnika
+04. I Love You (Dimitra)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897CA1392BA1DDFFB1FA62BBCE94260106425DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109928   (855566) от 01.03.2017
 
 Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yoga, Mantras>
@@ -715,35 +744,6 @@ Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9ED2A7BDA9B3D2DD98A4939F0EC40E764DEBF49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007836   (814834) от 18.04.2016
-
-Максим Фадеев - Oil plant (2016) [MP3|320 кб/с] <Chillout, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814834.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. #1 11:21
-2. #2 04:09
-3. #3 07:28
-4. #4 03:12(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE02EB91B8CAB9809CF0DF0876AD913888B08E82
 ```
 
 https://mybot314.ru/tekegram_catalog/

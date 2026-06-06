@@ -1,3 +1,38 @@
+###  Публикация: 527460   (574739) от 27.07.2012
+
+Teach In - The Best of the Best (2012) [MP3|320 кб/с]<Disco, Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  In The Summernight (2:33)
+02.  Ding-A-Dong (2:26)
+03.  Russian Melody (2:00)
+04.  I`m Alone (2:59)
+05.  Fly Away (3:08)
+06.  Let Me In (3:17)
+07.  Are You Ready Now (3:58)
+08.  The Circus Show (3:23)
+09.  Dear John (3:16)
+10.  Doll (2:39)(   Читать дальше...   )Жанр: Disco, Pop, Pop RockПродолжительность: 01:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9944DCE74F50CAFD069B543626B4667F13FCDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151098   (574341) от 18.07.2017
 
 John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
@@ -751,35 +786,6 @@ Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D40547345E0327E296443516AB1C011AF718D292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235111   (564072) от 09.07.2018
-
-VA - Acoustic Love Songs (2018) [MP3|320 Kbps] <Pop, Folk, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabrielle Aplin - The Power of Love
-02. Tyler Hilton - Missing You (Acoustic Version)
-03. America - I Need You
-04. Orleans - Dance with Me(   Читать дальше...   )Жанр: Pop, Folk, Pop RockПродолжительность: 01:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FA8E110E66CCA9EB1E5717AD9B42784618C580
 ```
 
 https://mybot314.ru/tekegram_catalog/

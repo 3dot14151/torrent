@@ -1,3 +1,145 @@
+###  Публикация: 1451634   (1028215) от 03.03.2021
+
+Geordie - Keep on Rockin' (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama's Gonna Take You Home
+02. Little Boy
+03. Going to the City
+04. Look at Me(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8ADDAFAAEB307E5CC3BA6546142245DB60167F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451711   (1028174) от 03.03.2021
+
+Queen - We Will Rock You! (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc one:
+01. Death On Two Legs (Dedicated To...)
+02. Killer Queen
+03. We Will Rock You(   Читать дальше...   )Жанр: RockПродолжительность: 02:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A0C60E629CD9844963BD1767777304A3BE7EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452905   (1027383) от 08.03.2021
+
+Axxis - Tales Of Glory Island, 2CD, Compilation (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy Metal, Power MetalПродолжительность: 02:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26AD7FE546015BF63DD3C214FD350CB121A9014F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454614   (1026218) от 15.03.2021
+
+VA - Classic Rock Legends (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Queen - We Will Rock You - Remastered (2:02)
+002. The Kinks - All Day and All of the Night (2:23)
+003. The Doors - Break on Through (To the Other Side) (2:27)
+004. Bob Dylan - Knockin' On Heaven's Door (2:29)(   Читать дальше...   )Жанр: RockПродолжительность: 07:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E287BCB5FD0EE975771C3C9641343C1B7FC3DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455081   (1025750) от 18.03.2021
+
+VA - Rock Music 2021 [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Led Zeppelin - Stairway to Heaven - Remaster (8:02)
+02. Stonerhead - The Wizard In The Town (7:39)
+03. The Doors - Riders on the Storm (7:14)
+04. Guns N' Roses - Paradise City (6:45)(   Читать дальше...   )Жанр: RockПродолжительность: 06:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F944A36BAB03F1822F53B404A6BD91309140E4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 186634   (1025344) от 20.03.2021
 
 Manowar - Best Ballads (1990,1998) [MP3|320 kbps]<Hard Rock>
@@ -600,151 +742,6 @@ VA - The Classics Rock 'n' Roll (2021) [MP3|320 Kbps] <Rock & Roll, Rock Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5BBF644260DAFB929F17F431DBCB52376D3AF5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472760   (1013993) от 27.05.2021
-
-VA - Musical Critic: Сборники паблика Musical Critic (2010 - 2013) [MP3|192 - 320 Kbps] <Rock, Alternative, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Musical Critic - Vol. 1 (2010)
-
-01. Rehab - Welcome Home.mp3
-02. Gemini Syndrome - Sindrome.mp3(   Читать дальше...   )Жанр: rock, alternative, metalПродолжительность: 33:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FEA66910CBF0689C4976B56D8F3D7B0705B85A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472862   (1013968) от 27.05.2021
-
-VA - 70's Rock Power (2021) [MP3|320 Kbps] <Rock, Classic-Rock, Hard-Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Purple - Strange Kind of Woman
-02. ZZ Top - It's Only Love
-03. Chicago - Dialogue (Pt. 1 & 2)
-04. The Doobie Brothers - Eyes of Silver(   Читать дальше...   )Жанр: Rock, Classic-Rock, Hard-Rock, BalladsПродолжительность: 02:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2612939D8E0AF267092BAE1E9638258E1A5D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473650   (1013473) от 30.05.2021
-
-VA - Soft Rock (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013473.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Guns N' Roses - Don't Cry (Original) (4:44)
-002. Mr. Mister - Broken Wings (5:43)
-003. ZZ Top - Rough Boy (4:49)
-004. Chicago - You're the Inspiration - 2009 Remaster (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 12:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDD0A252776DD7A1F3FE7F2A0A42E0094F5A80A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474476   (1012902) от 03.06.2021
-
-VA - The End: Apocalypse Sound (2021) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012902.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Quill - Keep On Moving
-002. Bloodmores - Too Close To The Sun
-003. Cro-Mags - Crofusion
-004. John Diva & The Rockets Of Love - Karmageddon(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 11:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00873DFD934B8498842522835C33D6F77DA8B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474873   (1012724) от 04.06.2021
-
-VA - Rock Matrix (2021) [MP3|320 Kbps] <Rock, Alternative, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012724.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. John Paul - The Sun's Gonna Shine Again
-002. Saint Agnes - Repent
-003. Cheap Trick - Quit Waking Me Up
-004. Insite - Disparos(   Читать дальше...   )Жанр: Rock, Alternative, Classic RockПродолжительность: 08:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F6122D7909F6A7025AA81B81881136F6B34FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 635849   (906004) от 28.03.2013
+
+The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9DAE6ECD687346EC8EFE11CBECA30B3BA8BF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635842   (905916) от 28.03.2013
+
+DJ Smash  DJ Miller feat. Anya - Angels (2013) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB725D84D2729B7AA892D18E227920759980AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 635839   (905871) от 28.03.2013
 
 Nicole Scherzinger - Boomerang (2013) [H.264/1080p] WEB-DLRip
@@ -635,58 +687,6 @@ Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF157448A30B02318E3265AFBFEE0D81FE01D4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370467   (896861) от 27.03.2020
-
-Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Welicoruss - Siberian Heathen HordeЖанр: Symphonic Black MetalПродолжительность: 00:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA077C0DA401DE771FFA7DB0074270AD8EF1BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370383   (896789) от 27.03.2020
-
-Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kreator - 666 - World DividedПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC16AC00C258849B28DD85D03CAEB3A7A2FE55F
 ```
 
 https://mybot314.ru/tekegram_catalog/

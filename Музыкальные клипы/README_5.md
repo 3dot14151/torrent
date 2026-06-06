@@ -1,3 +1,57 @@
+###  Публикация: 616190   (971675) от 12.02.2013
+
+Romantic Collection (Hits 1983-2001)TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, RockПродолжительность: 03:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECA9C545B6A3C14A8F51A3A1E03E809E12901FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616278   (971671) от 12.02.2013
+
+Сборник клипов / Romantic Collection (Hits 1980-2011)TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных клипов составлен из файлов полученных в разных источниках.
+Сборник видеоклипов разных лет в хорошем качестве.
+Romantic Collection (Hits 1980-2011) SDЖанр: variousПродолжительность: ~03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169CC4FD915F68677DEA1A102DF3CC2C3F9AE4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975752   (970575) от 16.01.2016
 
 VA - Зимний марафон № 219: Самые сливки Нового года (2015-2016) WEBRip [H.264/1080p-LQ]
@@ -658,64 +712,6 @@ ABBA – Number Ones (2006) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ADE29579240FC3DF27FD1AE1CDBD91E614308AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979471   (957286) от 28.01.2016
-
-R.E.M. – In View: The Best Of R.E.M. 1988-2003 (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Videos (With Optional Interview Footage):
-
-01.Bad Day - Film Director: Tim Hope (4:02)
-02.All The Way To Reno (You're Gonna Be A Star)  - Film Director: Michael Moore (4:24)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПеревод: ОтсутствуетПродолжительность: 02:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCB111CDBAA5AEE58A8CA4A8840AEAAE8C168AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979319   (957219) от 28.01.2016
-
-Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Que Mon Coeur Lache (6:44)
-02.	XXL (4:34)
-03.	L'Instant X (4:22)
-04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 01:07:98
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C6D3505519DDE03B90B82B56F33B30AF2C2B9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1326762   (383089) от 21.09.2019
+
+Fancy - Greatest Hits & More (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slice Me Nice (4:23)
+ 02. Chinese Eyes (4:29)
+ 03. Get Lost Tonight (4:30)
+ 04. L.A.D.Y. O. (4:21)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, 80sПродолжительность: 02:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E075875D3C9AF43A06564E1AACF5ADDB41557568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415407   (376685) от 12.10.2020
+
+VA - Italo Disco - The Lost Legends Vol. 29 (2019) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christina M. - Mirror Of My Soul [00:05:57]
+02. Maurizio Serafini - Oha...Oha... [00:04:05]
+03. Jimmy Mc Foy - I Can't Stay Without You [00:08:00]
+04. C.O.M.A. - Speed Up [00:03:41](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252643EAC943931029B6050231E5726A2C6779F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575784   (373104) от 11.09.2022
+
+Giorgio And Chris - Love’s In You, Love’s In Me (1978) Remaster, 2010, Gold Legion [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373104.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love’s In You, Love’s In Me 3:46
+2. Keep It Together 3:31
+3. I Can’t Wait 4:15
+4. Reprise 5:07(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560C4F39E808CCDBB93D7CFCF27D072A951CB1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416159   (369541) от 15.10.2020
 
 VA - Italo Disco - The Lost Legends Vol. 23 (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
@@ -664,93 +751,6 @@ Latin Lover - Casanova Action (2007 (1985-87)) [FLAC|Lossless]<Disco>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180704   (323617) от 07.11.2017
-
-Mark Ashley - I Will Not Forget You (2017) [FLAC|Lossless|tracks + .cue] <Euro-Disco, EuroPop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenny Come Home 4:00
-02. Please Believe Me 3:05
-03. Breath of an Angel 3:20
-04. I Will Not Forget You 3:10(   Читать дальше...   )Жанр: Euro-Disco, EuroPopПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72BBC1187533D21B36DF3E2AA53C2EC962FCED75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884733   (323178) от 07.11.2017
-
-Boney M. - Diamonds (2015) 40th Anniversary Edition [FLAC|Lossless]<Disco, Euro Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song Of Joy (Single Edit / Boney M. Feat. Liz Mitchell)
-02. Running Man (Frankie’s On The Run) (Boney M. Feat. Guyana)
-03. Sunny (John Munich & Thorsten Skringer Sax Radio Edit)
-04. Nightflight To Venus (Blank & Jones Remix)(   Читать дальше...   )Жанр: Disco, Euro DiscoПродолжительность: 03:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE0BB013A2567954A2AB7F142ADE2E226DA8E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259235   (321266) от 03.11.2018
-
-Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italove - Stockholm Is Calling (Extended Mix) (4:44)
-02. Italove - Follow Me To Mexico (Extended Mix) (4:43)
-03. Italove feat. TQ - Rhythm Of Love (Extended Mix) (7:11)
-04. Italove - Too Late To Cry (Matt Pop Club) (7:20)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9096F40ABB3AB8F5ABFF3C6CA3573F530CCE0D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

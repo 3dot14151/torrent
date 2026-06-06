@@ -1,3 +1,61 @@
+###  Публикация: 1253593   (381765) от 10.10.2018
+
+Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chakra #1 (07:35)
+02. Chakra #2 (06:30)
+03. Chakra #3 (05:28)
+04. Chakra #4 (05:27)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E2B4D0B6847C10BBCD3367004B2981A2C63447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253602   (381764) от 10.10.2018
+
+Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bringing Down The Silence (14:53)
+02. Strings of my Heart (06:56)
+03. Out of the Mist (03:29)
+04. Eyes in the Mirror (04:40)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8FF65AD57F7C8D71142FA8F8865F7FD7BB86B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253547   (381762) от 10.10.2018
 
 Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -684,68 +742,6 @@ Yoga Music Masters - Life Balance Meditations (2020) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6B440F2DC0BD7D5AB18DA645D3025F3EFE9C860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723207   (360247) от 16.11.2013
-
-Deuter - Dreamtime (2013) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Harlequin and Pierrot (6:45)
-02. - Shaman Flight (8:40)
-03. - Moving Seagrass (6:04)
-04. - Mon Coeur (6:38)(   Читать дальше...   )Жанр: Meditative, New AgeПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051E00912CE1A385ADA534B20DF45EF97D284E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577181   (360204) от 18.11.2012
-
-Chris Spheeris - Maya (2012) [FLAC|Lossless]<New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_360204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghali
-02. Lanilei
-03. Sadoor
-04. Narabi
-05. Kradeesh
-06. Soulana
-07. Bata
-08. ShastiЖанр: New Age, WorldПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

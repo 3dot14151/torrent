@@ -1,3 +1,61 @@
+###  Публикация: 1619361   (1032962) от 16.03.2023
+
+A-Reis - Prominences (2023) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Newretrowave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contemplation [00:05:00]
+02. Journey [00:04:23]
+03. Moonlight [00:03:21]
+04. Prominences [00:04:15](   Читать дальше...   )Жанр: Dreamwave, Newretrowave, RetrowaveПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E648B439F75923EC913CDB5CE680EC5013DF8CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620200   (1032356) от 19.03.2023
+
+Beborn Beton - Darkness Falls Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Monstrosity [00:06:16]
+02. Dancer In The Dark [00:05:22]
+03. Last Chance [00:04:29]
+04. Trockenfallen Lassen [00:05:30](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9864A0AEF5DFDABC85CB9BFFCFFC8865EF1ECF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447046   (1032073) от 12.02.2021
 
 VA - Synth Pop Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave, Electropop, 80s-10s>
@@ -685,64 +743,6 @@ Alien Skin - Cold War Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:371D3168050FB03E705920D32D93F6C40BE12B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461171   (1021963) от 09.04.2021
-
-Siamese Youth - Echoes of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Now (3:38)
-02. So Far from Home (3:33)
-03. Young Nights (3:50)
-04. Making Me High (3:38)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E471B7A54215B3EDD2BBA1B5670BB2083EADCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461175   (1021950) от 09.04.2021
-
-W O L F C L U B (Wolfclub) - Just Drive - Part 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Drive (feat. Summer Haze) (3:32)
-02. A Sea of Stars (feat. Dora Pereli) (3:19)
-03. Fever Dream (feat. Dora Pereli) (3:57)
-04. Shoulder Blades (4:32)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B825EEBD8445F877FE7103D07AAF5AABE8B22A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

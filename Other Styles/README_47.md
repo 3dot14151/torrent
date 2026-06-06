@@ -1,3 +1,350 @@
+###  Публикация: 1201949   (790970) от 27.01.2018
+
+Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories Of The Fall (3:37)
+ 02. Lady (4:11)
+ 03. Living A Dream (3:43)
+ 04. Falling Leaves (3:15)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD54449724C3E90FEC289DCEB8D7EAE430F5CAFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202049   (790969) от 27.01.2018
+
+Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Amends (04:01)
+02. The Sun Will Not Rise Tomorrow (03:10)
+03. You Spoke (02:25)
+04. The Scariest Thing (02:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD49EE35723E09C929A2B3973375E350C99249F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201908   (790939) от 27.01.2018
+
+Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790939.jpg" />
+</div>
+
+
+###  Подробнее
+
+[10:20] 01. Denali
+[08:06] 02. Shishaldin
+[08:35] 03. Malaspina
+[07:29] 04. Chugach(   Читать дальше...   )Жанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1F51C42B92237B46B287A42A5C20416149F020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510460   (790799) от 17.11.2021
+
+Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insight
+02. IntuitionЖанр: Ambient, Relax, HealingПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85338CCAB87ECB692ADB79B3C521DD000B2BAB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386829   (790672) от 03.06.2020
+
+Merle Haggard and The Strangers - I'm A Lonesome Fugitive (1967) Remastered 2001 [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мерл Хаггард – американский композитор и певец в стиле кантри. “I’m a Lonesome Fugitive” – его 3-й студийный альбом и первый, попавший в хит парад Billboard 200 (на 165-е место:).
+Одноименная песня “I’m a Lonesome Fugitive“, открывающая этот альбом – первая его песня, которая годом ранее, выпущенная в качестве сингла, возглавила кантри хит парад.01. I'm a Lonesome Fugitive (2:56)
+02. All of Me Belongs to You (2:40)
+03. House of Memories (2:47)
+04. Life in Prison (3:02)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108C08B93B0B9E6B50CD5A4068485E057AEF71CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387275   (790623) от 03.06.2020
+
+The First Nations - Heart and Soul of the Native Indians (2016) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Song
+02. How the West Was Lost
+03. Winter Ceremony
+04. The Counterclockwise Circle Dance(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15F26649748E3249A05AE181A4161EDAEAC4356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510787   (790342) от 18.11.2021
+
+Peter Ellis - The Best Of Lounge: New York Lounge (2001) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel (4:41)
+02. Boy Meets Girl (Blind Date Part 1) (5:27)
+03. Lots To Say (5:13)
+04. Confessions (4:56)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B01ECB090292C76B9D3E53E008B256B521C810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510784   (790341) от 18.11.2021
+
+Gary Ryan - The Best Of Lounge: L.A. Lounge (2001) [MP3|320 Kbps] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seemless (4:00)
+02. Jupiter Perris (5:02)
+03. Contraflow (4:41)
+04. The Beauty Of Then (3:49)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FA79FFFE9C5A22FA4BE92E0A51663B5C81E5CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510779   (790332) от 18.11.2021
+
+Variations & Gary Ryan - Romantic Guitar (2006) [MP3|320 Kbps] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albatross (2:58)
+02. Bilitis (3:22)
+03. Lara's Theme (2:22)
+04. Everything I Do (I Do It For You) (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9DE01F390AB7489B384010C95E56AFF5CED88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510683   (790119) от 18.11.2021
+
+Hilmar Orn Hilmarsson - Children Of Nature (1996) [FLAC|Lossless|image + .cue] <Electronic, Abstract, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ars Moriendi (5:54)
+Cello - Stefán Örn Arnason
+02. Charon (2:29)
+03. Sudurgata (3:26)(   Читать дальше...   )Жанр: Electronic, Abstract, AmbientПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3BFC58593617C91556C0E6732A1AFDB9CB0F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387645   (789983) от 04.06.2020
+
+Leonard Cohen - The Complete Columbia Albums Collection (2011) 17 CD [FLAC|Lossless|tracks + .cue] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леонард Коэн - канадский поэт, писатель, певец и автор песен. Леонард Коэн сначала прославился как поэт и писатель и только после, став известной личностью в литературных кругах, вышел на сцену в качестве исполнителя авторских песен. В конце 60-х певец покорил публику глубоким, бархатным и невыразимо печальным голосом. Коэн стал одним из основоположников фолк-музыки. (   Читать дальше...   )01. Lover, Lover, Lover (7:44)
+02. Bird on the Wire (6:09)
+03. Chelsea Hotel (3:32)
+04. Heart With No Companion (5:07)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C01A895FF1E54B993077CB0F4762412EF2E2FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275753   (789859) от 12.01.2019
+
+Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethereal Whisper - 3:19
+02. Liquid Notice - 3:21
+03. Didgerido-It - 2:38
+04. A Seagull Chant - 2:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8154AA91BDCF72D5937F9967FE23AF083BF7613C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511037   (789839) от 19.11.2021
 
 Wellküren - Das Mensch: Traditionals (2003) [APE|Lossless|image + .cue] <Volksmusik>
@@ -397,353 +744,6 @@ Llewellyn - Return to the Temple (Re-Recorded) (2018) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44FB78FF01243C28EA0196197DF902108144F3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203275   (788122) от 02.02.2018
-
-Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divorce Me C.O.D.
-2. Deep South
-3. Blue Smoke
-4. So Round, So Firm, So Fully Packe(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D976318DDDFA61E510B8C29CEB16D7753CD21534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511915   (787835) от 23.11.2021
-
-Variations & Gary Ryan - Romantic Guitar (2006) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albatross (2:58)
-02. Bilitis (3:22)
-03. Lara's Theme (2:22)
-04. Everything I Do (I Do It For You) (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A6A83BEDC0FED3E192BC0CD18269900F0547EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276736   (787614) от 17.01.2019
-
-VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Sunshine - Alala (Intro Chill Mix)
-02. Illegal Substances - Lost Civillization (Edit)
-03. Ufomatka - Sunrise On Venus
-04. The Same Old Souls - Strange Light Anomalies(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 03:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EF0BA8E934DB69AFD18A8263A2D394BFF6DA9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203643   (787600) от 03.02.2018
-
-Ray Conniff - Музыка хорошего настроения (2005) [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подмосковные вечера
-02. Кто-то скажет, что мы влюблены
-03. Освобожденная мелодия
-04. Странник в раю(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997C36A8B8094EA3441BC69822879D65A9DC704B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276700   (787534) от 17.01.2019
-
-Shinnobu - The Enigma VII (Star Seeds) (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787534.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Indigo (5:14)
-2.By Peace (5:05)
-3.Awakening Within Me (5:57)
-4.Like a Shadow (6:09)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BE3F23EAB563F0E3F3ED151989FC738A26795C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512385   (787113) от 25.11.2021
-
-Gary Ryan - Midnight Guitar (2007) [MP3|320 Kbps] <Instrumental, Guitar, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mallorca Op.202 (6:45)
-02. Recuerdos De La Alhambra (4:35)
-03. Lute Suite No. 4 in E Major (BWV 1006a) - Prelude (4:45)
-04. Lute Suite No. 4 in E Major (BWV 1006a) - Gavotte En Rondeau (2:54)(   Читать дальше...   )Жанр: Instrumental, Guitar, ClassicalПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832C108DCF06ACD25771BA2AF8D5F2385AB709AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512453   (787081) от 25.11.2021
-
-Deep Forest - Sweet Lullaby Remixes (1992/2007) 2 singles & Remixes [APE|Lossless|image + .cue, tracks + .cue] <World music, Ambient, House>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Forest первыми, среди тяготеющих к этносу групп, придали прежде пунктирным и хаотическим «вкраплениям» элементов world music законченную, совершенную форму, эталоном которой можно считать выдающийся хит группы «Sweet Lullaby». Этот дебютный сингл дуэта стал международным бестселлером, выведя на лидирующие позиции европейских хит-парадов первый альбом Deep Forest.1992 - Sweet Lullaby (5-Remixes)
-1992 - Sweet Lullaby (7-Tracks)
-2007 - Sweet Lullaby RemixedЖанр: World music, Ambient, HouseПродолжительность: 03:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5997EF8360BB6928554DD8969C3ECC7CA17878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388011   (786759) от 06.06.2020
-
-John Prine - John Prine (1971) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illegal Smile (3:14)
-02. Spanish Pipedream (2:41)
-03. Hello In There (4:30)
-04. Sam Stone (4:15)(   Читать дальше...   )Жанр: Rock, Folk Rock, Country RockПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7A47D72C78551CEF0A380F8290CEE6F30E365B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388281   (786746) от 06.06.2020
-
-Loretta Lynn - Don't Come Home-A-Drinkin' (1967) [FLAC|Lossless|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Come Home A Drinkin' (With Lovin' On Your Mind) (2:10)
-02. I Really Don't Want To Know (2:57)
-03. Tomorrow Never Comes (2:51)
-04. There Goes My Everything (2:48)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF4DD2748C626219C6D85F128D395391F02DB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123668   (786379) от 08.04.2017
-
-VA - Sunrise Energy Morning Meditation (Deep Meditation Music) (2017) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Interstellar Meditation Music Zone - Sunrise Energy (Morning Meditation)  3:43
-02.  Mantra Yoga Music Oasis - Open Your Eyes (Power Day)  3:55
-03.  Relax Time Universe - Relax For Mind And Body  3:17
-04.  Relax Time Universe - Breathing Technique (Slow)  3:36(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 03:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB96F21987582C67091329B7C37C2ACFB560102D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123653   (786182) от 09.04.2017
-
-Erwann Kermorvant, Axelle Renoir - 36 Quai des Orfevres (Original Soundtrack) (2004) [FLAC|Lossless|tracks] <Stage & Screen, OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camille (4:12)
-02. 36 (4:02)
-03. The Armoured Van (3:44)
-04. Club (3:42)(   Читать дальше...   )Жанр: Stage & Screen, OSTПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86E7403D5DCC5C60F0B1964D02D88F603536CA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123889   (786167) от 09.04.2017
-
-Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiet Dream of a Sweetbrier (00:05:28)
-02. Italian Coffee (00:04:43)
-03. All of What There Is (00:05:19)
-04. Very Special Proud Man (00:05:41)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E63B6D50D3C6D4541AEA35ED75B8AF4B8EF4AA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

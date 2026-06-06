@@ -1,3 +1,148 @@
+###  Публикация: 1624145   (242471) от 04.04.2023
+
+Silver Convention - Success (1976) LP, Compilation feat Penny McLean, Ramona Wulf, Linda G. Thompson [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник включает некоторые композиции первых альбомов группы Silver Convention и независимые синглы её трёх участниц.01. Silver Convention - Fly, Robin, Fly (5:24)
+02. Linda G. Thompson - Ooh What A Night (2:36)
+03. Silver Convention - Always Another Gir (3:41)
+04. Penny McLean - Wizard Bump (3:23)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C584C5C3B814463C5D0450A8B64F1996AFCC587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458901   (242075) от 30.03.2021
+
+Enrico Intra - Momento Intra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spaghetti Sugar And Tomato (4:35)
+02. Badaduba (3:44)
+03. Nicole (4:25)
+04. Birimbao (2:26)(   Читать дальше...   )Жанр: Electronic, Disco, Pop, InstrumentalПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796F0186FEAB6E3C5397147E28940BA9075EC639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459145   (241811) от 31.03.2021
+
+Elvin Shaad - Live For Love (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live For Love (6:10)
+02. I'm Burning Up (7:05)
+03. I Want Loving (10:18)
+04. Love Me Now (6:07)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D50A4DAE5E00087DEEE438FEEF9CAA76CBC17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625823   (241438) от 11.04.2023
+
+VA - Disco Fluid Vol. 2 (2023) [MP3|320 Kbps] <Disco, Indie Dance, Funky House, Nu Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Gutenberg - Beijo (Original Mix)
+02. Hotmood - Let's Get Closer (Original Mix)
+03. Jordan Carey - Don't You Know That (Original Mix)
+04. Doc L Junior - Let's Go (Never Been to Tokyo) (Original Mix)(   Читать дальше...   )Жанр: Disco, Indie Dance, Funky House, Nu DiscoПродолжительность: 01:36:10 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1380077601C092431FF89F782F9F7589E12F332C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548631   (240793) от 03.05.2022
+
+Midnight Gang - Love Is Magic (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Game (6:01)
+02. The Whole World's Singin' (6:58)
+03. Love Is Magic (6:45)
+04. Let's Go Dancin' (7:21)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDB21BC8FC0669FDE2ED92369FA5D6E572C1C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627161   (240011) от 18.04.2023
 
 Modern Talking - Atlantis Is Calling (1986) Japan 12" Single, Promo [MP3|320 Kbps] <Synth-Pop, Euro-Disco>
@@ -600,151 +745,6 @@ Gazuzu - 2 Albums (1984, 1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9074E6A082B8B1DD2218D7EFE06F6D4E1D83DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649850   (228570) от 29.07.2023
-
-Narada Michael Walden - The Dance Of Life (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul, Jazz-Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're So Good (6:05)
-02. I Shoulda Loved Ya (6:38)
-03. Lovin' You Madly (5:18)
-04. Crazy For Ya (3:56)(   Читать дальше...   )Жанр: Disco, Funk / Soul, Jazz-FunkПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DCC4A20C5F242DADFCAA57B004A03ECC04943D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513060   (227638) от 27.11.2021
-
-Chatelaine - Chatelaine (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corps A Corps In Love We'll Be (6:28)
-02. Je Vis Ma Vie (3:20)
-03. Je N'ai Que Toi (4:25)
-04. I Wouldn't Give You Up (2:59)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7ED6292146AFE84DBE7029E0768561D9228F95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513129   (227401) от 27.11.2021
-
-Wham - Wham! (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovemaker (5:06)
-02. In Love With Love (3:05)
-03. Say What (2:37)
-04. Prison Of Love (3:04)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C11C4DEF4E8D71D289D88BE09098C25FAAD4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513021   (227343) от 27.11.2021
-
-Phylicia Allen - Josephine Superstar (1978) LP [MP3|320 Kbps] <Funk Soul, Disco, Ballad>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (0:32)
-02. Medley - Saint Louis, Broadway, Star Of Paris (10:47)
-03. Around The World (4:39)
-04. Medley - Two Loves Have I (J'ai Deux Amours), Josephine Superstar (7:37)(   Читать дальше...   )Жанр: Funk Soul, Disco, BalladПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6838D82C78FF5785F6055A3B61BAD984BE940502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268657   (226449) от 11.12.2018
-
-VA - Venti Compilation 5 (2018) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleph - I'm On Fire (7:29)
-02. Robert Camero - Welcome Back (7:13)
-03. Max System - You Bring The Sun (6:04)
-04. Ryan Paris Feat Mauro - Buona Sera Dolce Vita (7:22)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F525BB19C79BDAD964B9391692BD0328D706C5D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

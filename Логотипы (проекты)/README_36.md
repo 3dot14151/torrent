@@ -1,3 +1,81 @@
+###  Публикация: 1163949   (443484) от 08.09.2017
+
+Проекты - VideoHive - Hand Drawn Sketch Logo - 19591920 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите ваш логотип в выглядящий вручную рисованным! Это новый фотореалистичный, эскизный и простой показ логотипа. Включены две версии: черная и белая. Работает с любым логотипом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43162F4CECA90103F5BCBD1BBBAE4CC4A2E9AC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944359   (442507) от 06.10.2015
+
+Проекты - VideoHive - Deconstruct [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DEB0505ED27274B1A1EEF0FDA1F0B444C5F67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062828   (438868) от 14.10.2016
+
+Проекты - VideoHive - Quick Minimal Clicking Logo - 17537012 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для быстрой демонстрации анимационного логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BA93FB365F51F4ED555FBDABAE3BE85FBBB9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164660   (438763) от 10.09.2017
 
 Проекты - VideoHive - Welding Logo Reveal with Sparks - 19335899 [AEP]
@@ -598,86 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DB4EE3C39531E00D2670BC391FED45CC11DA347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947652   (417668) от 17.10.2015
-
-Проекты - VideoHive - Elegant Gold Particles Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA922B3672350DF8D0F69B961110E9A2E33FF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325346   (414041) от 14.09.2019
-
-Videohive - Electric and Neon Logo Reveal - 22870197 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуализация Вашего логотипа в "электрическом и неоновом стиле"... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E545568BCE73E7BD23E79D975A8B5CB271155828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948279   (413493) от 19.10.2015
-
-Проекты - VideoHive - Blockbuilder Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E49253FDC396BC92EE8B11FD9262258D741A3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

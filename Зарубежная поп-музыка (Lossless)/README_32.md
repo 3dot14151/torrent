@@ -1,3 +1,177 @@
+###  Публикация: 1281988   (748419) от 10.02.2019
+
+Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Blue-Eyed Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALL THE WAYS (02:55)
+02. MARRY ME (03:35)
+03. I'M DOWN (03:16)
+04. AFTER YOU (03:26)(   Читать дальше...   )Жанр: Pop, Dance, Blue-Eyed SoulПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C73163427E66BCBC0BF6ADFC34E1C07D913A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282002   (746407) от 11.02.2019
+
+VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Bano & Romina Power - Liberta
+02. Collage - Donna Musica
+03. Pupo - La Notte
+04. Ricchi e Poveri - Comme Vorrel(   Читать дальше...   )Жанр: Italo PopПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17974C851813E39D7997D22ADA9301266FDB76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396637   (745501) от 16.07.2020
+
+Тина Кароль - 4 Альбома (2006 - 2017)  [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дикая вода
+02. Мужчина моей мечты
+03. Тобi здається
+04. Космiчнi почуття(   Читать дальше...   )Жанр: РорПродолжительность: 02:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCDEB010579D4F22BAC7DE01A5E999EE7E4298C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282455   (745322) от 12.02.2019
+
+Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] <Disco, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon A Time (03:03)
+02. Fairy Tale High (02:20)
+03. Faster And Faster To Nowhere (02:09)
+04. Spring Affair (02:34)(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282409   (745313) от 12.02.2019
+
+Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Like A Bird (4:04)
+ 02. Turn Off The Light (4:36)
+ 03. Shit On The Radio (Remember The Days) (3:55)
+ 04. Fotografia (Duet with Juanes) (4:01)(   Читать дальше...   )Жанр: Electronic, Pop, RnB, LatinПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282494   (745255) от 12.02.2019
+
+Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Souvenirs to Souvenirs
+02. Goodbye My Love Goodbye
+03. My Friend the Wind
+04. Rain and Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 665484   (744215) от 06.06.2013
 
 Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
@@ -569,181 +743,6 @@ VA - Top Of The Pops '1974 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84EC29F73894A81FF3F804D5D49C1D57D25AAE0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526796   (737795) от 26.01.2022
-
-VA - Romantic Pop Songs 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - Love Story (Taylor’s Version) (3:55)
-02. Imagine Dragons - Not Today (4:21)
-03. Justin Bieber - Love Yourself (3:52)
-04. Julia Michaels - Heaven (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AE1C746A2D8A6CF14D6C3F72EA843E1801F5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397640   (737560) от 22.07.2020
-
-VA - Relaxing 80s Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - Big Love (3:28)
-02. Karizma Duo - Come On Eileen (2:31)
-03. Shannon & Keast - Time After Time (3:45)
-04. The Shaken Bakers - Dancing in the Dark (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098964AF7D4D14D68DEDB6A7C4C52F833A79953D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397685   (737546) от 22.07.2020
-
-VA - The Hits Album The 60s Album (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - Good Vibrations (03:36)
-02. Simon & Garfunkel - Mrs. Robinson (04:02)
-03. The Byrds - Mr. Tambourine Man (02:20)
-04. The Mamas & The Papas - California Dreamin' (02:40)(   Читать дальше...   )Жанр: Pop, Rock, R'n'BПродолжительность: 03:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F5770E6A5159F4ED032370476B5198C138A351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397898   (736685) от 24.07.2020
-
-Alekseev (Никита Алексеев) - 2 Альбома (2017 - 2019) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моя звезда
-02. Так буває
-03. Целуй
-04. Как ты там(   Читать дальше...   )Жанр: РорПродолжительность: 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85ABAF18A145648F034AF33BD609E10E5E4D05A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787181   (736673) от 17.05.2014
-
-VA - Pure... 60s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Roc>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постепенно пополняется наша коллекция Pure... от Sony.
-Подоспели и 60-е годы. Этот щедрый набор с четырьмя дисками вобрал в себя почти 70 оригинальных записей хитов 60-х, включая песни Боба Дилана, Byrds, Элвиса Пресли и Джонни Кэша. Хотя, на мой взгляд, коллекция достаточно эклектичная, тем не менее, охватывая огромный пласт песен 60-х, она, бесспорно, даст представление (   Читать дальше...   )01. Bob Dylan - I Want You  (3:07)
-02. Van Morrison - Brown Eyed Girl  (3:03)
-03. Roy Orbison - Oh Pretty Woman  (2:58)
-04. Elvis Presley - Suspicious Minds  (4:34)(   Читать дальше...   )Жанр: Pop, Rock, Soft Rock, Pop-RocПродолжительность: 03:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D67AEC948C2DC63165A041FD5F3D995F3E054CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398138   (736657) от 24.07.2020
-
-Les Humphries Singers - Mexico (1972) 2011, Warner [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Old Time Religion - 3:19
-2. Malaika - 2:10
-3. Lovely Day - 3:24
-4. She's Really Something Else - 2:39(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F95D0594EFE9AC16302BABB64FEAF16EF399CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

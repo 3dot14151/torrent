@@ -1,3 +1,90 @@
+###  Публикация: 1149543   (600106) от 11.07.2017
+
+Jay-Z - 4:44 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kill Jay Z
+02. The Story Of O.J.
+03. Smile (Feat. Gloria Carter)
+04. Caught Their Eyes (Feat. Frank Ocean)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114E3BB8FE92133BDE42AAF0DB12F3D4AB51A4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232388   (599798) от 24.06.2018
+
+Iration - Iration (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Reggae Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Already Gold
+02. Press Play
+03. Twisted Up
+04. Broken Promises (feat. Slightly Stoopid)(   Читать дальше...   )Жанр: Reggae, Reggae RockПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4894EC4E74136BE68E4179A3DE042E62330680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039438   (595821) от 01.08.2016
+
+Desiigner - New English (2016) [MP3|320 Kbps] <Trap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro
+02 - Caliber
+03 - Make It Out
+04 - Shooters(   Читать дальше...   )Жанр: TrapПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E0C75C441820500E7688F4366ACD3A694030D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039450   (595820) от 01.08.2016
 
 Dub Pistols - Return of the Pistoleros (2015) [FLAC|Lossless|tracks] <Reggae, Dub, Hip-Hop>
@@ -655,93 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE00C95F8E2CEC24FDDAC984345F2285C43CFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310682   (545926) от 25.06.2019
-
-Miyagi - Buster Keaton (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:30)
-02. Captain (3:34)
-03. Мы не одни (2:22)
-04. Angel (3:35)(   Читать дальше...   )Производство: Hajime recordsЖанр: Rap, Hip-HopПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AF097DB1CC0334641B79C889821B579EF3340D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238793   (544651) от 01.08.2018
-
-Rickey F - FLASHFORWARD (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flashforward_Intro (Starfounder & XWinner prod.)
-02. Ветер (XWinner prod.)
-03. Fuck Cash (XWinner prod.)
-04. Молчи со мной (XWinner prod.)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F28629E50644495D2474CA765DBC1FBBD642F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817895   (544030) от 01.09.2014
-
-Рем Дигга - Людоед (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Киборг
-02. Людоед ч.1 ft. Chris Yank
-03. 4 топора ft. Слеп Ро, Murovei
-04. Камни(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1702476B78D36C77A8EC4FF57813652762F3DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

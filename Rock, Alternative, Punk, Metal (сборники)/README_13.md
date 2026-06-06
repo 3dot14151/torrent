@@ -1,3 +1,148 @@
+###  Публикация: 1114264   (833416) от 14.03.2017
+
+VA - I Love Music! - Extreme Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833416.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 40 Watt Sun - Another Room 11:55
+002. A Sun Traverse - The Autumn Of Fall 6:18
+003. Ailment - Dogma 12:51
+004. Bathsheba - Ain Soph 5:42(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 17:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35BA0EEC27D892E7E1571705CA2A1D8599D20F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114262   (833414) от 14.03.2017
+
+VA - I Love Music! - Alternative Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3 Pill Morning - The Hunted 3:25
+002. 4Drive - Rain 3:59
+003. Acceptance - Come Closer 3:35
+004. Acronycal - Tonights The Night 3:54(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 06:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00013AE185E8FE98F18526A6E5E464C2AC38895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114258   (833408) от 14.03.2017
+
+VA - I Love Music! - Indie & Soft Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Rock, Acoustic, Psychedelic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833408.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Against the Current - Young & Relentless 3:22
+002. Amber Arcades - Turning Light 6:55
+003. Amber Run - Dark Bloom 4:22
+004. Amber Run - Island 3:55(   Читать дальше...   )Жанр: Rock, Acoustic, Psychedelic RockПродолжительность: 10:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738380AF168D7C393C21B5BC04C9EA7253F702FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114259   (833146) от 14.03.2017
+
+VA - I Love Music! - Hard Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Hard Rock, Melodic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833146.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angels Or Kings - On The Corner Of Love And Lost 4:38
+002. Black Hole Raven - Song For The Lost 4:04
+003. Black Paisley - It Ain't Over 4:21
+004. Black Star Riders - Letting Go Of Me 3:45(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 06:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DD2EA2CE987A2843908088305CD7C4B2CD4E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380358   (833036) от 03.05.2020
+
+Quiet Riot - 100% Quiet Riot (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Health (Bang Your Head)
+02. The Pump (Album Version)
+03. In the Blood
+04. Cum on Feel the Noize(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF087D3FFF2A82709AE91C1C171CF41720F05094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380478   (832951) от 03.05.2020
 
 VA - 90s Rock (2020) [MP3|320 Kbps] <Rock, Alternative Rock, Other>
@@ -601,151 +746,6 @@ Linkin Park - Celebrate Life in Honor Of Chester Bennington (2017) Live from Hol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A5CB78DC8170EEA9E3D50C95EFAC942BD081F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117732   (816642) от 23.03.2017
-
-VA - Rock Collection 1998 (2017) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. Goo Goo Dolls - Dizzy
-02. Falkenbach - ...When Gjallarhorn Will Sound(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 33:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F243A46C68D6787E5665883372ADFECF1BC09B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117746   (816634) от 23.03.2017
-
-VA - Rock Collection 1999 (2017) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. Liquid Tension Experiment - Acid Rain
-02. Lacrimosa - Am Ende der Stille(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 32:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F5589CD7DA9A7FC1E3FC1DCE71420D08EF1E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197373   (815425) от 07.01.2018
-
-VA - Чартова дюжина. Итоги 2017 (2018) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ДДТ - Любовь не пропала
-02. Кипелов – Косово поле
-03. БИ-2 feat. John Grant - Виски
-04. Сплин – Храм(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5285544E4EFF92171D712ABA2251CA74FA953B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382829   (815300) от 13.05.2020
-
-VA - Hard Rock Classics (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Def Leppard - Glad I'm Alive 4:13
-02. Alice Cooper - Poison 4:30
-03. Bon Jovi - You Give Love A Bad Name 3:43
-04. Scorpions - Rock You Like a Hurricane (2015 Remaster) 4:14(   Читать дальше...   )Жанр: RockПродолжительность: 04:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16D70DFD5BF3112655E1C4D94F9DD7B8D9283C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383187   (813117) от 14.05.2020
-
-Pink Floyd - 100% The Best Pink Floyd LIVE (2020) [MP3|320 Kbps] <Rock, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Careful With That Axe, Eugene (Single Version, 2016 Remastered Version)
-02. Cymbaline (BBC Radio Session, 12 May 1969)
-03. Interstellar Overdrive (Live At The Paradiso, Amsterdam, 9 August 1969)
-04. Careful With That Axe, Eugene (BBC Radio Session, 12 May 1969)(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 06:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C85EBB2D1A4A86B72560BC8591CF2D7780242E
 ```
 
 https://mybot314.ru/tekegram_catalog/

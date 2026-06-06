@@ -1,3 +1,102 @@
+###  Публикация: 971271   (987078) от 02.01.2016
+
+VA - Авто. Музыка. Дорога - Жаркие ночи (Sound Clinic - Bass Edition) (2015) [MP3|320 кб/с] <Deep, House, Vocal House, G-House, Indie, Trap, Dubstep, Electro, Progressive, Tech, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Chainz - Used 2 Dap (Baauer & RL Grime Trap Intervention)
+02. 2Loop & EvgenFM, Natune - Run Away
+03. 2Night & 2907 - Do It Like This (Diamn Remix)
+04. AbysSoul, Darian Crouse - Falling In Love (Entity's UltraDeep Mix)(   Читать дальше...   )Жанр: Deep, House, Vocal House, G-House, Indie, Trap, Dubstep, Electro, Progressive, Tech, TranceПродолжительность: 24:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA6BC55F4705FACE62B5254B079C81E92124E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611011   (986257) от 02.02.2013
+
+VA - Drum and Bass Pro V.4 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hosta - When You Were Mine (VIP Mix)
+02. John B feat. Kirsty Hawkshaw - Connected (McMash Clan Remix)
+03. Netsky - I Refuse
+04. Tut Tut Child feat. Emily Underhill - Alive (Original Mix)
+05. Vospi ft. Leila - Kind Words (nClear remix)
+06. Menace & Borderline - Murky
+07. State of Mind - Azwell
+08. The Brainkiller - Follow Me (Chaos Teory Remix)
+09. Mr.Tools - What Is Your Profession (Original Mix)
+10. Brookes Brothers - The Blues(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99065549EAE4E007452C899FB3ED8B588A065993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612752   (986253) от 02.02.2013
+
+Twistex - The Best (2013) [MP3|256 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Powerdrive (Original Mix)
+ 02. Signs Of Time (Original Mix)
+ 03. Teaser Upcoming Songs 2012
+ 04. This Is Stupid (Original Mix)
+ 05. Time Warp (Original Mix)
+ 06. Tricky Finger (Original Mix)
+ 07. Twee
+ 08.Twistex Feat. Gunslinger Jones - To The Beach (Savant Remix)
+ 09.Twistex Feat. Skepsis - Over The River (Original Mix)
+ 10.Twistex Feat. Skepsis - Ozeriah Beach (Original Mix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 02:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD67C323AB040B4E195C07A5BA50EA3A7F86815C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355026   (986153) от 24.01.2020
 
 VA - World of Electronic Music Vol.5 (2019) [MP3|320 Kbps] <Synthpop, Futurepop, Electropop>
@@ -670,93 +769,6 @@ VA - Beatport Progressive House Pack 03 (2020) [MP3|320 Kbps] <Progressive House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:494DCA7D28855AB8619EBD9BF7192781A9300AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356268   (980543) от 29.01.2020
-
-VA - Heaven With You: Chill House Mixtape (2020) [MP3|320 Kbps] <Chill, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jack Burton - Beacon Of Light
-002. James Corquita - Distancia Paralela
-003. The Ambientalist - Cast A Spell
-004. Lounge Pilots - Any Lounge Color(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC20FA9C894B497BB8C7D3A9B1FA375B0E519428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355795   (980541) от 29.01.2020
-
-VA - Blissful Journey: Vocal Chillout (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980541.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. J-E-T-S Jimmy Edgar - Potions
-002. Stergios - Dream Sky (Silence Mix)
-003. Manu Zain - I Never Knew How
-004. Ani Williams - House Of Horus(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 09:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D04483136ED3E629C5AA972262D7D7667ABB7CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355852   (980529) от 29.01.2020
-
-VA - Beauty Interior Lounge Music (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980529.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Carlo Peralta - Cala Carbo
-002. Silence Of The Sirens - Roberto Bronco
-003. Soulful-Cafe - Really Gone
-004. Love In Stereo - Mojardo(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 11:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAF1555A466398FD689DAD53CE363579E645117
 ```
 
 https://mybot314.ru/tekegram_catalog/

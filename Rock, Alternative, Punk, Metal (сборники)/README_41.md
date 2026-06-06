@@ -1,3 +1,145 @@
+###  Публикация: 1655142   (204551) от 25.08.2023
+
+VA - Compilation Female Assorted part 30 (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaetano Pellino - Ain't No Sunshine
+02. Victoria Ginty - Every Night, Every Day
+03. Soulmate - Lie
+04. Soulmate - Set Me Free(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F4C22FEF81EE88609BCC4502AF0BE306C9F98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654971   (204487) от 25.08.2023
+
+Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best of Me
+02. Blood Money (Feat. Walter Trout)
+03. Revelation
+04. Between the Lines(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228B9A1640ED38C1BF75378C8084B9806E46AC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602550   (204393) от 06.01.2023
+
+VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Йорш - Половинки (3:25)
+002. Nagart - Сирена (4:15)
+003. Эпидемия - Письмо Ведьмаку (5:37)
+004. 25/17 - Остаться (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E80F6435977DD0EA1E6982AB84AD0EFFD40F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356395   (204243) от 10.01.2023
+
+Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография) (9 альбомов) (2009-2022) [MP3|128-320 Kbps] <Металкор, Постхардкор, Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wildways — Российская метал-группа была создана в конце августа 2009 года гитаристом Сергеем Новиковым и изначально носила название «Sarah Where Is My Tea». 17 июня 2014 года группа меняет название на Wildways (англ. дикие пути). «Просто захотели сделать новый шаг, стать более серьезными. Название Sarah Where Is My Tea звучало слишком саркастично. В какой-то момент (   Читать дальше...   )Жанр: Постхардкор, Металкор, РокПродолжительность: 07:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7FD9DB49F6326D84C6637A7063680372A37394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655996   (203472) от 30.08.2023
+
+VA - Compilation  Blues Rock Part 31 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre & Renee Beeka - I'll Play the Blues for You
+02. Andre & Renee Beeka - A Quitter Never Wins
+03. Red Rooster - Little Darling
+04. Born Healer - 'til the Dawn(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914E1FEBDECF3F73257BDA09A396FF5B279B4B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614345   (202500) от 22.02.2023
 
 VA - Rock Hits 150 v2 (2023) [MP3|320 Kbps] <Rock, Metal>
@@ -600,151 +742,6 @@ Jimi Hendrix - Greatest Hits (2CD) (2010) Remaster SMRP, Russia, 2020, De-Noised
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA8E657B23BA9D2505810FF98F0023B0FF0117C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592331   (182941) от 23.11.2022
-
-VA - Music For You vol. 25 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - No Quarter (07:02)
- 02. Jade Warrior - Three Horned Dragon King (06:10)
- 03. Sebastian Hardie - Openings (13:08)
- 04. Curved Air - Vivaldi (07:33)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC59202C7FBBEC3A6412F0D2D29131DADA4F519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427686   (181505) от 30.11.2020
-
-VA - Alternative Rock Music Event (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181505.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Machine Gun Kelly - My Ex's Best Friend
-002. Glass Animals - Tokyo Drifting
-003. Kandle - Just To Bring You Back
-004. Even As We Speak - Someone(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A9D01E69CA3FDC83852D56882ABC8B3E250C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427691   (181411) от 30.11.2020
-
-VA - Instrumental Rock Classic (2020) [MP3|192-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sammy Boller - Dark Night Of The Soul
-002. Covet - Falkor
-003. Brave The Waters - Out Of Nowhere
-004. The Ascent - Secret Truth(   Читать дальше...   )Жанр: RockПродолжительность: 08:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455A3B9201EDFD823F3E471A6234B4CCAAF93CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428119   (180750) от 01.12.2020
-
-Brian Connolly - Do It Again (Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballroom Blitz
-02. Fox On The Run
-03. Rock&Roll Disgrace
-04. Action(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A24E03640D9408FBA06A298AEB1522CD80806A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428141   (180743) от 01.12.2020
-
-Andy Scott - Do It All Over Again (2CD Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-Ray Specs
-02. Marshall Stack
-03. Gotta See Jane
-04. Red Tape(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BD9880758EF09EACA94C7BF59DDDB7F37C789E
 ```
 
 https://mybot314.ru/tekegram_catalog/

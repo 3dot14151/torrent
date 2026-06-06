@@ -1,3 +1,293 @@
+###  Публикация: 1806258   (65407) от 11.07.2025
+
+VA - Kohl's Cares For Kids: Songs Of The Season 2001 (2001) CD, Compilation [FLAC|Lossless|tracks + .cue] <Ballad, Light Music, Vocal, Holiday>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong & The Commanders - Cool Yule (2:57)
+02. Tony Bennett - Winter Wonderland (2:14)
+03. Lou Rawls - Have Yourself a Merry Little Christmas (2:29)
+04. Nancy Wilson - The Christmas Waltz (2:39)(   Читать дальше...   )Жанр: Ballad, Light Music, Vocal, HolidayПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AC6B997CF4B06B01903538053595AEFDC68F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807512   (65156) от 19.07.2025
+
+Sirena (ex-Sister Siren) - Innocent Killah (2011) [FLAC|Lossless|tracks + .cue] <Pop Rock, Electro House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65156.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Innocent Killah (Original)
+2. Innocent Killah (Gdalev Mix)
+3. Innocent Killah (Nademski Mix)
+4. Innocent Killah (Gazelle Mix)Жанр: Pop Rock, Electro HouseПродолжительность: 00:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02074956A329893BC99A4216BB0068846797877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807981   (65073) от 22.07.2025
+
+Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (5:20)
+02. Sib Dab Dua (3:07)
+03. Dreams (4:02)
+04. Hide Away - Man Is Comin'! (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807991   (65072) от 22.07.2025
+
+Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky Star (5:38)
+02. Borderline (5:22)
+03. Burning Up (3:46)
+04. I Know It (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9958801FD918C28A16F0611AB65713AB4FE3A042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807988   (65060) от 22.07.2025
+
+Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Life (04:48)
+02. Everything's Coming Up Roses (04:06)
+03. Sometimes For The Asking (04:09)
+04. Finder (04:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC67BE73C321F822597C2BB720252FD735A8511D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807989   (65045) от 22.07.2025
+
+Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensation (5:05)
+02. Slave To Love (4:27)
+03. Don't Stop The Dance (4:19)
+04. A Waste Land (1:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E35676629DEB9CF7D590DC8B295CF08FF5063E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807983   (65034) от 22.07.2025
+
+Double - Blue (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman of the World (3:55)
+02. I Know a Place (3:40)
+03. The Captain of Her Heart (4:35)
+04. Your Prayer Takes Me Off (6:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F447531D3AA88EC9D48779DB45423A37FE1278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807985   (65030) от 22.07.2025
+
+Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire In Disguise (05:27)
+02. Gliding (05:04)
+03. Lakes In The Desert (04:43)
+04. Circles (05:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E49459C9F86AA009C36602FFD67DE53C65A8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808360   (65010) от 24.07.2025
+
+Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selena Gomez, Benny Blanco – I said I Love You First (0:44)
+02. Selena Gomez, Benny Blanco – Younger And Hotter Than Me (3:09)
+03. Selena Gomez, Benny Blanco, Gracie Abrams – Call Me When You Break Up (2:09)
+04. Selena Gomez, Benny Blanco, The Marías – Ojos Tristes (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCA44453D06FAFB0A5B21DF3061F2B25566FEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809022   (64772) от 28.07.2025
+
+Ten Sharp - Under The Water-Line (1991) 1st Holland Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You (4:34)
+02. Ain't My Beating Heart (4:15)
+03. When The Spirit Slips Away (4:44)
+04. Ray (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CB3A50B9DCB45FA1E91302B250FE96E3C49D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809479   (64681) от 31.07.2025
 
 Nick Kamen - Move Until We Fly (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
@@ -451,296 +741,6 @@ V.A. - 80's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:524D1EFC80DDD68230DF09D6C1C8598E71A39B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168356   (61054) от 02.04.2024
-
-Anastacia - 10 альбомов (2000-2023) 11CD [FLAC|Lossless|image + .cue | tracks + .cue] <Pop, Pop Rock, Dance, Soul, Ballad, R&B, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анасте́йша — американская поп-певица и автор песен. На счету Анастейши 8 студийных альбомов и свыше 30 клипов. Она является одной из самых коммерчески успешных поп-исполнительниц 2000-х годов. Альбомы и синглы певицы многократно получали платиновый статус. Несмотря на отсутствие большого американского успеха, общие продажи составляют свыше 50 000 000 копий. (   Читать дальше...   )--------------------------
-
-01. Best Days (4:33)
-02. Now Or Never (3:19)(   Читать дальше...   )Жанр: Pop, Pop Rock, Dance, Soul, Ballad, R&B, Funk |Продолжительность: 08:47:17 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B65DB22C20EF2A9087805A307E31E062C45667B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712969   (60763) от 04.04.2024
-
-V.A. - 70's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pretenders – Brass in Pocket (2006 Remaster)
-02. Curtis Mayfield – Move On Up
-03. Gerry Rafferty – Baker Street (2011 Remaster)
-04. Bad Company – Feel like Makin’ Love (2015 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED9F8BC93ABB4AFA239BC1BB1F0A1EAB966EC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714558   (60131) от 10.04.2024
-
-Inna - El Pasado (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Primera Vez [2:51]
-02 - Como Tu [4:00]
-03 - Enferma [3:43]
-04 - Hechizo [3:07](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7604554F290879AA864C68E362C8B7E2B8C882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717263   (59196) от 19.04.2024
-
-Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fortnight (feat. Post Malone)
-02. The Tortured Poets Department
-03. My Boy Only Breaks His Favorite Toys
-04. Down Bad(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480560598C47C100BDCC471AFB9A66DE644C5FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718214   (58809) от 23.04.2024
-
-Mylene Farmer - Remix XL (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Libertine (nit Remix)
-02 - Sans contrefaCon (The Magician Remix)
-03 - Pourvu qu'elles soient douces (Cut Killer & Prez Poney Club Remix)
-04 - Desenchantee (Arnaud Rebotini Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C964BC65ED898FD78366A267B1D14C2C71F3FB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719452   (58136) от 29.04.2024
-
-Rod Stewart - The Best Of The Great American Songbook (2011) Japanese Edition, Compilation, Reissue, 2024, Sony Music [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Ago and Far Away
-02. Someone To Watch Over Me
-03. They Can't Take That Away From Me
-04. Beyond the Sea(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760FC36355AC67D427DAAF03635645E28F6D8616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720298   (57743) от 03.05.2024
-
-Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of An Era
-02. Houdini
-03. Training Season
-04. These Walls(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E01EE3DEED478132B29628516CBF07A95F1BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720302   (57742) от 03.05.2024
-
-Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Wing
-02. Immortal Queen (feat. Chaka Khan)
-03. Dance Alone (feat. Kylie Minogue)
-04. I Had a Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4C36686BE932661C0C7E98C03820B3CD1370B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723583   (56134) от 18.05.2024
-
-ABBA - Wembley Arena 1979 (Live) (2014) Reissue, 2024, The Media Champ [FLAC|Lossless|WEB-DL|tracks] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voulez-Vous (Live) [00:05:10]
-02. Knowing Me, Knowing You (Live) [00:04:34]
-03. Chiquitita (Live) [00:05:47]
-04. Gimme!, Gimme!, Gimme! (A Man After Midnight) (Live) [00:05:37](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE34F1ECA4BE0314C572A79A48B2EC8E8F5AE5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729362   (53714) от 10.06.2024
-
-Taylor Swift - The Tortured Poets Department (2024) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fortnight
-02. The Tortured Poets Department
-03. My Boy Only Breaks His Favorite Toys
-04. Down Bad(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF888B613193C769A3174DA954C8B5E54B88291
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1097988   (911955) от 28.01.2017
+
+Celldweller - Transmissions Vol. 04 (2017) [MP3|320 Kbps] <Industrial, Alternative>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Radio Transmission
+02. The Siren's Lullaby (Heart On)
+03. Pulse Injector
+04. Lifeforms (Mother-32 Version)(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22AB47043C12BA5DD0CFC3AF92C2CD73E67EA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105163   (877892) от 16.02.2017
 
 BlutEngel - Leitbild (2017) 2CD Deluxe Edition [MP3|320 Kbps] <Darkwave, Synth-pop>
@@ -713,35 +742,6 @@ Diary of Dreams - Hell in Eden (2017) [MP3|320 Kbps] <Darkwave, Gothic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:799CAD760AAD1264FBD0035DA60BAE41FD12DE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178006   (360495) от 26.10.2017
-
-Blutengel - Black (2017) [MP3|320 Kbps] <Darkwave, Synth-pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black
-02. Komm zu mir!
-03. There's No Place
-04. Seele(   Читать дальше...   )Жанр: Darkwave, Synth-popПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37560B0AFD99C26FDD33FA7760BC226E5DA104BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1472760   (1013993) от 27.05.2021
+
+VA - Musical Critic: Сборники паблика Musical Critic (2010 - 2013) [MP3|192 - 320 Kbps] <Rock, Alternative, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Musical Critic - Vol. 1 (2010)
+
+01. Rehab - Welcome Home.mp3
+02. Gemini Syndrome - Sindrome.mp3(   Читать дальше...   )Жанр: rock, alternative, metalПродолжительность: 33:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FEA66910CBF0689C4976B56D8F3D7B0705B85A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472862   (1013968) от 27.05.2021
+
+VA - 70's Rock Power (2021) [MP3|320 Kbps] <Rock, Classic-Rock, Hard-Rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Strange Kind of Woman
+02. ZZ Top - It's Only Love
+03. Chicago - Dialogue (Pt. 1 & 2)
+04. The Doobie Brothers - Eyes of Silver(   Читать дальше...   )Жанр: Rock, Classic-Rock, Hard-Rock, BalladsПродолжительность: 02:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2612939D8E0AF267092BAE1E9638258E1A5D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473650   (1013473) от 30.05.2021
+
+VA - Soft Rock (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013473.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Guns N' Roses - Don't Cry (Original) (4:44)
+002. Mr. Mister - Broken Wings (5:43)
+003. ZZ Top - Rough Boy (4:49)
+004. Chicago - You're the Inspiration - 2009 Remaster (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 12:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDD0A252776DD7A1F3FE7F2A0A42E0094F5A80A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474476   (1012902) от 03.06.2021
+
+VA - The End: Apocalypse Sound (2021) [MP3|320 Kbps] <Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012902.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Quill - Keep On Moving
+002. Bloodmores - Too Close To The Sun
+003. Cro-Mags - Crofusion
+004. John Diva & The Rockets Of Love - Karmageddon(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 11:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00873DFD934B8498842522835C33D6F77DA8B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474873   (1012724) от 04.06.2021
+
+VA - Rock Matrix (2021) [MP3|320 Kbps] <Rock, Alternative, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012724.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. John Paul - The Sun's Gonna Shine Again
+002. Saint Agnes - Repent
+003. Cheap Trick - Quit Waking Me Up
+004. Insite - Disparos(   Читать дальше...   )Жанр: Rock, Alternative, Classic RockПродолжительность: 08:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F6122D7909F6A7025AA81B81881136F6B34FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476691   (1011534) от 12.06.2021
 
 VA - Mass In The Catacomb (2021) [MP3|320 Kbps] <Hard Rock, Metal>
@@ -600,151 +745,6 @@ The Kelly Family - We Are The World (2019) Compilation [MP3|320 Kbps] <Pop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28FE8058F1A7C61F50743FE5CC4592D77A2C3C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350013   (1003674) от 04.01.2020
-
-Genesis - Greatest Hits (2020) 2CD [MP3|320 Kbps] <Rock, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illegal Alien
-02. Many Too Many
-03. In The Cage
-04. Silver Rainbow(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B198FCCDA17E601EA49500050DACA4542F9F107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349375   (1003664) от 04.01.2020
-
-The Beatles - Rare Beatles De-Noised (4 CD) (2020) Remaster SMRP [MP3|320 Kbps] <Rock & Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock & RollПродолжительность: 00:38:26
-05-01 - In Spite Of All The Danger (Feat. The Quarrymen) (1958) (02:44)
-05-02 - That'll Be The Day (Feat. The Quarrymen) (1958) (02:08)
-05-03 - Cayenne (Feat. The Quarrymen) (1960) (02:30)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A1807088D4AEF6708B273C1614B6005E9CF11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487493   (1003544) от 05.08.2021
-
-VA - Rock Classics (2021) [MP3|320 Kbps] <Classic Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003544.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 03Electric Light Orchestra - Evil Woman (04:36)
- 002. 38 Special - Hold On Loosely (04:40)
- 003. AC-DC - Back In Black (04:16)
- 004. AC-DC - Hells Bells (05:13)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, MetalПродолжительность: 14:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FCA245448C13E25A41924A6ED539CEA3762AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349964   (1003451) от 05.01.2020
-
-VA - 2020 Rock Factory (2020) [MP3|320 Kbps] <Rock, Indie, Folk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kelsy Karter - Harry
-002. Dasher - Nightmares
-003. Von Baltzer - Better Days
-004. Joy In Velm - The Nineteen Lie(   Читать дальше...   )Жанр: Rock, Indie, Folk, AlternativeПродолжительность: 10:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64107CF240E6A32CD7E9712FE37608AB8E8DF34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487522   (1003315) от 06.08.2021
-
-VA - The Purgatory (Vol.02) (2021) [MP3|320 Kbps] <Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003315.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Be All End All - End Sequence
-002. Soul Of Ears - Invincible We Are
-003. Vestindien - Beerenberg
-004. Values - Temperance(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 10:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33ED0ECAC3823F2D97A1644FCEC7A1B7E6DF73D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

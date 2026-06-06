@@ -1,5 +1,31 @@
 https://t.me/izofen
-###  Публикация: 1870716   (1068948) от 
+###  Публикация: 1874328   (1071928) от 02.06.2026
+
+Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Windows Umbrella (v10, 06.2026) [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 с интерфейсом Windows 7 и  Windows Vista. ОС подходит для слабых ПК. Данная ОС подходит для пользователей которые не пользуются онлайн услугами Microsoft.Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA7C41649889144FD2D2745B93D011665A94161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870716   (1068948) от 13.05.2026
 
 Windows 10 22H2 x64 by OneSmiLe [19045.7291] [Ru]
 
@@ -691,35 +717,6 @@ ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D60DA3AEE201EE9BB5C9E459B149D3E4EAD0477C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841370   (1047918) от 10.12.2025
-
-Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6691 [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
-Установлены обновления по 10.12.2025 года включительно
-Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C6511A2B0CC54CEEC75F4A25C2348FCE6F6D79
 ```
 
 https://mybot314.ru/tekegram_catalog/

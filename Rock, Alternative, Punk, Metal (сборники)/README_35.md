@@ -1,3 +1,148 @@
+###  Публикация: 1417510   (353247) от 22.10.2020
+
+VA - Rock Classic Ballad: Special Performance (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Custard - Deliver Me
+002. Kaledon - Lilibeth
+003. Claymore - Crossroad Of Forever
+004. Winterstorm - Break The Ice(   Читать дальше...   )Жанр: RockПродолжительность: 07:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7024DF2F0AAE09E4774126EB59971849BD98EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179019   (350666) от 30.10.2017
+
+Сектор Газа - Незабываемые песни 3CD 1989-2000 (2017) DON Music [MP3|320 Kbps] <Punk Rock, Fusion>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колхозный панк (1989)
+02. Плуги-вуги (1989)
+03. Наркоман (1989)
+04. Местные (1989)(   Читать дальше...   )Жанр: Punk Rock, FusionПродолжительность: 03:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7782A431B4D348121A39C032B85BBF9696F9086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577731   (350018) от 21.09.2022
+
+Motley Crue & Vince Neil - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motley Crue это целая эпоха в мире музыки. В сборник вошли лучшие песни группы. Некоторые альбомы сохранил полностью, из каких то, что то вырезал. Так что, любители ранних полноценных альбомов проходите с камнями мимо. Начиная с 94 года, как и многие рокеры того времени, команда отравилась альтернативой и слушать их стало пыткой. Очухались ребята только к 2000 году. (   Читать дальше...   )01. Motley Crue - Wild Side
+02. Motley Crue - Girls, Girls, Girls
+03. Motley Crue - Dancing On Glass
+04. Motley Crue - Bad Boy Boogie(   Читать дальше...   )Жанр: RockПродолжительность: 05:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3211D8E6A1F0F029ECE328703A0280DC7BCFFD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578228   (347753) от 22.09.2022
+
+VA - Hammond Organ for the Soul (2022) 2CD [MP3|320 Kbps] <Rock, Hammond>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Georges Arvanitas - Moanin' [04:43]
+02. Deep Purple - Lazy (Live; 1998 Remaster) [10:27]
+03. Uriah Heep - Circle of Hands (2017 Remastered) [06:27]
+04. Emerson, Lake & Palmer - Fanfare For The Common Man (Original 1977 Recording) [09:47](   Читать дальше...   )Жанр: Rock, HammondПродолжительность: 08:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D58DCDAEA819B627B2447E2C0FF366E723578D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257186   (347487) от 25.10.2018
+
+VA - Rock Kaleidoscope 3 (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Moonspell - Opium
+02 Cinderella - Gypsy Road
+03 Biffy Clyro - Many Of Horror
+04 Kalmah - Heroes To Us(   Читать дальше...   )Жанр: RockПродолжительность: 07:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AC2E1D5D6F62F0389C60C16C52B323BBA9E9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179719   (346692) от 01.11.2017
 
 VA - Flesh & Blood Of Nu-Metal (2017) [MP3|320 кб/с]<Nu-Metal, Alternative, Rapcore>
@@ -602,154 +747,6 @@ VA - Жизнь и немного любви из русского рока-2 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15E8E8A329CB8DF961B0B231092D684E719C9A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844212   (318036) от 25.11.2014
-
-VA - 100 Hits Total Rock (2014) 5 CD (2014) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318036.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Disc:
-01 Meat Loaf - Bat Out of Hell (4:49)
-02 Alice Cooper - Poison (4:30)
-03 Boston - More Than a Feeling (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 06:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D1A24B592B67B6D2ABF8A2A5DAB53707B8A1B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182330   (316398) от 10.11.2017
-
-VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7 (2017) [MP3|320 Kbps] <Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  7Б - Молодые ветра  4:25
-02.  Король и Шут - Кукла колдуна  3:24
-03.  Ляпис Трубецкой - Ау  3:54
-04.  Ночные Снайперы (Диана Арбенина) - Асфальт  3:19(   Читать дальше...   )Жанр: РокПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97669591858B4E7ED8D5A513D82155346A20945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421970   (315437) от 06.11.2020
-
-VA - The Gambling: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315437.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hillview - No One Else To Blame
-002. Kolossus Däächt - Fallen Piece
-003. Holly Would Surrender - What Do We Do Now
-004. Mcrackins - Happy Hour(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 07:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BD57EED8F5F3DDFFEC9DC71F679B93EABB8060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182736   (313973) от 11.11.2017
-
-Юлия Чичерина - Избранное 1997-2017 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off-On
-02. Радиоволна
-03. Жара
-04. 40000 км(   Читать дальше...   )Жанр: RockПродолжительность: 02:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C317B1DABA970325F09C8F35653CB20DD8E4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260001   (311389) от 07.11.2018
-
-VA - Hits of My Soul Vol. 42 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Ill Nino - Te Amo...I Hate You (03:33)
-02. Drowning Pool - Step Up (03:17)
-03. 3rd Strike - Into Hell Again (03:12)
-04. Atomship - Whitfield (04:56)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2740A5CAA61F89578D0E24E8F647C775BAB0C41C
 ```
 
 https://mybot314.ru/tekegram_catalog/

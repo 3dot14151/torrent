@@ -1,3 +1,32 @@
+###  Публикация: 1549041   (594732) от 05.05.2022
+
+Three Days Grace - Explosions (2022) [MP3|320 Kbps] <Post-Grunge, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. So Called Life
+2. I Am The Weapon
+3. Neurotic (feat. Lukas Rossi)
+4. Lifetime(   Читать дальше...   )Жанр: Post-Grunge, Alternative RockПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45147C665E9B95054436837ED467569F12E9B8F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150548   (593924) от 15.07.2017
 
 Coldplay - Kaleidoscope (2017) EP [MP3|320 Kbps] <Alternative Rock, Indie Rock>
@@ -49,6 +78,35 @@ Mono Inc. - Symphonies Of Pain: Hits And Rarities (2017) [MP3|320 Kbps] <Gothic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00C07DBB3496BB35997FEC78B4AEB0D0B9115DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233191   (593760) от 28.06.2018
+
+Gorillaz - The Now Now (2018) [MP3|320 Kbps] <Alternative Rock, Hip-Hop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_593760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humility (Feat. George Benson)
+02. Tranz
+03. Hollywood (Feat. Snoop Dogg & Jamie Principle)
+04. Kansas(   Читать дальше...   )Жанр: Alternative Rock, Hip-Hop, ElectronicПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A82E9D1ACA9BB078B97C31B821959112182EB25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,70 +736,6 @@ Wage War - 8 Relises (2015-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1295C325E001567EC63A28D57E40EE1337457AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357562   (580962) от 07.07.2011
-
-Random Hand - Seething is Believing (2011) [MP3|320 kbps]<Ska-core>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580962.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tales Of Intervention (2:41)
-2. Sons Of Robots (2:19)
-3. Not A Number (4:33)
-4. Three From Six (3:16)
-5. Floating Ghosts (4:14)
-6. Bones (3:07)
-7. Due To Circumstance (2:32)
-8. Start The Fans (2:20)
-9. Find What's Out There (3:30)
-10. Henchmen (3:43)(   Читать дальше...)Жанр: Ska-coreПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E089C74602E6D42AEF733435AFC607BE026BBD79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920464   (579089) от 23.07.2015
-
-Kirastas - Iru Hanum (2015) [MP3|320 кб/с]<Alternative, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth and Hope  [00:05:15]
-02. Battle  [00:05:85]
-03. New Victories   [00:02:17]
-04. Happiness  [00:01:88](   Читать дальше...   )Жанр: Alternative, Art RockПродолжительность: 00:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D2A3129818E7C49D24D86066222CB6B083C9CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

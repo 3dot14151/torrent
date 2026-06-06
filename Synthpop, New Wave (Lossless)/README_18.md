@@ -1,3 +1,61 @@
+###  Публикация: 1259839   (316415) от 05.11.2018
+
+Hurts - Desire (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/13. Beautiful Ones (3:03)
+ 02/13. Ready To Go (2:46)
+ 03/13. People Like Us (3:39)
+ 04/13. Something I Need To Know (3:31)(   Читать дальше...   )Жанр: Electronic, Synthpop, PopПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F29A277473486BE923F4E2081A6A8D0D7086AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259945   (316134) от 05.11.2018
+
+Space - Magic Fly (1977) 1983, Compilation [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316134.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:22] 01. Magic Fly
+[8:20] 02. Carry On, Turn Me On
+[4:24] 03. Air Force
+[6:42] 04. Save Your Love For Me(   Читать дальше...   )Жанр: Electronic, Synth-PopПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B57683BB307399595D5725BD82B7E767B87F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959501   (314831) от 25.11.2015
 
 Parralox - Aeronaut (2015) Limited Edition [FLAC|Lossless|image + .cue]<Electropop, Synthpop>
@@ -684,64 +742,6 @@ Tears For Fears - Rule The World: The Greatest Hits (2017) Compilation [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D491E2141CA92894B449DA8454E8325675FDC03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334378   (296918) от 28.10.2019
-
-mindXpander - Triumphant Return (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Creatures (5:31)
-02. Pandora's Music Box (6:35)
-03. Smuggler's Guild (6:29)
-04. Hoshi No Koe (6:38)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDDE6E36EAC528E1D20855172F03402235884B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334370   (296371) от 28.10.2019
-
-mindXpander - A Tribute To Laserdance (2000) [FLAC|Lossless|image + .cue] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Run (6:00)
-02. Enemy On Earth (5:39)
-03. The Challenge (5:56)
-04. New Adventures (5:54)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E39333374DB22D23ABE1C4B275054F136EFAE28
 ```
 
 https://mybot314.ru/tekegram_catalog/

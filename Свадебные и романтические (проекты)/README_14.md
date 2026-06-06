@@ -1,3 +1,30 @@
+###  Публикация: 822310   (481644) от 17.09.2014
+
+VideoHive - Heart Picture Frames - 6822560 [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481644.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора: - Вы можете использовать этот проект для свадьбы, Дня Валентина и других событий.
+Превью и файл помощи - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C85993A5C86EC189C663154E2E3F6B3FE912DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822271   (481360) от 17.09.2014
 
 VideoHive - Wedding Bells - A Dream Wedding Pack - 1401533 [AEP]
@@ -659,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882A125A5712EDE251D7F717EBA34F60F7AB2970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704933   (452939) от 28.09.2013
-
-Проекты - VideoHive - Grand Wedding - 4884712 [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый свадебный проект в сепии.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23828CB972DBDD1964C0A85DD4505EEA4E6F8F56
 ```
 
 https://mybot314.ru/tekegram_catalog/

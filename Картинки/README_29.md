@@ -1,3 +1,55 @@
+###  Публикация: 1798622   (17126) от 24.05.2025
+
+Картинки - jaceyadrian - Creative Fabrica - Deep Purple Mandala Inspired Wallpaper [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения в стиле тёмно-фиолетовой мандалы.Формат: JPGРазрешение файлов: 11783 x 11783
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3A8CC1DF99E3C8DCB2F667C1A5787AB2269FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804899   (12781) от 02.07.2025
+
+Картинки - LunaGirl - Vintage Advertisements, Posters & Trade Cards [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти 1000 изображений VINTAGE ADVERTISING ART and EPHEMERA: викторианские торговые карточки, старинные рекламные объявления, антикварная печатная реклама, плакаты в стиле модерн, патриотические плакаты времен Первой мировой войны и многое, многое другое — тщательно организовано, многие изображения с датами.Формат: JPGРазрешение файлов: Разное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA4A95D2E013ED06E0165D90420A0BB97AC7E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805964   (12069) от 09.07.2025
 
 Промты - SevenUnited LLC - 726 Ai Art Prompts for Style References: Vol 3 - 5318427 [TXT, JPG]
@@ -616,59 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42E7CDE5F9E4C9918DD8B706F89DB8B3F1C38F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815246   (5379) от 29.08.2025
-
-Промты - SevenUnited LLC - 634 Ai Art Prompts For Cute Kawaii Vol 4 - 6948569 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект из 634 промтов для ИИ по созданию милых кавайных изображений: том 4. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE704ED10C276736AC53364B8EAF44F8ECC8F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815429   (5250) от 30.08.2025
-
-Картинки - Wallpapers Mix №1960 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококачественные обои в новом сборнике на ваш рабочий стол.
-Количество 583.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AB0A8AA8FF144F1E84BBA1FF582AB90875F9F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 939422   (475703) от 21.09.2015
+
+Jasmine Thompson - Another Bundle of Tantrums (2014) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drop Your Guard (03:14)
+02. Royals (03:25)
+03. Wrecking Ball (03:59)
+04. Rather Be (04:08)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F113C9A095831D7A1FDD18BD7E544C78E0D1EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160687   (474141) от 25.08.2017
 
 VA - Festivalbar '78  (1978) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop>
@@ -757,35 +786,6 @@ Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:236B1FB0165DEFA232A069459D0CA6BD3966BE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568793   (457908) от 10.08.2022
-
-VA - NOW That's What I Call Music! Vol. 83 (2022) [MP3|320 Kbps] <Hip Hop, Rock, Afro Beat, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kendrick Lamar - N95
-02. Dove Cameron - Boyfriend
-03. Em Beihold - Numb Little Bug
-04. Tyga, Doja Cat - Freaky Deaky(   Читать дальше...   )Жанр: Hip Hop, Rock, Afro Beat, SynthpopПродолжительность: 01:06:53 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49858AE5CD3B0BB9342363F71E549E5F20447E84
 ```
 
 https://mybot314.ru/tekegram_catalog/

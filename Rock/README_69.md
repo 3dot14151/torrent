@@ -1,3 +1,319 @@
+###  Публикация: 374051   (317103) от 30.11.2012
+
+Pink Floyd - Live at... (1967-1980) (Bootlegs) [MP3|320 kbps]<Rock / Psychedelic Rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock / Psychedelic RockПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A25CC6F434F08CF59ACD829B30C4DF99EAD8810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959527   (317086) от 24.11.2015
+
+Status Quo - Accept No Substitute: The Definitive Hits (2015) 3CD [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jam Side Down
+02. Blues And Rhythm
+03. Old Time Rock And Roll
+04. The Party Ain't Over Yet(   Читать дальше...   )Жанр: RockПродолжительность: 03:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E211D3FF1C7BA0C31182FCB85E88EE11D52261F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076191   (316115) от 24.11.2016
+
+Bread - The Best Of Bread (1973) Remastered, 2015, Audio Fidelity [MP3|320 Kbps] <Classic Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It With You
+02. Everything I Own
+03. Diary
+04. Baby I'm-A Want You(   Читать дальше...   )Жанр: Classic Rock, Soft RockПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D0C71D6DC4D4E6491D49FA3A48689926FC6C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421737   (315522) от 06.11.2020
+
+Albert Bouchard - Re Imaginos (2020) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am The One You Warned Me Of (05:13)
+ 02. Del Rio Song (05:34)
+ 03. In The Presence Of Another World (06:00)
+ 04. Siege And Investiture Of Baron Von Frankenstein's Castle At Weisseria (05:24)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0C9554BE347F960392A59B9DBD7E2CBBD29C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421811   (315429) от 06.11.2020
+
+VA - Led Zeppelin Salute - Get Some More Led Out (2011) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howard Hart - Bring It On Home
+02. Lew Nottke - Good Times, Bad Times
+03. Brian Tarquin - Communication Breakdown
+04. Larry Van Fleet - Out On the Tiles(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1889CDEE4E2883D7095FC866EBAC7B178F7F495C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959612   (314717) от 25.11.2015
+
+The Who - Live in Hyde Park 2CD (2015) [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm One - 04:22
+02. Love Reign O'er Me - 07:33
+03. Eminence Front - 05:48
+04. Medley: Amazing Journey / Overture / Sparks - 09:16(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A64E8D10ABD92F0E1D7B64C938A24024D738BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583233   (314666) от 13.10.2022
+
+Loggerhead - Terrestrials (2022) [MP3|320 Kbps] <Sludge, Psych, Doom, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dire Wolf [00:07:04]
+02 Tarantula Hawk [00:06:13]
+03 Chains [00:09:47]
+04 Thunderbird [00:09:28](   Читать дальше...   )Жанр: Sludge, Psych, Doom, StonerПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA43D0E2932A9DDF5669E72D5117E5F24FEF2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583230   (314654) от 13.10.2022
+
+Bloody Hammers - Washed in the Blood (2022) [MP3|320 Kbps] <Heavy Rock, Doom, Horror Occult>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Black Sunday [00:03:43]
+02 Phantasmagoria [00:03:37]
+03 And Soon The Darkness [00:04:01]
+04 At Midnight I'll Take Your Soul [00:02:54](   Читать дальше...   )Жанр: Heavy Rock, Doom, Horror OccultПродолжительность: 00:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956DADA7DA887348A16E075150F32BC0293631C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582954   (314652) от 13.10.2022
+
+The Northern Rocket - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Garage>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Around The World [00:03:42]
+02. The Mouflon´s Tale [00:08:39]
+03. Set Me Free [00:05:23]
+04. And Then You Came [00:04:36](   Читать дальше...   )Жанр: Heavy Rock, Stoner, GarageПродолжительность: 00:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6479045A110C3C814E4E4897B3043671F3DC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582959   (314559) от 13.10.2022
+
+Glass Hammer - At The Gate (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Years Roll By (7:37)
+02. Savage (6:25)
+03. North of North (4:28)
+04. All Alone (6:03)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411A42532C0B4B46D0CDDED61346CC6BCFB45537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583052   (314533) от 13.10.2022
+
+Roxette - Tourism (1992) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Do You Do! (Studio Halmstad & Stockholm)
+02. Fingertips (Studio Rio De Janeiro)
+03. The Look (Live Sydney)
+04. The Heart Shaped Sea (Studio Los Angeles)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8300C3675320B654888A7CC0A90F8DCE7A4CDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582977   (314522) от 13.10.2022
 
 Roxette - Joyride (1991) [OGG Vorbis|480 Kbps] <Rock, Pop>
@@ -426,331 +742,6 @@ Mgzavrebi - Geo (2018) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6AD6BA09EF53D430443284F6946E080C8186D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583163   (307381) от 04.12.2012
-
-Shocking Blue - Venus-The Best Of (1993) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Venus
-02.Hot Sand
-03.Deamon Lover
-04.Never Release the One You Love
-05.Blossom Lady
-06.Shocking You
-07.Long and Lonesome Road
-08.Never Marry a Railroad Man
-09.Mighty Joe
-10.Ink Pot(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68458BF9286AF00CF7AACB08406C5296BC7F3658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077433   (306989) от 28.11.2016
-
-Preacher Stone - Remedy (2016) [MP3|320 Kbps] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Collar Son (04:24)
-02. Lazarus (05:22)
-03. The Sign (04:17)
-04. Living The Dream (03:30)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5CE6AA2A8601E5ED840E332B584CB231EB5E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422790   (306302) от 10.11.2020
-
-Temple of Switches - The Wings of Mind (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melba (05:49)
- 02. Pondering (06:02)
- 03. Freon Suitcase (04:23)
- 04. Living on the Edge (03:12)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6CDF9E21A53D75FBC5A9FBB45C1F8337E3BBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261205   (305582) от 10.11.2018
-
-Ace of Cups - Ace of Cups (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction: There's a Record Being Made
-02. Feel Good
-03. Pretty Boy
-04. Fantasy 1 & 4(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Psychedelic RockПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89BE27F5F6267F215C04BB2DA8CA4A965556C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078082   (304297) от 29.11.2016
-
-The Rolling Stones - Blue and Lonesome (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Your Fool
-02. Commit A Crime
-03. Blue And Lonesome
-04. All Of Your Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C58E9FDC4457B59BB8C48F8DCC3F588C88BD93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333495   (303410) от 25.10.2019
-
-J:МОРС - 20 лет. Полёт норм! (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Нравится
-2. Блізка
-3. Воздух
-4. Не мой дождь(   Читать дальше...   )Жанр: RockПродолжительность: 01:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5388F7DC9D741A57A66F5DDEFAB4660A63DC487E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333244   (303279) от 25.10.2019
-
-VA - Shine On You Crazy Diamond A Tribute To Pink Floyd's Greatest Hits (2018) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Side of the Moon - Shine On You Crazy Diamond 06:26
-02. UK Floyd Division - Time 06:26
-03. BERZON - Comfortably Numb 05:09
-04. The Nashville Suns - Learning to Fly 02:16(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFBE94238182D782289F7E1B2FC168B00E2FC083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261546   (303269) от 11.11.2018
-
-VA - Gottschalks Rock Classics (2018) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Status Quo - Whatever You Want
-02. Kiss - I Was Made for Loving You
-03. Golden Earring - Radar Love
-04. Journey - Don't Stop Believin'(   Читать дальше...   )Жанр: Classic RockПродолжительность: 02:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2226CA4BD476CF2A82838902DC38B8003A2598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961098   (302939) от 30.11.2015
-
-Joe Cocker - The Life of a Man (The Ultimate Hits 1968-2013) (2015) 2CD [MP3|320 кб/с]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Night Comes
-02. Come Together
-03. First We Take Manhattan
-04. Summer In The City(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F2F1333002C56EB0B928E40308ED1932FC5296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260968   (302544) от 11.11.2018
-
-Imagine Dragons - 4 Albums (2012-2018) [MP3|320 Kbps] <Indie Rock, Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Night Visions (2012)
-Smoke + Mirrors (2015)
-Evolve (2017)
-Origins (2018)Жанр: Indie Rock, Alternative Rock, Pop RockПродолжительность: 04:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0315C7F0341B58A30F672E7137D7282BAE39E40F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423204   (302447) от 12.11.2020
-
-Kadavar - Studio Live Session Vol. I (2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (02:26)
- 02. The Devil's Master (05:02)
- 03. Evil Forces (05:24)
- 04. Into The Wormhole (05:06)(   Читать дальше...   )Жанр: Psychedelic Rock, StonerПродолжительность: 01:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA29C4E64353378AF13AB5640A986173043532FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 638002   (897879) от 01.04.2013
+
+VA - 69 Must Have Chillout & Lounge Songs (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:56:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993977   (893973) от 06.03.2016
 
 Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
@@ -722,35 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C40728459FDF0EA0C11A6B25718FCE6842E9A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108539   (862579) от 25.02.2017
-
-Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashrouk
-02. Darkness
-03. Ethnika
-04. I Love You (Dimitra)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897CA1392BA1DDFFB1FA62BBCE94260106425DA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

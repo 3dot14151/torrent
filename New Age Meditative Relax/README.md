@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1874405   (1071869) от 02.06.2026
+
+ERA - ERA VIII (2026) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fallen King [04:03]
+02. Everything's Gonna Be Alright [03:35]
+03. Will You Call My Name [03:27]
+04. Not You Again [05:03](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A011A1F1FA557471B099E45AC6875CEED71D5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860850   (1064189) от 30.03.2026
 
 Александр Софикс - Дискография (2004-2009) [MP3|320 Kbps] <New age, Instrumental>
@@ -717,38 +746,6 @@ Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9766A27218E70EB97ACB7B62050D1CB1CC65DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602115   (997585) от 13.01.2013
-
-Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Arrow Chamber 11 [00:08:16]
-02. Ancient Arrow Chamber 12 [00:08:13]
-03. Ancient Arrow Chamber 13 [00:10:32]
-04. Ancient Arrow Chamber 14 [00:04:27]
-05. Ancient Arrow Chamber 15 [00:06:38]
-06. Ancient Arrow Chamber 16 [00:06:53]
-07. Ancient Arrow Chamber 17 [00:07:27]Жанр: Native American,New AgeПродолжительность: 01:01:21 + 00:34:47 + 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1338395   (269768) от 15.11.2019
+
+VA - Another Side Of Fancy Part Two (2014) 2CD, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabine Sauvant - Cashbah In Cairo (Long Version) (5:24)
+02. Red Face - Down On The Corner (Long Version) (5:20)
+03. Tom Spencer - Get Love (12'' Version) (5:29)
+04. Paul Mc Douglas - Turbo-Geil (12'' Version) (6:37)(   Читать дальше...   )Жанр: Euro-Disco, Hi-NRGПродолжительность: 02:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C9455E15756E1B93C012AC7657F025E4A6FEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267030   (268382) от 04.12.2018
+
+Video Kids - On Satellite (2011) Unofficial Release [FLAC|Lossless|image + .cue] <Euro-Disco, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satellite (2:56)
+ 02. Let The Music Play (3:14)
+ 03. It's Not Easy (3:13)
+ 04. The Zoo Song (3:21)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A382D0C4F220D900E08CFFD2295E10F7FDD1111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267031   (268251) от 04.12.2018
+
+Mike Mareen - Greatest Hits & Remixes (2017) 2CD [FLAC|Lossless|image + .cue] <Italo,Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mike Mareen Essential Megamix (Nextanimal Edit) 8:05
+02. Love Spy (7inch Version) 4:16
+03. Dancing In The Dark (7inch Version) 3:31
+04. Stand Up (7inch Version) 3:59(   Читать дальше...   )Жанр: Italo,DiscoПродолжительность: 02:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A051BD4E13CADD8480198A991E91FD887D4A737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339895   (264272) от 22.11.2019
+
+VA - Italoconnection: Remixes Vol. 2 (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atelier Folie - Freedom Time (Italoconnection Remix) (6:14)
+02. Josep Xorto & The Congosound - Aixo Que Sona Es Nostre (Italoconnection Remix) (5:05)
+03. Aleph - Fly To Me (Italoconnection Remix) (5:38)
+04. Synergic Silence - Follow Your Instinct (Italoconnection Remix) (5:47)(   Читать дальше...   )Жанр: Italo-Disco, ElectroПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230ACEC543E12E830544EB87D68E9F9500257392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191873   (263767) от 15.12.2017
+
+VA - Italo Golden Classics (2 CD) (1996) [FLAC|Lossless|image + .cue] <Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263767.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Sandy Marton - People From Ibiza
+02. Fun Fun - Happy Station
+03. Radiorama - Chance To Desire(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1782F326BCB73110B6BCE8200AA5B64BEBFBDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341125   (262893) от 26.11.2019
 
 VA - ZYX Italo Disco Spacesynth Collection (2014) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
@@ -610,151 +755,6 @@ Bad Boys Blue - Around the World (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F44FC888600538B01B13309D0C102156B41FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341669   (228486) от 29.11.2019
-
-Boney M. - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228486.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Daddy Cool 3:28
-02. Sunny 4:02
-03. Ma Baker 4:34(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544F4D8095F0E5DA9CEBBBC158437B5ACF1D766A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583738   (226635) от 17.10.2022
-
-Fun Girl - The Album (2022) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Control (Feat. Amaya) 3:54
-02. A Brighter Day (Extended Mix) 6:15
-03. Baila Bandolera (Extended Mix) 8:58
-04. Forever Young (Extended Mix) 7:34(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3735B8EFF3826820D83C2E2B0947C22789A407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584075   (226180) от 17.10.2022
-
-Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмечая 50-летие своей музыкальной карьеры Cerrone со товарищи выпустил свои 16 культовых классических произведений в версии 2022 года, переработав и смикшировав их собственноручно.01. Give Me Love (feat. Brendan Reilly)
-02. My Desire (feat. Brendan Reilly)
-03. Got to Have Lovin' (feat. Brendan Reilly)
-04. Look for Love (The Reflex Revision)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E4AB074948FA16A1EFFC2C5C12FD480F280D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342062   (225471) от 01.12.2019
-
-VA - ZYX Italo Disco Spacesynth Collection 4 (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - Force Of Order (5:24)
-02. Some Bizarre - Don't Be Afraid (Bellatrix Remix 2017) (7:18)
-03. Vanello - Planet Earth (Extended Version) (6:30)
-04. Oblivion - A Voice Of The Universe (6:46)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E10D74C49A389946998B0F2A6B0AF1484C008CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342070   (225437) от 01.12.2019
-
-VA - ZYX Italo Disco Spacesynth Collection 5 (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - Trans Space Express (5:59)
-02. Italove - At The Disco (Bellatrix Dub Space Remix) (6:08)
-03. Victor Ark - Lost In Time (5:07)
-04. Mind Control - The Gate (6:15)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11FCFD93807A4B5AF4B8FCFCBB9575F01C32B61
 ```
 
 https://mybot314.ru/tekegram_catalog/

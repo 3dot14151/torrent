@@ -1,3 +1,83 @@
+###  Публикация: 1500116   (842210) от 05.10.2021
+
+Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы - Windows 11 Build 22000.194.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4486AACD85D222740875F7A1031017BE7C0EE5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500118   (842207) от 05.10.2021
+
+Microsoft Windows 11 IoT Enterprise [10.0.22000.194] - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 IoT Enterprise - это полная версия Windows 11, которая обеспечивает корпоративную управляемость и безопасность решений интернета вещей. Windows 11 IoT Enterprise использует все преимущества всемирной экосистемы Windows. Он эквивалентен Windows 11 Enterprise, но также включает оптимизацию для выделенных устройств с ограниченным объемом памяти. Это означает, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432A5D312F3C960FA6016CB275A3C7433FD9EBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868660   (837507) от 06.04.2016
+
+Windows 8.1 with Bing OEM (x86 x64) 6.3.9600 [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837507.jpg" />
+</div>
+
+
+###  Подробнее
+
+При помощи Windows 8.1 с Bing изготовители оборудования (OEM) могут установить Windows на недорогие устройства и предоставить пользователям доступ к службам Майкрософт, таким как Bing и OneDrive.
+В данном выпуске Windows компонент Bing устанавливается в Internet Explorer в качестве поисковой системы по умолчанию. Пользователи смогут вручную изменить параметры поиска (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FBEDA79D6143E099463D1CE774BB326A8FA401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004387   (835745) от 07.04.2016
 
 Microsoft Windows 8.1 Pro for Education with Update [Ru]
@@ -610,85 +690,6 @@ Windows 10 (60in2) Sergei Strelec x86/x64 1909 (build 18363.836) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FA049137B690BA77F40D15C0144D4D598E47279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382986   (812829) от 14.05.2020
-
-Языковые пакеты (Language packs) для Windows 10 10.0.19041.208 Version 2004 x86-x64 [Multi/Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор языковых пакетов для Windows 10 10.0.19041.208 Version 2004 для интеграции с помощью утилиты DISM (ADK).Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7682D32143702CF5E4D71EC825E8CD245B136286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382858   (812824) от 14.05.2020
-
-Windows Server, Version 2004 (10.0.19041.208) - Оригинальные образы от Microsoft MSDN [En/Ru]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7095A0C80D1A13AAB3D292BD87E36C9D06290CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382856   (812810) от 14.05.2020
-
-Microsoft Windows 10.0.19041.208 Version 2004 - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.208.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F49E6840F7C774E26C0102B60AA79FDC98E83A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

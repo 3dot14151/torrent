@@ -1,3 +1,89 @@
+###  Публикация: 1212898   (774513) от 14.03.2018
+
+VA - Song For Isabelle (2018) [MP3|320 Kbps] <Psy, Goa, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774513.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Astrix, DJane Gaby - New Earth Portal Intro
+002. Blastoyz - Mandala
+003. Eat Static - Walkin' With Spirits
+004. Strange Blotter & Mystic - Ozrayen (Original Mix)(   Читать дальше...   )Жанр: Psy, Goa, TranceПродолжительность: 11:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B7EA3DBB1D471422A5CA3B4B68711510F609AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015555   (774370) от 11.05.2016
+
+VA - Future Trance Energy 001 May (2016) [MP3|320 кб/с] <Trance, Melodic, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amir Hussain - Tylos (Original Mix) 8:05
+02. David Gate - Sad Lovers (Alternate High Remix) 8:37
+03. RAM - Heartfelt (Allen Watts Remix) 6:45
+04. 7Wonders - Lost (Obi Remix) 6:04(   Читать дальше...   )Жанр: Trance, Melodic, HarmonicПродолжительность: 02:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8487442596F590C2F382A0B8C6DD161F5669C468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015644   (774368) от 11.05.2016
+
+VA - Heartbeats of Love (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amy More - Brighton Beach Dreams (05:08)
+02. Tarena - Freeze of Time (02:56)
+03. Esteban Garcia & Subworks - Never Give Up (Esteban Garcia vs. Subworks)Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133B03734B53F3F200879804A47492C1AC65A549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015603   (774349) от 11.05.2016
 
 VA - Rush Club Music Obsession (2016) [MP3|253-320 кб/с] <Tech-House, Funky, Tropical, Progressive-House>
@@ -669,93 +755,6 @@ VA - Wine Lounge Vol.2: 25 Bar Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C09C111FDC6E3F24D27084DFE4A0F475A5E1B952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016140   (771588) от 13.05.2016
-
-VA - Deep House Remix Compilation (2016) [MP3|320 кб/с] <Deep House, Electro, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771588.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Autodidact Feat Laura - Az Erzes (Moti Brothers Remix) 07:55
-002. Circuito Zeta - Step Down 07:18
-003. Poenitsch & Jakopic - Return To You (Sun Mix) 05:35
-004. Qubiko - If You 06:20(   Читать дальше...   )Жанр: Deep House, Electro, Club, DanceПродолжительность: 10:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1168328CCBC7D0A6597ECACC03D5044D8733A839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016398   (770542) от 14.05.2016
-
-VA - Out Of Trance Airspace (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elfsong - Tesseract (Jeremy Rowlett Remix) 7:48
-02. Solarstone - Lost Hearts (Mark Sherry Remix) 7:27
-03. Yuri Kane & Ana Criado - Running Wild (Liam Wilson Remix) 6:33
-04. Paul Oakenfold - Shanghai Baby (Joyriders Remix) 6:01(   Читать дальше...   )Жанр: TranceПродолжительность: 07:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E183CC4F61E3C22D36A90C2D2987AFBF45BC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016450   (770538) от 14.05.2016
-
-VA - House Music All Night Long (2016) [MP3|320 кб/с] <Dance, Electro House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aldo Moraes - Aria de Rio (Ipanema Beach Mix) (feat. Tony Trumpetta)
-02. Alan Brooker - Ritmo Profundo (Piano House Club Mix)
-03. Mark Moragui - The Oath and the Man (Long Groove Mix)
-04. Minimal Warriors - NCIS Tec (Ibiza Mix)(   Читать дальше...   )Жанр: Dance, Electro House, Tech HouseПродолжительность: 01:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2FCBC2599837132385465ABBD1AE8283BE95CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

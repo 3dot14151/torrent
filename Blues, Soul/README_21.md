@@ -1,3 +1,67 @@
+###  Публикация: 529229   (569337) от 30.07.2012
+
+VA - Crucial Acoustic Blues (2007) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Guy  & Junior Wells - High Heel Sneakers (4:57)
+02. Lonnie Mack with Stevie Ray Vaughan - Oreo Cookie Blues (4:52)
+ 03. Carey&Lurrie Bell - Stop Running'Round (4:24)
+ 04. Steady Rollin' Bob Margolin with Nappy Brown - Downin The Alley (4:17)
+ 05. Saffire - The Uppity `Blues Women - Sloppy Drunk (3:09)
+ 06. Koko Taylor with Keb'Mo' - The Man Next Door (5:14)
+ 07. John Jackson - Railroad Bill (4:02)
+ 08. Johny Winter - Evil On My Mind (2:21)
+ 09. Cephas & Wiggins - Trouble In Mind (3:07)
+ 10. Sonny (   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1F1E85F288731D282B6D8A7BE093747D62BD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922575   (568231) от 29.07.2015
+
+Marvin Gaye - Les Genies du Rock - Live (1993) [MP3|320 кб/с]<Soul,Funk,R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I heard it through the grapevine (4:57)
+02.  Come get to this (3:00)
+03.  Let's get it on (5:20)
+04.  God is love (2:32)(   Читать дальше...   )Жанр: Soul,Funk,R&BПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94988D0AE896166157C2EFEBA0E803C1CAB9212A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528637   (568191) от 30.07.2012
 
 J.J. Cale - Дискография (26 альбомов)(1967-2011)[MP3|320 kbps]<Blues|Americana|Swamp Rock|Red Dirte>
@@ -693,64 +757,6 @@ The Record Company - All Of This Life (2018) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B20258EEAF83B7A628924C9E2017807B60CB364F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925454   (541401) от 06.08.2015
-
-Phantom Blues Band - Inside Out (2011) [MP3|320 кб/с]<Funky Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stand It (02:50)
-02. A Good Time For The Blues (03:16)
-03. Boogah Man (03:28)
-04. So Far From Heaven (06:01)(   Читать дальше...   )Жанр: Funky BluesПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D09433F1C30463883032CED10757551D74A684B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154326   (541050) от 30.07.2017
-
-Christ Ruest & Gene Taylor - It's Too Late Now (2017) [MP3|320 Kbps] <Chicago Blues, Jump Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Mixed Up World (03:21)
-02. Mr. Police Man (03:38)
-03. It's Too Late Now (03:25)
-04. That Will Never Do (03:24)(   Читать дальше...   )Жанр: Chicago Blues, Jump BluesПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD1B93D474E809FDDAABEFEF8C270C99493AEED
 ```
 
 https://mybot314.ru/tekegram_catalog/

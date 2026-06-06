@@ -1,3 +1,148 @@
+###  Публикация: 1374679   (872578) от 10.04.2020
+
+VA - Acoustic Rock vol.4 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Sour - Wicked Game - Acoustic; Live (04:27)
+02. Stone Sour - Through Glass (04:42)
+03. Seether - Broken (04:17)
+04. Staind - Epiphany (04:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82ADC00BEE2BE93793DC13BC56D09E5DFABBD9AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374545   (872437) от 10.04.2020
+
+Billy Idol - 100% Billy Idol (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Sixteen (Live in Odense)
+02. Shock To The System
+03. Flesh For Fantasy (Below The Belt Mix / 2001 Digital Remaster)
+04. Sweet Sixteen (Live On VH1 Storytellers, New York City, New York/2001)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 06:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5115A17D0842F8077608BB7B2A783343024536C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374577   (872279) от 10.04.2020
+
+Joe Cocker - 100% Joe Cocker (2020) [MP3|320 Kbps] <Rock, Pop>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feels Like Forever
+02. Now That the Magic Has Gone
+03. Unchain My Heart
+04. Night Calls(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D663D90B844C1F16C559819BD6382388EBB7DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996597   (872043) от 18.03.2016
+
+Agialis - Компиляция (2016) [MP3|320 кб/с] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.10 шагов[04:05]
+02.Ghostbusters(cover)[03:20]
+03.Ангелы[03:41]
+04.Вьюга[05:02](   Читать дальше...   )Жанр: МеталлПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFE2989E5CE0AD452B86E76ABFEC4638CB6E44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375138   (868983) от 12.04.2020
+
+VA - Acoustic Rock vol.3 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America - A Horse with No Name (04:12)
+02. Bread - Everything I Own (03:07)
+03. Faces - Ooh La La (03:34)
+04. Alanis Morissette - Ironic - Acoustic Version (03:55)(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1199BDF5A56B472712B1349C871022942FB5CFBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375081   (868903) от 12.04.2020
 
 Robert Plant - 100% Robert Plant (2020) [MP3|320 Kbps] <Rock>
@@ -606,151 +751,6 @@ VA - The Best Rock Ballads (2017) [MP3|320 Kbps] <Heavy, Power, Alternative, Mod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBDD040307958DB8D7377E4269D5BD2B4344D23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376604   (858263) от 18.04.2020
-
-Deep Purple - 100% Deep Purple (2020) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time for Bedlam
-02. Smoke On The Water (1997 Digital Remaster)
-03. Gethsemane (I Only Want To Say)
-04. Perfect Strangers(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 05:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451597FFFF552C9074E5537014B8DE054578DB40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000780   (857520) от 26.03.2016
-
-VA - Dr. Metal Presents: Vol.6 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857520.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Helloween-Battle`s Won
-002. Blazon Stone-Fire The Cannons
-003. Fireland-Ancient Time
-004. Luca Turilli-In The Mirror(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BA2662357AF392C0B95391C62BC83ADCF6B4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376906   (856562) от 19.04.2020
-
-Creedence Clearwater Revival & John Fogerty - 100% Creedence (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - Born On The Bayou
-02. Creedence Clearwater Revival - I Heard It Through The Grapevine (Edit)
-03. John Fogerty - In The Garden
-04. Creedence Clearwater Revival - Lodi(   Читать дальше...   )Жанр: RockПродолжительность: 03:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2BDC1A60BBA97FA322FB1317A3B3C9E91E6E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376873   (856457) от 19.04.2020
-
-The Beatles - Realized beyond & after Beatles (De-Noised) 3 CD (2020) Remaster SMRP [MP3|320 Kbps] <Classic Rock>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-01. Paul McCartney - Junk (1970) (01:56)
-01-02. Paul McCartney - Teddy Boy (1970) (02:25)
-01-03. George Harrison - All Things Must Pass (1970) (03:47)
-01-04. George Harrison - Hear Me Lord (1970) (06:01)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 06:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72CABBC00FBA4936451EC177A00EF037C61FACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001024   (855532) от 27.03.2016
-
-VA - Dr. Metal Presents: Vol.7 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sinbreed-Creation Of Reality
-002. Dark Empire-Northern Sky
-003. AtVance-Right or Wrong
-004. StormWarrior-Odinn's Warriors(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544CE74059C1DCB52E2E3A3D77A13F83E3D6B447
 ```
 
 https://mybot314.ru/tekegram_catalog/

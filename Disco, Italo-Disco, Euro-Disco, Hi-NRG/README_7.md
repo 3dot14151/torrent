@@ -1,3 +1,61 @@
+###  Публикация: 1009165   (811789) от 20.04.2016
+
+Patty Ryan - Golden Disco Hits (2001) [MP3|320 кб/с] <Eurodisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You’re My Love, You’re My Life (04:30)
+02. I Don't Wanna Lose You Tonight (04:06)
+03. Love is the Name of the Game (03:38)
+04. Love Emotion (04:14)(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE78A08C3C8F1B265E8285D0FAEB965037B076B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118942   (811376) от 26.03.2017
+
+Baby's Gang - Challenger (2016) Deluxe Edition [MP3|320 Kbps] <Italo-Disco, Synth-pop >
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Challenger (05:18)
+02. Jamin (05:58)
+03. Happy Birthday (To My Mammy) (04:57)
+04. Happy Song (Remix) (05:38)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B6B0841F5D87392049A6E8F77075C9B276898E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505005   (808335) от 25.10.2021
 
 Laura Taylor - Dancin' In My Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
@@ -687,64 +745,6 @@ VA - Italo Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:876D8B8186F8C4A08512D3BCE8C7501F2A77BF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121881   (799626) от 03.04.2017
-
-VA - Italo Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799626.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Reale Accademia – Beautiful Witch (04:51)
-2. Galvanica – Nightlights In Japan (06:16)
-3. Bryan Baker – Niagara Falls (06:14)
-4. Keepers – Notty Girl (07:56)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF65085502307875A744A9158D65023D4C1840A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121923   (799614) от 03.04.2017
-
-VA - Italo Disco - The Lost Legends Vol. 5 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799614.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mod-it – Physical Fascination (05:18)
-2. Paul Boy – Lucky Guy (05:15)
-3. Lettieri – Melody (06:04)
-4. Joe Car – Dancing Dode (06:18)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382CC84914FABBE968AFF098C0CEE4DA9D739A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

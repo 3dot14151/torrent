@@ -114,6 +114,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 265328   (312923) от 02.12.2010
+
+VA - Шедевры инструментальной музыки. Романтическая серия (2010) [MP3|256-320 kbps]<Инструментальная>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_312923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Per Elisa
+02. Pan Flute
+03. Concerto De Aranjuez
+04. The Lonely Shepard
+05. Tears In Heaven
+06. Feelings
+07. Barcarolle
+08. Scarborough Fair
+09. LUltimo Dei Mohicani
+10. Sound Of Silence(   Читать дальше...   )Жанр: ИнструментальнаяПродолжительность: 05:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFF7D8A21926F9A8C5E9DE842A8794D11956F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076583   (311732) от 26.11.2016
 
 VA - Christmas Play Chill: Chill and Christmas (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -722,35 +757,6 @@ VA - The Landscape Of Pleasure (2018) [MP3|320 Kbps] <Ambient, Downtempo, Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E06AC083FF9773FEF467209934E1798E245DA3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964421   (282416) от 11.12.2015
-
-VA - Baby Its Cold Outside Christmas Love (2015) [MP3|320 кб/с]<Instrumental, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marian Aas Hansen - Baby it's Cold Outside
-02. Stine Hole Ulla - Шyeblikk
-03. Kjell Inge Torgersen - Song om jul
-04. Shackles - A Christmas Kiss With You(   Читать дальше...   )Жанр: Instrumental, Downtempo, ChilloutПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB023369522BD5EB88A11A5F0DABB943573AA1A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

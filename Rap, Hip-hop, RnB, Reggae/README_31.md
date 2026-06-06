@@ -1,61 +1,3 @@
-###  Публикация: 1432846   (162890) от 18.12.2020
-
-Eminem - Music To Be Murdered By: Side B (2020) Deluxe Edition, Explicit [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premonition (Intro) [00:02:53]
-02. Unaccommodating [00:03:36]
-03. You Gon’ Learn [00:03:54]
-04. Alfred (Interlude) [00:00:30](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 2 CD, 01:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62018A44072E1A106DE03CE203829091569EECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598786   (161921) от 20.12.2022
-
-Гуляй Рванина (Черная Экономика) - Сонный паралич (2022) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мост на остров [00:02:18]
-02 - Кисть касается полотен [00:02:01]
-03 - Сеанс гипноза [00:02:36]
-04 - Каждый верит [00:02:16](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A2B25716AB5D615C0AFA355FF799DD511FF978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433115   (161798) от 19.12.2020
 
 Eminem - Music To Be Murdered By - Side B (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -757,6 +699,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F7DE187D1F5FF9F9E2E205AD4701F2C03DFAFDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682864   (131076) от 08.12.2023
+
+VA - Chillhop Essentials Winter (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ØDYSSEE, Ruck P – Lost Memories, ft. Bastien Brison (3:33)
+02. Masked Man – Unknwn (2:19)
+03. Boukas, A D M B – Let Go (Philanthrope Remix) (2:18)
+04. G Mills – 30 (2:25)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80600D428C848E438E66407D0782648AD7209173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684945   (127112) от 19.12.2023
+
+Переучёт (Oxxxymiron) - Семейный альбом (2023) [MP3|320 Kbps] <Alternative, Hip-Hop, Experimental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Заходи скорее
+02 Всё сразу
+03 Макдональдс
+04 Семейный альбом(   Читать дальше...   )Жанр: Alternative, Hip-Hop, ExperimentalПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DB1A41C96434D867935D400710EEA4F2AC23E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1379924   (830754) от 04.05.2020
+
+Salvador Candel - Tocando Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830754.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bailando en las estrellas 03:02
+2. Eternidad 05:05
+3. Tocando cielo	04:41
+4. Abrazando a la tierra 08:49(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A194CA22B59CB6D82EBD3A089359778BCDA401D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501928   (830003) от 13.10.2021
 
 Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -711,35 +740,6 @@ Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4EE97FD60F2F10445864768A393B7950088A5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197875   (811881) от 09.01.2018
-
-Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildwood
-02. Wildwood Priestess
-03. Old Gods & Ancient Stones
-04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA32906844ED94D6BC997E48376485668F309F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

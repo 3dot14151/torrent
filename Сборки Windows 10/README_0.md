@@ -1,3 +1,32 @@
+###  Публикация: 1841370   (1047918) от 10.12.2025
+
+Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6691 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
+Установлены обновления по 10.12.2025 года включительно
+Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C6511A2B0CC54CEEC75F4A25C2348FCE6F6D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840516   (1047375) от 16.12.2025
 
 Windows 10 Pro 22H2 19045.6575 x64 by SanLex [Lightweight] [Ru/En]
@@ -662,32 +691,6 @@ Windows 10 (74in2) Sergei Strelec x86/x64 1809 (build 17763.557) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DA4995EAAD74561A0A0F6025386D12EED6A4E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559130   (526926) от 24.06.2022
-
-Zver Windows 10 21H2 Enterprise LTSC v.2022.6 x64 [Ru]
-
->>След.
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zver Windows 10 21H2 Enterprise LTSC v.2022.6 x64 собрана на основе дистрибутива Microsoft Windows 10 Enterprise 2021 LTSC Version 21H2, с обновлениями по июнь 2022 года включительно. В сборке присутствует ZverWPI v.6.8 с минимальным набором наиболее необходимых программ.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA2983486F276456C385AA446C04B8D62FCAF6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,161 @@
+###  Публикация: 944004   (444608) от 05.10.2015
+
+Toru Takemitsu (武満徹) - The Film Music Of Toru Takemitsu (1997) [FLAC|Lossless]<Modern Classical, Experimental, Score>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music From Rikyu (15:15)
+02. Music Of Training And Rest (From Jose Torres) (04:44)
+03. Funeral Music (From Black Rain) (04:12)
+04. Waltz (From The Face Of Another) (02:13)(   Читать дальше...   )Жанр: Modern Classical, Experimental, ScoreПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0922F93F674B47B3E768C30FF7D21C60C94BF6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553002   (443533) от 28.09.2012
+
+Kinoco Hotel - 3 альбома (2010-2011) [MP3|192 кб/с]<J-Rock, J-Pop>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinoco Hotel shouka II [2:12]
+02. Shiroi heya [4:06]
+03. Hijou naru yoake [3:02]
+04. Kiken na uwasa (Shukujo shiyou) [3:39]
+05. Fuukei [8:19]
+06. Kinoko no torico [2:31]
+07. Ningyo no koi [2:53]
+08. Kouya he  [4:56]
+09. Aijin kyouhan sekai [3:01]
+10. Marianne no koukotsu [6:07](   Читать дальше...   )Жанр: J-Rock, J-PopПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039B6DC655266ED99447FB13CB1847554147ED5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945018   (437290) от 08.10.2015
+
+Rokugen Alice - 32 альбома (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock, Gothic/Symphonic Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2013.08.12 (RGOT-0001) Fushigi no Kuni no Oto Tetsuraku ~ Mayakashi-hen (C84)
+2014.08.16 (RGOT-0003) Fushigi no Kuni no Oto Tetsuraku ~ Yumegatari-hen (C86)
+2014.12.29 (RGOT-0004) Fushigi no Kuni no Oto Tetsuraku ~ Aku no Mesame (C87)Тип издания: DoujinЖанр: J-Rock, Gothic/Symphonic MetalПродолжительность: 00:17:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3B81BBE0E18161A05DE707831E341AA4B2828D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554936   (433811) от 02.10.2012
+
+VA - Sound Of The Crystal Energy (4 albums) (2009) [MP3|320 кб/с]<Instrumental, Healing>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433811.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Words of the Mountain
+
+(24:06) 01. Words of the Mountain
+
+CD2 - Love of the Earth
+
+(21:17) 01. Love of the EarthЖанр: Instrumental, HealingПродолжительность: 00:45:23
+
+Love and blessing are the ultimate forces that could bring life back to the universal origin and to become one with nature; they also come to be feng shui’s highest state. When our hearts are filled with love and blessing, we would then possess the most blissful and beautiful spiritual feng shui. “The Heart of Blessing” transmits the energies of the mountain and earth through crystal music, and allows for the love in the heart to be firm like the mountain and vast like the earth. It is then transformed into boundless blessings to be shared with all things in the universe.
+
+Любовь и благословение - окончательные силы, которые могли возвратить жизнь универсальному происхождению и стать один с природой; они также становятся самым высоким государством фэншуй. Когда наши сердца заполнены любовью и благословением, мы тогда обладали бы самым блаженным и красивым духовным фэншуй. “Сердце Благословения” передает энергии горы и земли через кристаллическую музыку, и учитывает любовь в сердце, чтобы быть устойчивым (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0B98F2CF8A95BF216BE8B67CF1DA8D95B849CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945418   (433111) от 10.10.2015
+
+Shoujo Byou - 26 альбомов (2004-2012) /Doujin/ [FLAC|tracks] <J-Rock, Gothic/Symphonic Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2011.12.31 (GIRL-2002) Vision -Seiyaku no Heikairo Shikkoku no Otome- (C81)
+2012.04.11 (LACM-4913) unleash
+2012.08.10 (GIRL-1009) Sousyou Crossline (C82)Тип издания: DoujinЖанр: J-Rock, Gothic/Symphonic MetalПродолжительность: 00:18:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D36ACED4958CF25D9199095BF4DA16B7B2C1831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555365   (431700) от 03.10.2012
 
 VA - Walking On The Mountain Paths (2008) [MP3|320 кб/с]<New age, Instrumental>
@@ -637,146 +795,6 @@ VA - Piano In The Movie (3CD) (2012) [MP3|320 кб/с]<Instrumental, New age, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66467CE8947FD3633577840BB12BB584856D6E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567367   (394904) от 31.10.2012
-
-R Shitei - 6 альбомов, 2 компиляции, 16 синглов (2006-2012) [MP3|128-320 кб/с]<J-Rock, Visual kei>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394904.jpg" />
-</div>
-
-
-###  Подробнее
-
-AlbumsЖанр: J-Rock, Visual keiПродолжительность: 00:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4AC5E73286AACA9F84A59D591F0677D0E30E43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567384   (393590) от 01.11.2012
-
-+Plus - 2 альбома, 5 синглов (2009-2012) [MP3|256-320 кб/с]<J-Pop, J-R&B>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393590.jpg" />
-</div>
-
-
-###  Подробнее
-
-AlbumsЖанр: J-Pop, J-R&BПродолжительность: 00:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCE6AB3E49E0AB8CD1FB6946A575BDDA930A587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569172   (389995) от 05.11.2012
-
-Arc - 4 альбома, 4 компиляции, 12 синглов (2005-2011) [MP3|128-320 кб/с]<J-Rock, Visual kei, Oshare kei>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389995.jpg" />
-</div>
-
-
-###  Подробнее
-
-AlbumsЖанр: J-Rock, Visual kei, Oshare keiПродолжительность: 00:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719766D3A82B060F6802D537CA2B399B5E5254E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571817   (387867) от 07.11.2012
-
-VA - Time And Tide (1995) [MP3|320 кб/с]<Instrumental, Ethnic>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387867.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:36) 01. Time And Tide
-(3:27) 02. Dreams Do Not Have To Remember
-(3:10) 03. Wo Shi Chi Qing Wu Xian
-(3:02) 04. Aspirations Of Libertine
-(3:29) 05. Caporiccio
-(4:28) 06. What To Pursue In My Life
-(3:28) 07. Pian Pian Xi Huan Ni
-(3:54) 08. Don't Decorate Your Dream
-(3:59) 09. Silence Is Good Everywhere
-(2:56) 10. Wang Ri Qing(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C237E0C6B0777EB4D59EC771019335E25A265B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833066   (387167) от 21.10.2014
-
-EdelSounds - 2 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Ongaku, J-Pop>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387167.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012.05.27 Evening Wind (Reitaisai 9)
-2013.10.12 Retrospection (Kouroumu 9)Жанр: Touhou, Vocal, Doujin Ongaku, J-PopПродолжительность: 00:01:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531BC67F43CAF20BECFE32CB71C1FE22AAF212C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

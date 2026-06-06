@@ -1,3 +1,119 @@
+###  Публикация: 1776244   (29125) от 31.01.2025
+
+Secret Service - When The Night Closes In (1985) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night City
+02. Let Us Dance Just A Little Bit More
+03. Special Songs
+04. Do You Remember(   Читать дальше...   )Жанр: Electronic, Pop, Synth-pop, New WaveПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881DA0B66B7E4686AB49F38A9C4EF5B58B9614EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778982   (27938) от 11.02.2025
+
+VA - Billboard Top Hits 1975 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America - Sister Golden Hair
+02. Elton John - Island Girl
+03. Captain & Tennille - Love Will Keep Us Together
+04. Linda Ronstadt - When Will I Be Loved(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, Pop RockПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6675033C5BB4741597E6FAED95BC60C19D13B768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779063   (27935) от 11.02.2025
+
+VA - Billboard Top Hits 1976 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John And Kiki Dee - Don't Go Breaking My Heart
+02. Gary Wright - Dream Weaver
+03. Miracles - Love Machine
+04. Bellamy Brothers - Let Your Love Flow(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EBCE8BA3E2161FDB510C23E7A75EEB423D8F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779513   (27301) от 17.02.2025
+
+VA - Billboard Top Hits 1979 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondie - Heart Of Glass
+02. Knack - My Sharona
+03. Randy Vanwarmer - Just When I Needed You Most
+04. Rupert Holmes - Escape (The Pina Colada Song)(   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, DiscoПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C2FF1F91F0D428FE80F0F4A47F95C934A330D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780778   (26985) от 20.02.2025
 
 a-ha - Greatest Hits - Japanese Singles Collection (2020) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Synth-pop, Pop Rock>
@@ -629,122 +745,6 @@ VA - Pop Legends (2000) [OGG Vorbis|480 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1479D49152296C87E92B4717CB17EC5EEA793283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792040   (21130) от 17.04.2025
-
-VA - Best Of The 90s (2016) 2 CD [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freddie Mercury - Living On My Own
-02. Ace Of Base - All That She Wants (Remastered Version)
-03. Michael Jackson - They Don’t Care About Us
-04. Crazy Town - Butterfly(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2D8D123A2A1E8A6CDDCFB0F7753001B9306CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793349   (20394) от 24.04.2025
-
-VA - Classic Road Trip Songs 100 Hits (2025) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Treasure
-02. Coldplay - Paradise
-03. Climie Fisher - Love Changes (Everything)
-04. Stevie Nicks - Edge of Seventeen (2016 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA1B95F7293C1D45095D3187C1ACE58A0E5FD86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794880   (19577) от 02.05.2025
-
-VA - Eurovision Song Contest - Turin 2025 (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shkodra Elektronike - Zjerm [00:03:04]
-02. PARG - SURVIVOR [00:02:58]
-03. Go-Jo - Milkshake Man [00:02:52]
-04. JJ - Wasted Love [00:02:45](   Читать дальше...   )Жанр: PopПродолжительность: 01:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4B3A52ACCD1C7A2A32117D26C74F83AAFB6E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797687   (17867) от 18.05.2025
-
-VA - 50s Best Hits (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Little Anthony & The Imperials - Tears on My Pillow [00:02:19]
-02 - Cliff Richard - Livin' Lovin' Doll (1997 Remaster) [00:02:07]
-03 - Frankie Lymon & The Teenagers - Who Put the Bomp (In the Bomp Bomp Bomp) [00:02:59]
-04 - Ray Charles - What'd I Say, Pt. 1 & 2 [00:05:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31979AEA2D822D14450325649FB25CB27588185A
 ```
 
 https://mybot314.ru/tekegram_catalog/

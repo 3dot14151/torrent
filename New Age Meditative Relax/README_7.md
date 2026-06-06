@@ -1,3 +1,32 @@
+###  Публикация: 1210732   (778549) от 04.03.2018
+
+Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Piano, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Reunion 5:13
+02. Jacquelyn 5:10
+03. Arctic Child 5:19
+04. Christmas Spirit 4:39(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CAAC54184BD62706A8CC77E242BC63FE1C6BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210624   (778546) от 04.03.2018
 
 Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
@@ -716,35 +745,6 @@ Isis & Cobra - The Goddess Spiral Meditations (2013) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7DFFDE371F8174930AF4679E844603FDE47DC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216592   (749422) от 31.03.2018
-
-Singular Mind - Find Myself (2017) [MP3|320 Kbps] <Ambient, Chill Out, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never change 2:30
-02. Wander 5:20
-03. Skyfall 4:48
-04. Inside 4:15(   Читать дальше...   )Жанр: Ambient, Chill Out, DowntempoПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66078CB839089A74D7E10BB896E69734E34030F
 ```
 
 https://mybot314.ru/tekegram_catalog/

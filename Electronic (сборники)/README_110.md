@@ -1,3 +1,93 @@
+###  Публикация: 1232211   (602234) от 23.06.2018
+
+VA - Hits of My Soul Vol. 38 (2018) [MP3|320 кб/с]<House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Deidian - Zanzibar (Original Mix) (06:49)
+02. Sunlight Project - Prog & Roll (Original Mix) (06:57)
+03. 7herapy - Summer In Her Eyes (Michael Rehulka Remix) (05:43)
+04. Blissful Waves - Meriva (Rick Siron Remix) (07:30)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4306B4CA6D4CE2DA7ED1E36D1DC2A7823F92A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298101   (602181) от 26.04.2019
+
+VA - Hardstyle Dance Extra Mixes (2019) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602181.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Streiks & Kratchs - Project Kaos
+002. Crypsis & D-Fence - Vol Gas Met Die Bas
+003. Dj Mad Dog - Babylon Dead
+004. Ruffneck Aka Dj Ruffneck - Napalm(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, Electro, EDMПродолжительность: 08:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A7564F02285FD604B4FBD29D9F134AB0A2703D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298100   (602068) от 26.04.2019
+
+VA - Deep House Republic Mix (2019) [MP3|320 Kbps] <Deep, Soft House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602068.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dreams Incorporation - Rama (Deep Republic Mix)
+002. Mandragora - King Of The Lounge
+003. Steven Draxler - Right Time
+004. The Blue Bar Ensemble - I'm Running(   Читать дальше...   )Жанр: Deep, Soft House, ElectroПродолжительность: 10:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2681437DE2735848FE6BDF426C8EC1E1346508B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298113   (601899) от 27.04.2019
 
 VA - Drum and Bass Pro V.02 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Drum and bass, Neurofunk>
@@ -658,93 +748,6 @@ Bass Drive Madness - это новый всплеск саунда высоко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF402FAAFC566E2DA97BA41A220DCAE8D4CBC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548182   (597583) от 03.05.2022
-
-VA - Beatport Drum And Bass: Sound Pack #518 (2022) [MP3|320 Kbps] <DnB, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь к увлекательному путешествию, организованному с подачи 518-го трек-пака от Beatport, вашим надежным звуковым гидом в мире электронной музыки. Это потрясающая новая коллекция треков, предназначенная для создания завораживающих атмосферных басс-гобеленов. Внутри вы найдете мягкие биты, широкий выбор яркой и теплой перкуссии, пузырящиеся и каскадные басы, (   Читать дальше...   )001. Msdos - In Prague
-002. The Fi5th - Entropic
-003. Covert Garden - Jen
-004. Rhepuls - The Lion(   Читать дальше...   )Жанр: DnB, Electro BassПродолжительность: 11:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3884FB1F24A7925A3D1708204ABD4FEA0FA59897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039134   (596985) от 31.07.2016
-
-VA - Club Dance Ambience vol.80 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596985.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brooklyn Bounce & Fazzer vs Dj Lia ft Lil'C -  Please Don't Stop The Original Bounce (Alex2Rome BootyMix) 3:06
-002. Zerocool -  Hit Me (Original Mix) 4:01
-003. Lightning & Waveband -  Mirage (Mostfa And Mostfa Extended Remix) 6:17
-004. Bassjackers & Jay Harday vs Matthew Brown & William Tag -  El Mariachi Drop The Beat (Alex2Rome BootyMix) 4:19(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 07:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE02151D3CE903D07651D8394F127A1DD7528743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914696   (596372) от 03.07.2015
-
-VA - Summer Session 2015 (mixed by Dj V) (2015) [MP3|320 кб/с]<Disco House, Club House, Electro House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодная летняя компиляция представлена тремя дисками: 1 - легкая танцевальная коммерция для beach party, 2 - более клубная и энергичная музыка, 3 - лучшие танцевальные композиции прошлых лет (в этом году вспоминаем лето 2008)01-Flo Rida feat. Robin Thicke & Verdine White - I Don't Like It I Love It (Cutmore Club Remix)
-02-Nadia Ali vs. Plage - Our Rapture (DJ Che MashUp)
-03-Ariana Grande - Baby I (A Director's Cut Radio Edit)
-04-Mambana vs. Yogi - Libre o No (DJ Flight Secret Mash)(   Читать дальше...   )Жанр: Disco House, Club House, Electro House, DanceПродолжительность: 03:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23E2A175EBB3F8289A930F08A40109B88D02634
 ```
 
 https://mybot314.ru/tekegram_catalog/

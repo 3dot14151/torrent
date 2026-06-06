@@ -1,3 +1,348 @@
+###  Публикация: 1134216   (689217) от 15.05.2017
+
+Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into a Circle (01:00)
+02. Wonderland (02:02)
+03. Happy Little Robots (01:34)
+04. Inner Sanctum (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B19F18175FCB25147DFB7F1FD47496863691D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134229   (689213) от 15.05.2017
+
+Audiomachine - Magnus & Magnus: B-Sides (2015) 2 CD [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Classical Crossover>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689213.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Godspeed [02:43]
+2. Smoke Screen [02:17]
+3. Avow [03:11]
+4. Uncharted Worlds [03:15](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical CrossoverПродолжительность: 01:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FB400650DF13FA8E73D1E26D6ECA3314A5A88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133874   (689207) от 15.05.2017
+
+Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Series Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - Genius (00:51)
+02. Lorne Balfe - Proving the Theory (01:40)
+03. Lorne Balfe - Forbidden Love (03:05)
+04. Lorne Balfe - Nobel Prize (01:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CBF4BE260E3E07A5A54991CE2EE61E2FAB4250C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134137   (689100) от 15.05.2017
+
+CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jazz, Trip Hop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daybreak
+02. Rockets
+03. Steel
+04. Through(   Читать дальше...   )Жанр: Future Beats, Nu Jazz, Trip Hop, Electronic Rock, Bass, Downtempo, Female VocalПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7386FE3F8F18F6BA2DDB2C30AEC12C077C33E45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134214   (689099) от 15.05.2017
+
+Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into a Circle (01:00)
+02. Wonderland (02:02)
+03. Happy Little Robots (01:34)
+04. Inner Sanctum (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC445D549101F0DE1C7E78C225E3F9F901F1476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133906   (689090) от 15.05.2017
+
+The Romantic Strings Orchestra - Thanks For The Memory (1995) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Embraceable You (2:31)
+2. Over The Rainbow (3:16)
+3. Sunrise Serenade (3:00)
+4. I'm Gettin' Sentimental Over You (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650CE1BEE4DFB411DF518F67ACA4E42A5F71633B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133876   (689082) от 15.05.2017
+
+Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - Genius (00:51)
+02. Lorne Balfe - Proving the Theory (01:40)
+03. Lorne Balfe - Forbidden Love (03:05)
+04. Lorne Balfe - Nobel Prize (01:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4890C61467294260D8E3AD9664081E18CC158588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133869   (688965) от 15.05.2017
+
+Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where There Is Darkness (03:14)
+02. Arrival of the Blood Ravens (03:58)
+03. Tip of the Spear (01:20)
+04. Cyprus Ultima Third Movement (05:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E20B84EAF725CB0694318F862F6C788D854EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028435   (688743) от 23.06.2016
+
+Llewellyn - Native American Gold (2016) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The River Mermaid    32:33
+02.  The Old Woman of the Sea    16:07Жанр: New age, Relax, Meditative |Продолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9409050F962C4D88283ECB1B48022195A66813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028479   (688688) от 23.06.2016
+
+Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Nature>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Healing Sound of the Rain [00:30:07]
+02. Rain Song [00:08:00]
+03. The Sound of the Rain (with Thunder) [00:31:10]Жанр: New Age, NatureПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F415FC1A7FFD4B8EE59B25B49778DBCAA793E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028669   (688506) от 23.06.2016
+
+Marcin Przybylowicz - The Witcher 3 Wild Hunt - Hearts Of Stone (Original Soundtrack) (2015) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts of Stone (02:54)
+02. Go Back Whence You Came (01:45)
+03. You're... Immortal? (02:54)
+04. Evil's Soft First Touches (02:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5E594E28C7C75E42DAB1DBB063761FDC3A9AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028665   (688392) от 23.06.2016
+
+Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original Soundtrack) (2015) (Extended Edition) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcin Przybylowicz - The Trail (02:50)
+02. Marcin Przybylowicz - Geralt of Rivia (02:22)
+03. Marcin Przybylowicz - Eredin, King of the Hunt (02:27)
+04. Mikolai Stroinski - Wake Up, Ciri (01:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CE68DDC81912008F612950CDD209F523916EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289335   (688278) от 15.03.2019
 
 АЛЁNA - ЧАС (2019) [MP3|320 Kbps] <Folk>
@@ -394,354 +739,6 @@ VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D6B40AB761E450F541AC3E363C7F8CD6574474A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288923   (686469) от 16.03.2019
-
-VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension (1988) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686469.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Sledgehammer
-2.	They Dance Alone
-3.	Man In The Mirror
-4.	Invisible Circus(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268056C2E40119C7AFEE78C1B14EFE2EC9D48181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288732   (686462) от 16.03.2019
-
-VSOP (Vienna Symphonic Orchestra Project) - Symphonic Rock (1987) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686462.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Medley: Bohemian Rhapsody / We Are The Champions / Radio Ga Ga
-2.	Dreamer
-3.	Hard To Say I'm Sorry
-4.	Satisfaction(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB525550068BA2AB63AADDF552899996B45C99C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028817   (686253) от 24.06.2016
-
-Marcin Przybylowicz & PERCIVAL - The Witcher 3 Wild Hunt (Pre-Order EP Soundtrack) (2014) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybyłowicz & Percival - Ladies of the Woods (01:51)
-02. Marcin Przybyłowicz - The Fields of Ard Skellig (03:08)
-03. Marcin Przybyłowicz & Percival - Merchants of Novigrad (03:09)
-04. Marcin Przybyłowicz & Percival - Hunt or Be Hunted (02:25)Жанр: Soundtrack, ScoreПродолжительность: 00:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7439BB4843F01355432FCF374C93E6B7C4C7254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289162   (686124) от 16.03.2019
-
-Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48] <Trailer Music, Epic, Instrumental, New Age>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Human Legacy (4:59)
- 2 - Icarus (feat. Julie Elven) (4:35)
- 3 - Remember Me (feat. Roger Berruezo) (3:45)
- 4 - The Awakening (4:29)(   Читать дальше...   )Жанр: Trailer Music, Epic, Instrumental, New AgeПродолжительность: 01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C117A92FBAA6718397752E541521B1377EB8D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289624   (686102) от 16.03.2019
-
-Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Trailer Music, Electronic, Instrumental, New Age>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686102.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - The Edge of Consciousness (4:42)
- 2 - Vis Motrix (4:50)
- 3 - Khae Momme (4:38)
- 4 - Facing Fears (4:47)(   Читать дальше...   )Жанр: Trailer Music, Electronic, Instrumental, New AgeПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2E5F971A5956C0A06C21D70C37EEE582C6E955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028842   (686101) от 24.06.2016
-
-Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:51)
-02. Blood of My Blood (03:35)
-03. Light of the Seven (09:49)
-04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10725D38322E3AD69192FED5D4E3805D108EE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028841   (685961) от 24.06.2016
-
-Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:51)
-02. Blood of My Blood (03:35)
-03. Light of the Seven (09:49)
-04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7101CA02016DD1847B669C6C0C30593D1BB7533B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222395   (685154) от 29.04.2018
-
-Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Adoration (3:13)
-02.	I'm waiting on you (2:58)
-03.	In my weakness you are strong (2:59)
-04.	In you I repose my trust (2:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365CCB82FCB7EF123BDDF314B8A611A833C46B87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134981   (684857) от 17.05.2017
-
-VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raindrops Healing Music Universe - Thunderbolts & Rain
-02. Hypnosis Nature Sounds Universe - Dramatic Thunder, State of Mind
-03. Zen Soothing Sounds of Nature - Distant Storm, Sound Effect
-04. Close to Nature Music Ensemble - Rainy Summer(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73128EC7B329F41B6546267F2C23AC13AF34B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222331   (684816) от 29.04.2018
-
-Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God of War (4:07)
-02. Memories of Mother (3:39)
-03. Witch of the Woods (3:02)
-04. Lullaby of the Giants (3:44)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C2C6BC63D5A74940DA71F5B17CB8F289639621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028971   (684545) от 25.06.2016
-
-Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе образа игры, музыка была извлечена из самого образа игры01. Main Menu
-02. Stage 1
-03. Stage 2
-04. Stage 3(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B458B4B9455B67E35C5BE408305802B441C49C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289713   (684333) от 17.03.2019
-
-Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .cue] <Industrial, Experimental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Information 5:42
-2. Becoming Aware 4:53
-3. The Act 8:57
-4. Contemplation 4:27(   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1341669   (228486) от 29.11.2019
+
+Boney M. - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228486.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Daddy Cool 3:28
+02. Sunny 4:02
+03. Ma Baker 4:34(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544F4D8095F0E5DA9CEBBBC158437B5ACF1D766A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583738   (226635) от 17.10.2022
+
+Fun Girl - The Album (2022) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Control (Feat. Amaya) 3:54
+02. A Brighter Day (Extended Mix) 6:15
+03. Baila Bandolera (Extended Mix) 8:58
+04. Forever Young (Extended Mix) 7:34(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3735B8EFF3826820D83C2E2B0947C22789A407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584075   (226180) от 17.10.2022
+
+Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмечая 50-летие своей музыкальной карьеры Cerrone со товарищи выпустил свои 16 культовых классических произведений в версии 2022 года, переработав и смикшировав их собственноручно.01. Give Me Love (feat. Brendan Reilly)
+02. My Desire (feat. Brendan Reilly)
+03. Got to Have Lovin' (feat. Brendan Reilly)
+04. Look for Love (The Reflex Revision)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E4AB074948FA16A1EFFC2C5C12FD480F280D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342062   (225471) от 01.12.2019
+
+VA - ZYX Italo Disco Spacesynth Collection 4 (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Force Of Order (5:24)
+02. Some Bizarre - Don't Be Afraid (Bellatrix Remix 2017) (7:18)
+03. Vanello - Planet Earth (Extended Version) (6:30)
+04. Oblivion - A Voice Of The Universe (6:46)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E10D74C49A389946998B0F2A6B0AF1484C008CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342070   (225437) от 01.12.2019
+
+VA - ZYX Italo Disco Spacesynth Collection 5 (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Trans Space Express (5:59)
+02. Italove - At The Disco (Bellatrix Dub Space Remix) (6:08)
+03. Victor Ark - Lost In Time (5:07)
+04. Mind Control - The Gate (6:15)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11FCFD93807A4B5AF4B8FCFCBB9575F01C32B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342442   (223831) от 02.12.2019
 
 VA - Italian Style Vol. 1 (1988) [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -595,153 +740,6 @@ Radiorama - Four Years After (1989) ZYX Edit Remastered 2023 [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2938EEAC1371802311B921FB974B8F36EE8F481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827686   (193383) от 22.10.2025
-
-Patrick Cowley - Hard Ware (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellfire
-02. Tech-No
-03. Spellbinding Lover (feat. Jeanie Tracy)
-04. Pajama Party Massacre(   Читать дальше...   )Жанр: Disco, Hi NRGПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75AED752DB25C0C701142C44F62A02BDFA9F6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589095   (190573) от 08.11.2022
-
-Various Artists - ZYX Italo Disco New Generation Vol. 20 (2022) [FLAC|Lossless|image + .cue] <Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190573.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Den Harrow Feat. Orlando Johnson– Shine On (Flemming Dalum Remix) 5:30
-02. Ken Laszlo– Leather Man (Swedish Remix) 5:56
-03. Flemming Dalum– Walking In The Neon (Special ZYX Remix) 6:52(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7793434535665F8A703814F5C54F916E20CA024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589454   (190270) от 09.11.2022
-
-Genghis Khan - Greatest Hits (1980) Japanese Edition, Compilation, Reissue, 1992, Victor Musical Industries [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dschinghis Khan (с нем.«Чингисхан») — западногерманская диско-группа, созданная в 1979 году музыкальным продюсером Ральфом Зигелем в ФРГ, для участия в международном песенном конкурсе «Евровидение», где заняла четвёртое место. Наиболее известна исполнением таких песен, как «Dschinghis Khan», «Moskau», «Rocking son of Dschinghis Khan».
-
-Многие песни группы посвящены (   Читать дальше...   )01. Machu Picchu
-02. Hadschi Halef Omar
-03. Madagaskar
-04. Kaspar Hauser(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECFDD5F4F096F55E4B93B66CC7DE3E93708789C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589371   (190258) от 09.11.2022
-
-Donna Summer - Donna Summer (1982) 40th Anniversary Edition 2022, Driven By The Music [FLAC 2.0|44/24|WEB-DL|tracks] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love is in Control (Finger on the Trigger) (4:21)
-02. Mystery of Love (4:27)
-03. The Woman in Me (3:56)
-04. State of Independence (5:51)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F58D498A0D716AFF5826B94B8AE52590E60E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152326   (188949) от 13.11.2022
-
-Boney M. - Ten Thousand Lightyears (1984) [FLAC|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus (Noah's Ark 2001) (5:19)
-02. Wild Planet (4:06)
-03. Future World (3:53)
-04. Where Did You Go (4:11)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25999307F1A1C0A1A2FCADD2766343B699D2A67
 ```
 
 https://mybot314.ru/tekegram_catalog/

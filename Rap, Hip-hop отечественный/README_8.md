@@ -1,3 +1,32 @@
+###  Публикация: 1238793   (544651) от 01.08.2018
+
+Rickey F - FLASHFORWARD (2018) EP [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashforward_Intro (Starfounder & XWinner prod.)
+02. Ветер (XWinner prod.)
+03. Fuck Cash (XWinner prod.)
+04. Молчи со мной (XWinner prod.)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F28629E50644495D2474CA765DBC1FBBD642F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817895   (544030) от 01.09.2014
 
 Рем Дигга - Людоед (2014) [MP3|320 кб/с]<Rap, Hip-Hop>
@@ -722,35 +751,6 @@ Nekby - Алхимия (2015) [MP3|320 кб/с]<Rap, Hip-hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA15F01AA581C2CFEA6738477C44417F3C4E4468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411575   (425475) от 26.09.2020
-
-Jahmal TGK, Регион снега - Бархатный сезон (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пока стучат наши сердца [03:14]
-02. Талантливые лентяи [03:56]
-03. Да, братан [03:23]
-04. С ночи до утра [03:43](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A59C34B8EDABC878D4A17413A8AA2832CBC394
 ```
 
 https://mybot314.ru/tekegram_catalog/

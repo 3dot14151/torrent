@@ -1,25 +1,25 @@
-###  Публикация: 1285935   (714715) от 01.03.2019
+###  Публикация: 1527262   (736922) от 28.01.2022
 
-Black Sabbath - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
+Stone - Studio Albums (1988 - 1991) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Speed/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_736922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side A:
-A1 Paranoid
-A2 Hole In The Sky
-A3 Sabbath Bloody Sabbath(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:27:50
+Stone - финская трэш-метал-группа, образованная в Кераве в 1985 году.1988 - Stone
+1989 - No Anaesthesia!
+1990 - Colours
+1991 - Emotional PlaygroundЖанр: Speed/Thrash MetalПродолжительность: 03:20:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D5E764950E7576496CAF0FD5B7579643155E618
+magnet:?xt=urn:btih:FE6EECB4FD1BFAAE3121B78F44340EB12F02333B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025204   (710094) от 12.06.2016
+###  Публикация: 1527273   (736879) от 28.01.2022
 
-Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Breaks, Trip Hop, Tribal>
+Armin van Buuren - Imagine (2008) 2LP Reissue 2021 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] ] <Trance, Progressive Trance>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01	Wankatakiya
-02	Celebration
-03	Earth Walk
-04	Spirit Path(   Читать дальше...   )Жанр: Electronic, Breaks, Trip Hop, TribalПродолжительность: 00:58:17
+A1. Armin van Buuren - Imagine
+ A2. Armin van Buuren - Going wrong (with Dj Shah feat. Chris Jones)
+ B1. Armin van Buuren - Unforgivable (feat. Jaren)
+ B2. Armin van Buuren - Face to face(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:23:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CFF7A380E435B36C5D54008BC8E2BFAEFB79097
+magnet:?xt=urn:btih:B9931F04827987327DCDE77C50042EC63C316FBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131738   (706397) от 06.05.2017
+###  Публикация: 1527582   (736425) от 29.01.2022
 
-Toto Cutugno - L'Italiano (1983) 1984, Jugoton[FLAC|24/192|image + .cue|Vinyl-Rip]<Pop>
+Mike Morton Non Stop Party Show Vol. 1 (1973) 30 Great Sounds [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop, Sound-alike>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. L'Italiano (3:58)
-A2. Solo Noi (4:04)
-A3. Soli (4:04)
-A4. Donna, Donna Mia (3:01)(   Читать дальше...   )Производство: Jugoton - LSY 10026Жанр: PopПродолжительность: 00:38:06
+A1 Candy Man
+A2 Come On Over To My Place
+A3 All I Ever Need Is You
+A4 You Can Do Magic(   Читать дальше...   )Жанр: Pop, Sound-alikeПродолжительность: 01:01:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45463F8CF9286D4B7030D44C00B3B0DC00164888
+magnet:?xt=urn:btih:A69961196FD21E552FF986E80E9303672D6A3F03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401903   (705145) от 12.08.2020
+###  Публикация: 1398644   (735169) от 27.07.2020
 
-The Beatles - Rare Beatles (The Beatles On Air) (1993) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+Opus - Up And Down (1984) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 I Saw Her Standing There
-A2 Too Much Monkey Business
-A3 I'll Get You
-A4 Lucille(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:43
+A1 Up And Down
+A2 Vivian
+A3 There Is Need For
+A4 She Loves You(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45EE93A0A33F859513707FD57302B7BD79771D88
+magnet:?xt=urn:btih:ECBAE82AC36EC834EB4F0F5333B2EA61274C2342
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131920   (704926) от 07.05.2017
+###  Публикация: 1528254   (734968) от 01.02.2022
 
-Saraya - Saraya [LP] (1989) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+The Police - Zenyatta Mondatta (1980) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <New Wave, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Love Has Taken Its Toll
-A2 Healing Touch
-A3 Get U Ready
-A4 Gypsy Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:24
+A1 Don't Stand So Close To Me
+A2 Driven To Tears
+A3 When The World Is Running Down, You Make The Best Of What's Still Around
+A4 Canary In A Coalmine(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 00:38:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
+magnet:?xt=urn:btih:C9DB0F5B870D7837767EBF598662E29FA2A7E7B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220077   (704410) от 19.04.2018
+###  Публикация: 1528269   (734960) от 01.02.2022
 
-Виктор Березинский - Третий концерт (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Chanson>
+The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[1:11] 01. Виктор Березинский - Интро
-[2:43] 02. Виктор Березинский - Дуня
-[3:17] 03. Виктор Березинский - Мани-Мани
-[2:43] 04. Виктор Березинский - Чемодан(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:45:24
+A1 Spirits In The Material World
+A2 Every Little Thing She Does Is Magic
+A3 Invisible Sun
+A4 Hungry For You (J'Aurais Toujours Faim De Toi)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11842F6D9B4748E61EC6ADFB614BEECE2D6C6C44
+magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 671587   (704345) от 24.06.2013
+###  Публикация: 1399102   (734306) от 29.07.2020
 
-Ария - Герой Асфальта (2013) Limited Edition (Vinyl-Rip) [FLAC|2.0 24/96]<Hard Rock, Heavy Metal>
+Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
 
->>След.
+>>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_704345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. На Службе Силы Зла [07:12]
- 02. Герой Асфальта [05:12]
- 03. Мёртвая Зона [06:37]
- 04. 1100 [04:54](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:38:15
+A1 Motorrennerrock
+A2 Der Kater
+A3 Heut' Spielt Hier 'Ne Soul-Band
+A4 Gemeinsamkeit(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:25
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:95553D0626A4F5B61519836C45250F8DF0861824
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151816   (703076) от 25.02.2022
+###  Публикация: 1528968   (733570) от 04.02.2022
 
-Axe - Offering (1982) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+Diana Ross & The Supremes - Baby Love (1973) Compilation 1963-1966, Czechoslovak pressing [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Soul>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Rock 'N' Roll Party In The Streets
-A2 Video Inspiration
-A3 Steal Another Fantasy
-A4 Jennifer(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:11
+A1 Baby Love (P) 1964
+A2 (I'm So Glad) Heartaches Don't Last Always (P) 1965
+A3 Ask Any Girl (P) 1964
+A4 Mother Dear (P) 1965(   Читать дальше...   )Жанр: SoulПродолжительность: 00:33:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
+magnet:?xt=urn:btih:781F141E8F72A0370848ACD82AC6439534ACCC05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126080   (702915) от 25.02.2022
+###  Публикация: 1127521   (731843) от 21.04.2017
 
-Van Halen - Fair Warning (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+The Alan Parsons Project - Gaudi (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Mean Street
-A2 ''Dirty Movies''
-A3 Sinner's Swing!
-A4 Hear About It Later(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:39
+A1. La Sagrada Familia (8:47)
+A2. Too Late (4:32)
+A3. Closer To Heaven (5:53)
+B1. Standing On Higher Ground (5:04)(   Читать дальше...   )Производство: Arista - 206 084Жанр: Progressive RockПродолжительность: 00:38:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA78E60A5E8A89BD5959016B8EA513DA20996B77
+magnet:?xt=urn:btih:8FF8849ABAC2433115C8AA00E867F70C52A6B7F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +259,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472133   (702796) от 25.02.2022
+###  Публикация: 666321   (731394) от 09.06.2013
 
-Annihilator - Дискография (24 releases) (1985-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Speed/Thrash/Groove Metal>
+VA - Red Wave - 4 Underground Bands From The USSR (1986) 2LP [FLAC 2.0 24/96 | image (Vinyl-Rip)<Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Annihilator — трэш-метал группа, основанная в 1984 году в городе Оттава, Канада. Основателем «Annihilator» является гитарист Джефф Уотерс.1989 - Alice in Hell
-1990 - Never, Neverland
-1993 - Set the World on Fire
-1994 - King of the KillЖанр: Technical Speed/Thrash/Groove MetalПродолжительность: 26:24:52
+«Red Wave» - это первый официальный релиз на Западе 4-х рок-групп СССР, которые официально были практически запрещены в России. Чтобы издать эту музыку на Западе, американская энтузиастка Джоанна Стингрей, влюбившаяся в Россию и прожившая здесь более 15 лет, вывезла записи групп из СССР и в 1986 году на фирме "Big Time Records" (Калифорния) тиражом 10 тыс.экз. (   Читать дальше...   )Жанр: RockПродолжительность: 00:20:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:193B72E44DD9C24FEF082A7C379DDB4D32964E2E
+magnet:?xt=urn:btih:9D258B93B68CDDE11AC870264B3455F73AFD0778
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027018   (699842) от 17.06.2016
+###  Публикация: 1529997   (730776) от 09.02.2022
 
-VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock-n-Roll, Hard Rock, Pop Rock, Soul>
+Madeleine Peyroux – Half The Perfect World (2006) 2008 [DSD128 2.0|tracks|Vinyl-Rip] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Она Мило Улыбнулась · She Smiled Sweetly
-02. Соединение · Connection
-03. Вчерашние Газеты · Yesterday's Papers
-04. Серьезная, Спокойная И Собранная · Cool, Calm And Collected(   Читать дальше...   )Жанр: Rock-n-Roll, Hard Rock, Pop Rock, SoulПродолжительность: 08:03:12
+01. I'm Allright (3:27)
+ 02. Summer Wind (3:56)
+ 03. Blue Alert (4:11)
+ 04. Everybody's Talking (5:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1B9A12060A1FA9D892B95D145EAE4122F73D695
+magnet:?xt=urn:btih:27F1EEF69DD3F4DDE3910F40BFE4D2F86CDE9D9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402817   (697922) от 16.08.2020
+###  Публикация: 666864   (730294) от 10.06.2013
 
-Wetton / Manzanera (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+Secret Service - Collection (7 LP) (1979-1987) [FLAC 2.0 24/192|image(Vinyl-Rip)]<Electronic, Synth-pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 It's Just Love
-A2 Keep On Loving Yourself
-A3 You Don't Have To Leave My Life
-A4 Suzanne(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:39
+1979 - Oh Susie
+1981 - Ye Si Ca
+1982 - Cutting Corners
+1984 - Jupiter Sign(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 04:23:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C63C9672ECC9D223D4658C1C8C036907B7EA02C
+magnet:?xt=urn:btih:206AB242BB408334705B6533E3C25AE56E6033B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534184   (694255) от 02.03.2022
+###  Публикация: 1127804   (729859) от 23.04.2017
 
-Lou Gramm - Ready Or Not (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Pop Rock>
+Сергей Яковлевич Лемешев - Концерт: арии из опер и романсы П. И. Чайковского (1951) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Classical, Vocal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Ready Or Not
-A2 Heartache
-A3 Midnight Blue
-A4 Time(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:41:09
+01. Ария Ленского (П. Чайковский, из оперы ''Евгений Онегин'')
+02. Каватина Владимира Игоревича (А. Бородин, из оперы ''Князь Игорь'')
+03. Соловей (П. Чайковский)
+04. То было раннею весной (П. Чайковский)(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 00:25:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8309D8D21EC3FADFB102F752FB0DD3C6C2DDD7B2
+magnet:?xt=urn:btih:6AD0DFDE4CBFC97D00B7516CBB06E3D9FE8309A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151830   (694127) от 02.03.2022
+###  Публикация: 1530402   (728929) от 11.02.2022
 
-Shy - Excess All Areas (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+Jethro Tull – The Zealot Gene (2022) [DSD128 2.0|tracks|Vinyl-Rip] <Prog Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Emergency
-A2 Can't Fight The Nights
-A3 Young Heart
-A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:02
+01. Mrs Tibbets (5:53)
+ 02. Jacob's Tales (2:13)
+ 03. Mine Is The Mountain (5:40)
+ 04. The Zealot Gene (3:53)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:46:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
+magnet:?xt=urn:btih:88B246F3D9053A5C3C39ACCB57FD00A839BC6131
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150975   (694000) от 02.03.2022
+###  Публикация: 1284286   (728766) от 21.02.2019
 
-George Harrison - Somewhere In England (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-Ri] <Pop Rock, Classic Rock>
+Lynyrd Skynyrd - Last of a Dyin' Breed (2012) [FLAC 2.0 24/192|image|Vinyl-Rip] <Southern Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Blood From A Clone
-A2 Unconsciousness Rules
-A3 Life Itself
-A4 All Those Years Ago(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:10
+01. Last of a Dyin' Breed (3:52)
+ 02. One Day at a Time (3:46)
+ 03. Homegrown (3:41)
+ 04. Ready to Fly (5:26)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:45:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
+magnet:?xt=urn:btih:FF22B9BEB60AFD89E76E5C081B92F42347F835D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221228   (692986) от 25.04.2018
+###  Публикация: 1530226   (728683) от 11.02.2022
 
-группа ЛЕДИ - Горькая ложь (1991) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Disco>
+ДДТ - Я Получил Эту Роль (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[3:17] 01. На Дискотеке
-[4:16] 02. Какой же ты суровый
-[3:35] 03. Южный(Нежный) город
-[3:49] 04. Я как птица на свет(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:31:06
+A1 Поэт (1985)
+A2 Мальчики-мажоры (1985)
+A3 Конвейер (1987)
+A4 Не Стреляй! (1982)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:37:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E910DCF892C1980FB42D6F25C243D9797420D8CD
+magnet:?xt=urn:btih:A7A38E00B185EEA503AC903D3D22F951017B5460
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534675   (690520) от 04.03.2022
+###  Публикация: 1128403   (728545) от 24.04.2017
 
-The Beatles - The Beatles (White Album) (1968) 1977 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock, Psychedelic Rock>
+Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Back In The U.S.S.R.
-A2 Dear Prudence
-A3 Glass Onion
-A4 Ob-La-Di, Ob-La-Da(   Читать дальше...   )Жанр: Pop Rock, Psychedelic RockПродолжительность: 01:34:31
+A1. Every Little Thing (3:45)
+A2. Don't Let Go (2:59)
+A3. Lift Me Up (3:38)
+A4. Nobody Home (3:54)(   Читать дальше...   )Производство: Reprise Records - 7599-26184-1Жанр: RockПродолжительность: 00:37:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A2AAA4FD7082BA267DE6AA85CF1AFA0C6F3B14B
+magnet:?xt=urn:btih:C66386E6A8D4786D67AF6FC32B3C01129F9B5963
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534515   (690368) от 04.03.2022
+###  Публикация: 955597   (727525) от 12.02.2022
 
-Scorpions - Rock Believer (2022) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Rock>
+VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Gas In The Tank
- A2. Roots In My Boots
- A3. Knock 'Em Dead
- A4. Rock Believer(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:59
+01. Игорь Николаев	Незнакомка · A Stranger	4:15
+02. Александр Кальянов	Старый Друг · Old Friend	6:54
+03. Алла Пугачева	Любимчик Пашка · Pashka Pet	3:17
+04. Игорь Скляр	Понедельник · Monday	2:51(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:822F139309BF725B1322410F9AECF02A80566D20
+magnet:?xt=urn:btih:06220FFA057ABCADE08BD23862E9BB4D72D0C3FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,30 +517,116 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 795718   (690186) от 12.06.2014
+###  Публикация: 883954   (726267) от 13.02.2022
 
-Государственный симфонический оркестр СССР (дирижер Евгений Светланов) - Н. Римский-Корсаков - Шехеразада (симфоническая сюита по 1001 ночи, соч. 35) (1985) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Cl ...
+VA - Антология советского киношлягера - Любимые песни из кинофильмов (Человек с бульвара Капуцинов и др.) (1996) [FLAC 2.0|16/44,1 (image+.cue)]<Soundtrack/Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Синема - А. Миронов (из к/ф ''Человек с бульвара Капуцинов'')
+02. Волшебный луч - Л. Долина (из к/ф ''Человек с бульвара Капуцинов'')
+03. Всё прекрасно - Л. Долина (из к/ф ''Человек с бульвара Капуцинов'')
+04. Далека дорога твоя - М. Боярский (из к/ф ''Человек с бульвара Капуцинов'')(   Читать дальше...   )Жанр: Soundtrack/PopПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A80D841D90B62676494D323C24E9D01F0E180ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866856   (726101) от 13.02.2022
+
+Various Artists - Любимые песни из фильмов  /Movie Songs (1998) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soundtrack/Sound-Alike>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Will Go On - "Титаник"
+02. Tomorrow Never Dies - "Завтра не умрёт никогда"
+03. Girl, You,ll Be A Woman Soon - "Криминальное чтиво"
+04. Streets Of Philadelphia - "Филадельфия"(   Читать дальше...   )Жанр: Soundtrack/Sound-AlikeПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECD299A21D9D284D6A4D25CAE019DE1A40EE08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284878   (724474) от 24.02.2019
+
+Майя Кристалинская - В Подмосковье Ловятся Лещи (1975) [FLAC 1.0|96/24|tracks+.cue|Vinyl-Rip] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В Подмосковье ловятся лещи
+02. Добрый мой друг
+03. Довоенное танго
+04. Я Ваша ВеснаЖанр: Pop, RetroПродолжительность: 00:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AEA6DA2EC770ACC48605C2C5F5FC73E157DA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891917   (721449) от 25.04.2015
+
+Queen - The Game (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721449.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-1. Море и корабль Синдбада  10:40
-2. Рассказ царевича Календера  11:38
-Сторона 2
-1. Царевич и царевна  11:02
-2. Багдадский праздник и корабль, разбивающийся о скалу с медным всадником  11:20Жанр: ClassicalПродолжительность: 00:44:40
+1. Play The Game  3:25
+2. Dragon Attack  4:20
+3. Another One Bites The Dust  3:34
+4. Need Your Loving Tonight  2:49(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:35:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:642DF0C7A6B26DF6C1CC35C162EE7822F6A515E6
+magnet:?xt=urn:btih:4E839A3808BD048268DDE74DFE13BF83483E7895
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,28 +634,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288422   (686333) от 16.03.2019
+###  Публикация: 1400234   (721186) от 04.08.2020
 
-Apelsin/Ансамбль "Апельсин" - Apelsin [2LP] (1976, 1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock>
+Peter Frampton - Frampton Comes Alive! (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Apelsin" (1976/1982)
-A1 Western · В Стиле Вестерна
-A2 Jambolaya · Джамбаллайя
-A3 Capri Saarel · на Острове Капри(   Читать дальше...   )Жанр: Soft Rock, Funk
+A1 Something's Happening
+A2 Doobie Wah
+A3 Show Me The Way
+A4 It's A Plain Shame(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 01:18:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02F5D0F7B7117B04632B4ED205341E3E6F0EB6D2
+magnet:?xt=urn:btih:1A392C26F32F76170AE5A2889CED2F8F19E0F3A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,28 +663,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535539   (684113) от 07.03.2022
+###  Публикация: 1218827   (719116) от 11.04.2018
 
-Pink Floyd - Wish You Were Here (1975) reissue remastered 2011 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Art Rock, Prog Rock>
+Deep Purple - In Rock (1970) Repress, 1973, Warner Bros. Records [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Shine On You Crazy Diamond (1-5)
-A1a Part 1
-A1b Part 2
-A1c Part 3(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:44:41
+A1. Speed King (4:23)
+A2. Bloodsucker (4:15)
+A3. Child In Time (10:17)
+B1. Flight Of The Rat (7:57)(   Читать дальше...   )Производство: Warner Bros. Records - WS 1877Жанр: Hard RockПродолжительность: 00:42:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C26097F61DDA28D9D630E168DF71A30EF284270B
+magnet:?xt=urn:btih:49A5FCFA08692C7D54609C9328EB3046AABD2400
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,28 +692,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 796601   (683654) от 15.06.2014
+###  Публикация: 1400460   (719014) от 05.08.2020
 
-Electric Light Orchestra - Face The Music (1975)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
+Matia Bazar - Tournee' (1982) Recorded 1979 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Europop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Fire On High (5:32)
-A2. Waterfall (4:12)
-A3. Evil Woman (4:35)
-A4. Nightrider (4:24)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:26
+A1 Tram = Трамвай
+A2 Non E 'Poi Tanto Male = Не Е Лошо Така
+A3 Ragazzo In Blue Jeans = Момчето В Сини Джинси
+A4 Per Amare Cosa Vuoi? = За Да Ме Обичаш, Какво Искаш?(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:39:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBC27298539BD13BA590413321F9BF24795A404D
+magnet:?xt=urn:btih:8B2D2AA65E2A06C6A9ABBEBD33EA5841AB65538A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,121 +721,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222589   (682448) от 30.04.2018
+###  Публикация: 1285698   (718680) от 27.02.2019
 
-Владимир Высоцкий - №4 (сборник песен) (1985) Мелодия [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682448.jpg" />
-</div>
-
-
-###  Подробнее
-
-СТОРОНА-1:
-[1:56] 01. Владимир Высоцкий - Мне каждый вечер зажигают свечи...
-[3:09] 02. Владимир Высоцкий - О нашей встрече, что там говорить...
-[2:01] 03. Владимир Высоцкий - Перед выездом в загранку..(Инструктаж)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25360C576CFB438B7EE1AA56F4BBD5C5FEC2F66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029332   (682069) от 26.06.2016
-
-Garbage - Strange Little Birds (2016) [FLAC 2.0 24/192|image +.cue|Vinyl-Rip]<Alternative, Indie Rock>
+L. Subramaniam, S. Grappelli/Л. Субраманиам, С. Граппелли - Conversation/Беседы (1984/1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sometimes (2:53)
- 02. Empty (3:54)
- 03. Blackout (6:33)
- 04. If I Lost You (4:13)(   Читать дальше...   )Жанр: Alternative/Indie RockПродолжительность: 00:57:32
+A1 Не Уходи (Don't Leave Me)
+A2 Воспоминания (Memories)
+A3 Каприс №5 (Paganini Caprice 5)
+A4 Беседа (Conversation)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A550B11BE8C12202432B37A17DC07328B509C519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028883   (681772) от 26.06.2016
-
-Наутилус Помпилиус - Лучшие песни (2014) [PPCM 5.1|96/24|DVD-Audio] [upmix] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я хочу быть с тобой
-02. Дыхание
-03. Прогулки по воде
-04. Шар цвета хаки(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756E627B77A5DCF1A1F3910EFECFA100F9E39747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796584   (681493) от 16.06.2014
-
-Eruption - Leave A Light (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Leave A Light (I'll Keep A Light In My Window) 6:45
-2. Sweet Side 3:50
-3. Up And Away 3:10
-4. Left Me In The Rain 3:55
-Сторона 2
-1. Valley Of The Dolls 4:35
-2. One Way Ticket 3:35
-3. Hey There Lonely Girl 3:25
-4. No Good Searchin' 4:28(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B35E73D61900F5B929186546421C39096AB1F1F
+magnet:?xt=urn:btih:CDD595CA78BD9E44EC0A62DE449957E455688A6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

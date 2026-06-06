@@ -1,3 +1,32 @@
+###  Публикация: 493074   (248579) от 07.05.2012
+
+Megadeth - Warchest(Live in London 30.09.92) (2007) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Thrash MetalПродюсер: Кевин ФлахертиВ ролях: Dave Mustaine -- vocals, lead & rhythm guitars
+Marty Friedman -- lead & rhythm guitars
+David Ellefson -- bass guitar & bkg vocals
+Nick Menza -- drums & bkg vocalsПеревод: ОтсутствуетПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492162   (247862) от 05.05.2012
 
 Валя - Дали ти стиска (2012) [H.264/1080р] WEBRip
@@ -698,33 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:161ABAF91552A579A326BF005BFAD50BE61DFDD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475153   (85301) от 30.03.2012
-
-Мегамикс Philizz Video YearMix 2011 Vol. 5 Пиратская Вечеринка HD x264 1080p 5,7Gb
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
-И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2011! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 57 мин 54 сек (00:57:54)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED35EDAE2BDFE441BD987C9B79C2A13368FA399
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1582100   (324591) от 08.10.2022
+
+Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harem
+02. What A Wonderful World
+03. It's A Beautiful Day
+04. What You Never Know(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1E9F62EA8ABF110AF5944B182B0E1DC8E5014C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582094   (324587) от 08.10.2022
 
 Sarah Brightman - Classics (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
@@ -728,35 +757,6 @@ Monica Naranjo - Tarantula (2008) [MP3|320 кб/с]<Electronic, Rock, Pop, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA4246D45F3048C8668A109E85A1F1235BCEE61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421822   (315295) от 06.11.2020
-
-Workout Music Tv - 40 Best Pop Remixes 2020 For Running [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liar - Workout Remix 128 Bpm (4:23)
-02. Break Up With Your Girlfriend - Workout Remix 128 Bpm (5:19)
-03. Lover - Workout Remix 128 Bpm (6:06)
-04. So Am I - Workout Remix 128 Bpm (4:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC18D2E5072D36C6FA50390543725EDE0034917
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1104942   (878114) от 16.02.2017
+
+Cusco - Essential Cusco: The Journey (2005) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Gama (3:33)
+02. Oracle Of Delphi (4:30)
+03. Waters Of Cesme (4:30)
+04. Africa - Africa (4:06)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA47FF17862CEF17F818B31EA8540EB1018AD01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105244   (876411) от 17.02.2017
 
 J.S. Epperson - Solfeggio Suite (2011) [FLAC|Lossless|tracks] <New Age>
@@ -717,35 +746,6 @@ Guy Sweens - Karmic Journey (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F648F535FA63C0C08847C06C45235AD23FE9057A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001983   (850469) от 30.03.2016
-
-Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Military, New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Me Prelude    00:51
-02. Fiesta Patria    03:14
-03. Thirty-One Nights    03:59
-04. The Swallows of Na' Lu'um    05:29(   Читать дальше...   )Жанр: Brass & Military, New Age, InstrumentalПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF345B827B00440BF4974F4DD912CB00C832D0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1710544   (61601) от 27.03.2024
+
+Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensual Chill (3:02)
+02. Wet Dream (3:41)
+03. Erotic Massage (2:57)
+04. Want You (2:57)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E83186511F0CAED67BDF861DD3C0E066AAF3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585597   (60377) от 08.04.2024
+
+Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ultimate High (432hz) [00:02:33]
+02. Tantric Sex Magic (432hz) [00:02:20]
+03. My Mistress Marijuana (432hz) [00:03:02]
+04. Marijuana Kundalini Meditation (432hz) [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77380C13F54034EA8AD24B7F9D317D4C3FBBA254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724923   (55610) от 23.05.2024
+
+VA - Erotic Spa: Blissful Time (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julie Riviera - Sensual Bliss Spa (3:16)
+02. Erotic Massage Music Ensemble - Silk Touch Retreat (3:32)
+03. Tantric Sex Background Music Experts - Hot Oil Ecstasy (3:01)
+05. Erotic Massage Music Ensemble - Tantric Haven (3:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987FD914A8908C740B3E6F8E63301946BD5E03B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727159   (54677) от 01.06.2024
 
 Oriental Collection, Oriental Soundscapes Music Universe - Orient Music Adventure (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
@@ -659,64 +746,6 @@ Jean Michel Jarre - The Concert In China (1982) Reissue, 1984, Polydor 2CD [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A12DF3ACC8A2C1A826ABB1B38FDD9BBAA1C80FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800645   (15354) от 07.06.2025
-
-Blue Flower (Sri Chinmoy, Голубой цветок) - O Beauty-Infinity (О, бесконечная красота) (2008) [FLAC|Lossless|tracks + .cue] <World, Mantras, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manju hashini
-02. Choker kanna/Sabar majhe
-03. Prashna trishal
-04. I have told God(   Читать дальше...   )Жанр: World, Mantras, MeditativeПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788DA8B6C8024DA684D0F57ED5FF655753C3132A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805542   (12150) от 08.07.2025
-
-Brulе - We the People (A Tribal Gathering Of Music) (1996) CD, Album [FLAC|Lossless|tracks + .cue] <Native American, Tribal, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Praises    [0:04:05.15]
-02. Brave Hearts    [0:04:33.43]
-03. Buffalo Moon    [0:05:23.28]
-04. Dream Shield    [0:03:51.09](   Читать дальше...   )Жанр: Native American, Tribal, New AgeПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0E123CCB75332D99142778302F3CE726A9B0EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

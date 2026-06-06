@@ -1,3 +1,32 @@
+###  Публикация: 936967   (492372) от 13.09.2015
+
+Superhumanoids - Do You Feel OK? (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anxious In Venice (04:08)
+02. Oh Me I (04:21)
+03. Norwegian Black Metal (04:01)
+04. Touch Me (03:55)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C07E99B94833A0C9D134DBDA4CCF2312666510F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158601   (491990) от 16.08.2017
 
 VA - Smash Hits The 90's (2017) (3CD) [MP3|320 Kbps] <Pop, RnB, Dance>
@@ -716,35 +745,6 @@ Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5A0580E951BC62BA6DCC95FC2B616EE14CC8C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939422   (475703) от 21.09.2015
-
-Jasmine Thompson - Another Bundle of Tantrums (2014) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drop Your Guard (03:14)
-02. Royals (03:25)
-03. Wrecking Ball (03:59)
-04. Rather Be (04:08)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F113C9A095831D7A1FDD18BD7E544C78E0D1EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

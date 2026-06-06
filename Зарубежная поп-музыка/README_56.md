@@ -1,3 +1,32 @@
+###  Публикация: 950026   (372581) от 25.10.2015
+
+Ricchi E Poveri - The Best Dance Remixes (2015) [MP3|320 кб/с]<Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mamma Maria
+02. Sara perche ti amo
+03. Made in Italy
+04. Se mi innamoro(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6C3BC973C8BB8741708BE3F86DAC9A414E8196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176345   (372174) от 21.10.2017
 
 Bat & Ryyd - Ehtaa Tavaraa (1989) Reissue CD, Snap Records, 2000 [MP3|320 Kbps] <Electronic, Pop>
@@ -746,35 +775,6 @@ Dua Lipa - Dua Lipa (Complete Edition) (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36F778DB12BF5C4311D48FC91FF02CB1C90D5F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177898   (358518) от 27.10.2017
-
-Kelly Clarkson - Meaning Of Life (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Minute (Intro)
-02. Love So Soft
-03. Heat
-04. Meaning of Life(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A729784BAE3A93D314690143B731D5FEB06BA8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

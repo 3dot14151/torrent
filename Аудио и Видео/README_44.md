@@ -1,3 +1,61 @@
+###  Публикация: 1496949   (830825) от 13.10.2021
+
+VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 1 (2021) [AAC|~324 Kbps] <Chill Out, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup, Jenufa Gleich - Live As One - Be As One (Remastered) (4:59)
+02. Weathertunes - Take Me Away (4:00)
+03. Jane Maximova - Only (6:09)
+04. CaPa - Capacity (5:55)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154CF0807A536067379E8EB8EB8611B83AB39ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499429   (830664) от 13.10.2021
+
+VA - Toolroom Vaults Vol. 1 (2021) [AAC|~339 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Ikin - LaTanya (Extended Mix) (6:41)
+02. Eli Brown - Get Down (Extended Mix) (7:32)
+03. Tiger Stripes - UFO (Extended Mix) (6:27)
+04. Low Steppa, Skapes - Reactor (Extended Mix) (4:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7792F45A7911D29FD0CF6D99201EF3710EA2C5B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498712   (830663) от 13.10.2021
 
 VA - Vanlife Chill, Vol. 4 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
@@ -681,64 +739,6 @@ VA - The Spirit of Lounge Music (2021) [AAC|~297 Kbps] <Lounge, Chill Out, Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B431AC7072ABC55C4FA76C800861D94BB570203D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498901   (830395) от 13.10.2021
-
-Chillout Music Masters - Flow Beats 2021 – Magical Electro Lounge (2021) [AAC|~301 Kbps] <Chill Out, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electro Chillout Lounge (3:54)
-02. Wind and Fire (3:27)
-03. Blue Dreams (6:17)
-04. Flow Beats (3:35)(   Читать дальше...   )Жанр: Chill Out, LoungeПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68977E04D13522260BFF6C11D9824A65C56D02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500982   (830394) от 13.10.2021
-
-VA - The World Series of Lounge, Vol. 1 (2021) [AAC|~325 Kbps] <Balearic, Downtempo, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Day of Light (2:21)
-02. Man In A Room, Natasha Tsirou - Marveland (5:22)
-03. Inventors Of The Sun - Secrets (5:39)
-04. Smooth Deluxe, Nizam Kharda - Bodhu Boron (3:18)(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 01:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86B99F1718A72CE32D8D5EC2B0026490A385CD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

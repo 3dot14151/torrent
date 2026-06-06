@@ -1,3 +1,90 @@
+###  Публикация: 1681768   (132348) от 04.12.2023
+
+Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dendera (11:05)
+02. Pillars of Eternity (9:28)
+03. Of Lapis and Gold (11:36)
+04. Hieroglyphs and Mysteries (10:00)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D105DD6AF02AC95796DE260F103CC6366D0583A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525666   (129244) от 21.01.2022
+
+Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pearl of My Life (3:23)
+ 02. Heartache (3:40)
+ 03. Youth, Love and Fantasy (3:39)
+ 04. Love Connection (4:55)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD1FBE80C273C0B96F2429D804E811E2E2F8D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525545   (129190) от 21.01.2022
+
+Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris by Night (3:51)
+ 02. Sourire (4:26)
+ 03. Seine (3:39)
+ 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687327   (125612) от 26.12.2023
 
 Leo Rojas - Best Of (2023) [FLAC|Lossless|WEB-DL|tracks] <Panflute, Native american, Ethnic>
@@ -663,93 +750,6 @@ Deep Forest - французский дуэт, состоящий из музы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9B6A4BEF278DD4FF4F1DE8800A610444AFDF16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710544   (61601) от 27.03.2024
-
-Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensual Chill (3:02)
-02. Wet Dream (3:41)
-03. Erotic Massage (2:57)
-04. Want You (2:57)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E83186511F0CAED67BDF861DD3C0E066AAF3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585597   (60377) от 08.04.2024
-
-Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ultimate High (432hz) [00:02:33]
-02. Tantric Sex Magic (432hz) [00:02:20]
-03. My Mistress Marijuana (432hz) [00:03:02]
-04. Marijuana Kundalini Meditation (432hz) [00:03:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77380C13F54034EA8AD24B7F9D317D4C3FBBA254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724923   (55610) от 23.05.2024
-
-VA - Erotic Spa: Blissful Time (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julie Riviera - Sensual Bliss Spa (3:16)
-02. Erotic Massage Music Ensemble - Silk Touch Retreat (3:32)
-03. Tantric Sex Background Music Experts - Hot Oil Ecstasy (3:01)
-05. Erotic Massage Music Ensemble - Tantric Haven (3:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987FD914A8908C740B3E6F8E63301946BD5E03B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

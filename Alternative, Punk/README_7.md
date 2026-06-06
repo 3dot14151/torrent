@@ -1,3 +1,32 @@
+###  Публикация: 1009542   (810157) от 21.04.2016
+
+Bazzookas - Ska.World (2016) [MP3|320 кб/с] <Ska, Altertative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:24)
+02. Winwin (03:01)
+03. Torn (03:36)
+04. Wrong Train (03:05)(   Читать дальше...   )Жанр: Ska, AltertativeПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B76EB28B241475ACFDC4245812286496E92F42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119302   (809273) от 27.03.2017
 
 Royal Nature - Arcane (2016) [MP3|320 Kbps] <Alternative Rock, Electronic Indie Rock>
@@ -712,35 +741,6 @@ Martin Grech - Hush Mortal Core (2020) [MP3|320 Kbps] <Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8524588A2D87A2F1BFC89D88AFBD26E1AC7393D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123643   (786359) от 08.04.2017
-
-Sylvaine - Wistful (2016) Limited Edition [MP3|320 Kbps] <shoegaze, post-rock, darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delusions
-02. Earthbound
-03. A Ghost Trapped in Limbo
-04. Saudade(   Читать дальше...   )Жанр: shoegaze, post-rock, darkwaveПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F92BD303AA9770093975F84B008D009B69EFB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

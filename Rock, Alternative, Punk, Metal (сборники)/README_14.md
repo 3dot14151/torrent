@@ -1,3 +1,148 @@
+###  Публикация: 1117732   (816642) от 23.03.2017
+
+VA - Rock Collection 1998 (2017) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. Goo Goo Dolls - Dizzy
+02. Falkenbach - ...When Gjallarhorn Will Sound(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 33:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F243A46C68D6787E5665883372ADFECF1BC09B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117746   (816634) от 23.03.2017
+
+VA - Rock Collection 1999 (2017) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. Liquid Tension Experiment - Acid Rain
+02. Lacrimosa - Am Ende der Stille(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 32:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F5589CD7DA9A7FC1E3FC1DCE71420D08EF1E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197373   (815425) от 07.01.2018
+
+VA - Чартова дюжина. Итоги 2017 (2018) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ДДТ - Любовь не пропала
+02. Кипелов – Косово поле
+03. БИ-2 feat. John Grant - Виски
+04. Сплин – Храм(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5285544E4EFF92171D712ABA2251CA74FA953B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382829   (815300) от 13.05.2020
+
+VA - Hard Rock Classics (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Def Leppard - Glad I'm Alive 4:13
+02. Alice Cooper - Poison 4:30
+03. Bon Jovi - You Give Love A Bad Name 3:43
+04. Scorpions - Rock You Like a Hurricane (2015 Remaster) 4:14(   Читать дальше...   )Жанр: RockПродолжительность: 04:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16D70DFD5BF3112655E1C4D94F9DD7B8D9283C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383187   (813117) от 14.05.2020
+
+Pink Floyd - 100% The Best Pink Floyd LIVE (2020) [MP3|320 Kbps] <Rock, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Careful With That Axe, Eugene (Single Version, 2016 Remastered Version)
+02. Cymbaline (BBC Radio Session, 12 May 1969)
+03. Interstellar Overdrive (Live At The Paradiso, Amsterdam, 9 August 1969)
+04. Careful With That Axe, Eugene (BBC Radio Session, 12 May 1969)(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 06:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C85EBB2D1A4A86B72560BC8591CF2D7780242E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383294   (811725) от 15.05.2020
 
 VA - Nu Metal Heaven (2020) [MP3|320 Kbps] <Metal, Nu-Metal>
@@ -600,151 +745,6 @@ Gary Glitter - 100% Gary Glitter (2020) [MP3|320 Kbps] <Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:923C1DE04CAC938B990195A9DDFCF54B13F90064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385833   (795836) от 27.05.2020
-
-VA - Classic Rock Drive (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795836.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Supertramp - Give A Little Bit 4:08
-002. The Doobie Brothers - Listen to the Music 3:47
-003. Queen - Somebody To Love 4:56
-004. Eagles - Take It Easy (2013 Remaster) 3:32(   Читать дальше...   )Жанр: RockПродолжительность: 10:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C65FE94DE6C2569EE4F5BA7359C70BC931EAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012152   (795565) от 29.04.2016
-
-VA - Alternative Spring by Evaluator Pt.1 (2016) [MP3|192-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Decyfer Down - Believe in Me
-02. Hour 24 - Take Me Away
-03. Throw The Fight - Bury Me Alive
-04. Cilver - It's My Life(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1E262817EA7BBB920997B85EEBD54D8B0B3B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386251   (795197) от 28.05.2020
-
-ACDC - 100% ACDC live! (2020) 3CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock N Roll Train (Live at River Plate Stadium, Buenos Aires, Argentina - December 2009)
-02. Whole Lotta Rosie (Live)
-03. Problem Child (Live Tv Appearances 1976 - 1978)
-04. Problem Child (Live)(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 14:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5269D02B9AAEE79881259936632948137E4AC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386484   (794402) от 29.05.2020
-
-VA - Led Zeppelin & worshippers - Live! (2020) 3CD [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Heartbreaker (2007 Remastered Live Version from The Song Remains The Same)
-02. Led Zepagain - Immigrant Song
-03. Led Zeppelin - Over The Hills And Far Away (2007 Remastered Live Version from Song Remains The Same)
-04. Letz Zep; Billy Kulke; Andy Gray - Immigrant Song (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 24:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC0C51AF5946255DDFCA73F8CFD4E66765E476E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386443   (794395) от 29.05.2020
-
-Slade - 100% Slade in live! (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear Me Calling (Live; 2009 - Remaster)
-02. Rock 'n' Roll Preacher (Slade On Stage 1982)
-03. Darling Be Home Soon (Live; 2009 - Remaster)
-04. Everyday (Slade Alive! Vol. 2 1978)(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 02:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE559BA1CA40EFE6DCC7CE021E49998774D46CB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

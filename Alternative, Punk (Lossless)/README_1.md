@@ -1,3 +1,62 @@
+###  Публикация: 1616148   (1036739) от 01.03.2023
+
+Child - Soul Murder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Bluesy, Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free and Humble [00:04:09]
+02. Trouble with a Capital "T" [00:06:31]
+03. Standing on My Tail [00:05:03]
+04. Feels Like Hell [00:05:43](   Читать дальше...   )Жанр: Heavy Rock, Bluesy, Psych, StonerПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268CC93E3C2931D5F23C474105233357A87BB1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616249   (1036729) от 01.03.2023
+
+Celebrity Sex Scandal - Convergence of Infinite Sequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Avantgarde, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Cold Badassery [00:03:41]
+02. The Profit [00:03:36]
+03. Jukebox Blues [00:03:29]
+04. Kill Me [00:04:08](   Читать дальше...   )Жанр: Avantgarde, Progressive MetalПродолжительность: 00:41:29
+Источник: deezer RAZOR TO WRIST
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A725696149620D94F299BAD505564029E7C9A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616502   (1036450) от 02.03.2023
 
 Seconds Ago - Dysphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <hardcore, metalcore>
@@ -687,64 +746,6 @@ Hum - Inlet (2020) [FLAC|Lossless|tracks + .cue] <Space Rock, Post Rock, Shoegaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1AEE5D12813F4B6D75D63B17A8B1CF6B5B0A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453195   (1027241) от 09.03.2021
-
-Black Country, New Road - For The First Time (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post Rock, Experimental Rock, Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instrumental (5:27)
-02. Athens, France (6:22)
-03. Science Fair (6:20)
-04. Sunglasses (9:50)(   Читать дальше...   )Производство: Ninja Tune – ZENCD269Жанр: Alternative Rock, Post Rock, Experimental Rock, Post PunkПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A1589EE9105C42DD3BA1190CECBCCBAC9DC2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453444   (1026877) от 11.03.2021
-
-Kings Of Leon - When You See Yourself (2021) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You See Yourself, Are You Far Away (05:48)
-02. The Bandit (04:11)
-03. 100,000 People (05:44)
-04. Stormy Weather (03:42)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDE6AE58EE8B7AAF29E378D420FB4BE28D74EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

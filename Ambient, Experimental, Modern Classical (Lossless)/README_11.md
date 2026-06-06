@@ -1,3 +1,89 @@
+###  Публикация: 1303368   (574457) от 20.05.2019
+
+Cholosus - Momentum EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Home (06:38)
+02. Looking at Heaven (06:55)
+03. Artheria (10:45)
+04. Satura (06:24)Жанр: Ambient, DroneПродолжительность: 00:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F432283F6D0FF279752536804E98AC77B91D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234638   (569361) от 06.07.2018
+
+Robert Rich & Markus Reuter - Flood Expeditions: The Gatherings, 19 May 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flood Expeditions: The Gatherings Part 1 (14:04)
+ 02. Flood Expeditions: The Gatherings Part 2 (12:21)
+ 03. Flood Expeditions: The Gatherings Part 3 (07:37)
+ 04. Flood Expeditions: The Gatherings Part 4 (16:15)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE7A5065EA30FF988F6F8118E0F2D5D0DC53FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234714   (567962) от 07.07.2018
+
+Palta & Ti - Palta Og Ti På Den Tolvte Ø (2018) 12th Isle [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub, Leftfield, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. På Hovedet I Seng (08:11)
+02. 12 Ø Dub (05:47)
+03. Forårets Skørhed (10:20)Жанр: Ambient, Dub, Leftfield, ExperimentalПродолжительность: 00:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75D5406945AB0C683D252F4FE2E24C2FEB724DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304328   (565539) от 25.05.2019
 
 Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
@@ -652,93 +738,6 @@ The American Dollar - You're Listening (2018) Yesh Music [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A9A5BFC375D1E7E614A7962FC46DB17D3E9F672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238897   (543779) от 02.08.2018
-
-Saåad (Saaad) - Deep​/​Float (2014) Hands In The Dark [FLAC|Lossless|WEB-DL|tracks] <Experimental, Drone, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valley Of Quartz   (05:33)
- 02. Alone In The Light (05:51)
- 03. Giant Mouth (06:54)
- 04. I Will Always Disappoint You (06:08)(   Читать дальше...   )Жанр: Experimental, Drone, AmbientПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E63C0F0324C15DA13F7E78C374F1AADE185072A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239034   (542515) от 03.08.2018
-
-Ryuichi Sakamoto - Async (2017) Milan [FLAC|Lossless|tracks+.cue] <Abstract, Ambient, Experimental, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andata (04:39)
- 02. Disintegration (05:46)
- 03. Solari (03:52)
- 04. Zure (05:12)(   Читать дальше...   )Жанр: Abstract, Ambient, Experimental, Modern ClassicalПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53D42632BFB3620FF62B1B4A7DA68423889598F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239382   (538985) от 05.08.2018
-
-Node - Node Live (2018) DiN [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shinkansen North (14:16)
- 02. Perpetuum Mobile 1 (13:22)
- 03. Arrival (12:16)
- 04. Shinkansen South (13:38)(   Читать дальше...   )Жанр: Ambient, Berlin-SchoolПродолжительность: 01:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC8B35000BE06C066BEACE5DD62B023F5A1A9AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

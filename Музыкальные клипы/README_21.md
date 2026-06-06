@@ -1,3 +1,55 @@
+###  Публикация: 537924   (509693) от 23.08.2012
+
+Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59117D2670C996059562B2FF76F66E815B953E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537920   (509642) от 23.08.2012
+
+Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73BF4239372819909194FA784A0925981A78BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932528   (506906) от 31.08.2015
 
 VA - Летний марафон № 186 / Видеоклипы (Самые Танцевальные Хиты) (2015) WEBRip [H.264/1080p-LQ]
@@ -646,67 +698,6 @@ Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD31AF4D92BB77CF39A254A5CFF1A920F092E46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546179   (478696) от 13.09.2012
-
-Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8500FADF8AB7E7CF25A86D22D37AA4E73ABCB2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384818   (478526) от 08.09.2011
-
-DJ VJ Magrao Videomix Volume 10 (2011) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летний мегамикс бразильского ви-джея Magrao01 - DJ VJ Magrão - Introdução 2011 Parte 2
-02 - Adele - Rolling In The Deep
-03 - Rihanna - California King Bed
-04 - Flo Rida & Akon - Who Dat Girl
-05 - DJ Antoine, Timati Feat.Kalenna - Welcome To St. Tropez
-06 - Jean Roch, Flo Rida & Kat DeLuna - I\'m Alright
-07 - Far East Movement - Rocketeer
-08 - Tiko\'s Groove & Gosha - I Don\'t Know What To Do
-09 - Katy Perry - Last Friday Night (TGIF)
-10 - Jessie J & B.O.B - Price Tag(   Читать дальше...   )Жанр: Pop, Club, DanceРежиссер: DJ VJ MagraoАктеры: разные исполнителиПродолжительность: 1:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DA292DEB42BC15FFEA15C25D82A1EB1CE346A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

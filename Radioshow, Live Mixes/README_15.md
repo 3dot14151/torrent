@@ -1,3 +1,235 @@
+###  Публикация: 1328982   (359384) от 02.10.2019
+
+Greg Downey - Live @ Avalon Hollywood Los Angeles, United States 2019-08-31 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Liebing - American Madness
+02. Dast - Glory (Greg Downey Rework)
+03. Giacomo Renzi - Kaleidoscope (Greg Downey Rework)
+04. Greg Downey - No Sleep(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9C2867D8F7FB430571F13EF81C620F95A12637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328985   (359271) от 02.10.2019
+
+John O'Callaghan - Live @ 1015 San Francisco, Satellite Series, Dreamstate, United States 2019-09-20 [MP3|192 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Joint Operations Centre - ID
+03. John O'Callaghan - Hammers At Dawn
+04. Key4050 - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF759C4E1C02DDA481C5CAFFB63952BBC7C395B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178860   (353977) от 29.10.2017
+
+VA - Ori Uplift & Afternova - Uplifting Only 246 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE: DreamLife & Grande Piano - Lettera D'Amore (Intro Mix)
+02. Talla 2XLC & Alessandra Roncone - Luce (Extended Mix)
+03. Aly & Fila with Ferry Tayle - Concorde (Extended Mix)
+04.Жанр: Trance, Uplifting TranceПродолжительность: 02:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC4D7C47310451914E6E7B5DCDB2B467C501E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329547   (352379) от 05.10.2019
+
+Neptune Project - Live @ Intricacy Albuquerque, New Mexico, United States 2019-09-20 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Junkie XL Feat. Saffron - Beauty Never Fades (Animatrix Edit)
+02. Conjue One Feat. Sinead O'Connor - Tears From the Moon (Hybrid's Twisted on the Terrace Mix)
+02. Riva - Runaway
+04. Airwave - Cathedrals of Hope(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537F5F72055E6A0A898D8BC8A8FF9D13E377B19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329541   (352262) от 05.10.2019
+
+Paul van Dyk - Live @ SHINE Ibiza Closing Party, Eden Ibiza, Spain 2019-09-19 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk pres. Shine - SHINE Ibiza Anthem 2018 (Intro Edit)
+02. UDM - World Of Illusion
+03. Paul van Dyk & Steve Dekay - Aurora
+04. System F - Out Of The Blue (Giuseppe Ottaviani 2010 Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1A29A369EB4F27F68D5A7C3CCAA90E46CDEB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330020   (347864) от 07.10.2019
+
+VA - Live @ Ultra Music Festival Croatia (2019) [MP3|~245 Kbps (V0)] <Trance, Techno, House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jeffrey Sutorius (Dash Berlin) @ Mainstage, Ultra Music Festival Europe, Croatia 2019-07-14:
+01. Martin Garrix - Pizza
+02. Alesso feat. Tove Lo – Heroes (Dash Berlin Rework)
+03. Laidback Luke & Marc Benjamin – We’re Forever (Dash Berlin Remix)(   Читать дальше...   )Жанр: Trance, Techno, HouseПродолжительность: 17:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2AA4E59566ECDFC3717C14E482900282BFB958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257376   (345800) от 26.10.2018
+
+VA - Markus Schulz - Global DJ Broadcast - Afterdark (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz presents Dakota vs. Arkham Knights - Something About You
+02. Carl Cox, Reinier Zonneveld & Christopher Coe - Inferno (Markus Schulz Afterdark Reconstruction)
+03. Sonate - Sequenced (Markus Schulz Afterdark Reconstruction)
+04. Arkham Knights vs. Jam El Mar - Wake Up(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B346E7807E6631A9561E8FEEA6D870948B878B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258013   (341350) от 28.10.2018
+
+VA - Ori Uplift & Alternate High - Uplifting Only 298 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akku - Megumi (DreamLife Intro Edit)
+02. Sandro Mireno - It's Your Day (EXCLUSIVE PREMIERE)
+03. Chronosapien - El Comandante
+04. Miroslav Vrlik - In The Mood (Extended Mix(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FF027D40EDA1858B35A29EEF5952F1C6A8AB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211321   (340320) от 28.10.2018
 
 Hernan Cattaneo - Resident 348-356, 358-390 (2018) (Обновляемая) [MP3|320 Kbps] <Deep House, Progressive House>
@@ -513,238 +745,6 @@ VA - Ori Uplift - Uplifting Only 300 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEB4DAEFB0FBCD2BCF9A45EE36C0B4349925FC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872040   (298563) от 02.12.2015
-
-AniMe - Absolute Mix # 1-16 (2014-2015) [MP3|320 кб/с]<Hardcore>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298563.jpg" />
-</div>
-
-
-###  Подробнее
-
-AniMe – Absolute Mix #01 (21.02.2014)
-01 - Mayhem x Antiserum - Bangladesh/Trippy (AniMe Bootleg)
-02 - Placid K - G-Member (8PM remix)
-03 - DJ Mad Dog - Thunder-like(   Читать дальше...   )Жанр: HardcoreПродолжительность: 12:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB926CBF31D992A829427392ADCECA33D014A1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872091   (298458) от 02.12.2015
-
-Masters Of Hardcore - Official Podcast # 1-28 (2014-2015) [MP3|128,320 кб/с]<Hardcore>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298458.jpg" />
-</div>
-
-
-###  Подробнее
-
-MOH: Angerfist Podcast - Episode 001 (24.11.2014)
-01. Angerfist & Radical Redemption – Messenger Of God
-02. Placid K – Bring The Beat Back
-03. Catscan & Armageddon Project - WASP(   Читать дальше...   )Жанр: HardcoreПродолжительность: 25:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5254C7B05A728EAED2863D3CDC95D431928F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079256   (296248) от 03.12.2016
-
-Markus Schulz - Global DJ Broadcast - World Tour - Moscow & Saint Petersburg, Russia (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz (Recorded Live from Stereo Hall in Moscow - November 18th 2016)
-01. Markus Schulz - The Lost Oracle
-02. ID
-03. David Forbes - Lap of the Gods(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3751FA58C136C53AD6408861979505E891A0F1D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185180   (295194) от 20.11.2017
-
-VA - Ori Uplift & Dj T.h. - Uplifting Only 249 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
-02. Steve Allen & Sarah Lynn - Broken Child (Extended Mix)
-03. Stoneface & Terminal & Fenna Day - A Spring of Hope (Extended Mix)
-04. Artisan feat. Anki - Thank You (Ultimate Extended Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727C882C8BDEC81A4D6E4F4ABD80446BE47B4121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262797   (293602) от 16.11.2018
-
-VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Fisherman - The Jaguar (Airwalk Festival 2018 Anthem)
-02. Adip Kiyoi & Susie Ledge - Wild Rose
-03. DARVO vs. Grooveloverz & Miss Jane - It's a Fine Day on Cloud 99 (Markus Schulz Mashup) (Mashup of the Week)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7F1F59312EF933CE13656BF724DC43F29500D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263247   (290035) от 18.11.2018
-
-VA - Ori Uplift & Shimotsukei - Uplifting Only 301 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro Mireno - It's Your Day
-02. BREAKDOWN OF THE WEEK: Playme - The Great Bay (EXCLUSIVE PREMIERE)
-03. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
-04. FAN FAVORITE 299: Roger Shah & RAM feat. Natalie Gioia - For The One You Love (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446DFBDECAA9E5DD9193C94766AB5B85624AE4C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185938   (289944) от 23.11.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 523 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jam & Spoon - Odyssey To Anyoona (Jamie Stevens & Uone Remix)
-02. Upercent - Pulsacions (Nick Warren Remix)
-03. Mariano Mellino & Interaxxis - Ecouter (Original Mix)
-04. Nato Medrado - Small Room (Tinlicker Extended Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B378C6A2C9F4B2B94C36E1A5965303F9A813700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185822   (289834) от 23.11.2017
-
-VA - Ahmed Romel - Orchestrance 215 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pryda - Stay With Me
-02. Kiran M Sajeev - Liberator (Original Mix)
-03. NavidN2M & Hidden Tigress - Distance (Dub Mix)
-04. Fady & Mina - Scirish(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7F6AEE9F835105224BE43DB2888F39E7FC64B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

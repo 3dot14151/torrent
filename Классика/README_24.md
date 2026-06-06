@@ -1,3 +1,61 @@
+###  Публикация: 1033840   (635812) от 12.07.2016
+
+Jordi Savall, Lislevand, Behringer, Cocset, A. Savall, Estevan, A. Gonzalez-Campa - La Folia (1490-1701) 1998 [FLAC|Lossless|image + .cue] <Renaissance, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635812.jpg" />
+</div>
+
+
+###  Подробнее
+
+I. Folias Antiguas 
+01.  Folia Rodrigo Martinez (1490)    05:36
+02.  Recercada Quarta sobre la Folia (1553)    01:30
+03.  Folia Para quien crie cabellos (1557)    02:11(   Читать дальше...   )Жанр: Renaissance, BaroqueПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91A8209237945B2AF35BA8C203D49FA1F5389FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542203   (633433) от 09.04.2022
+
+Daniel Harding, Deutsche Kammerphilharmonie – Beethoven: Overtures (1999) [FLAC|Lossless|image + .cue] <Classical, Overtures>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633433.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coriolan, Op. 62 (7:22)
+2. Leonore III, Op.72 (12:49)
+3. Egmont, Op. 84 (7:42)
+4. Leonore II, Op. 72a (12:44)(   Читать дальше...   )Жанр: Classical, OverturesПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B41630A3A193573893EA9AA00DFB3E3C9F478F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144231   (629224) от 21.06.2017
 
 The London Promenade Orchestra - Johann Strauss' Greatest Hits (1992) Compilation, Remastered [FLAC|Lossless|image + .cue] <Classical, Instrumental>
@@ -734,61 +792,6 @@ Part 3: Evening
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 220894   (612757) от 25.07.2010
-
-Tomazzo Albinoni - Музыка, неподвластная времени (2007) [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037734   (611905) от 25.07.2016
-
-Chequerboard - The Unfolding (2013) [FLAC|Lossless|tracks] <Folk, Modern Classical, Acoustic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dunes    07:48
-02. Opening The Gates    04:43
-03. The Sorrow Bird    04:09
-04. Like A Bell To A Southerly Wind    04:26(   Читать дальше...   )Жанр: Folk, Modern Classical, AcousticПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA48CF96444CE9C26F465ECDEA6ED56E1664253
 ```
 
 https://mybot314.ru/tekegram_catalog/

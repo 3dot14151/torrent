@@ -1,3 +1,61 @@
+###  Публикация: 1116535   (822236) от 20.03.2017
+
+VA - Chill Out Piano (2017) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Tipo - Goldberg Variations, BWV 988: Aria
+02. Marielle Labeque, Katia Labeque, Israel Philharmonic Orchestra and Zubin Mehta - Le carnaval des animaux, R. 125: VII. Aquarium
+03. Aldo Ciccolini - Arabesque, L. 66: I. Andantino con moto
+04. Wolfgang Sawallisch, Philharmonia Orchestra and Annie Fischer - Piano Concerto No. 21 in C Major, K. 467: II. Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD73DE2EAC6D04FE8E7A28517A8BF8926D589B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116569   (822150) от 20.03.2017
+
+2Cellos & London Symphony Orchestra - Score (2017) [FLAC|Lossless|tracks + .cue] <Neoclassical, Stage & Screen, Score>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ramin Djawadi - Medley (From Game of Thrones) (5:04)
+02. Enya, Roma Ryan, Nicky Ryan, Howard Shore - May It Be (From The Lord Of The Rings: The Fellowship Of The Ring) (3:56)
+03. James Horner - For The Love Of A Princess (From Braveheart) (5:11)
+04. Francis Lai, Carl Sigman - Love Story (From Love Story) (3:24)(   Читать дальше...   )Производство: Portrait, Sony Masterworks – 88985349122Жанр: Neoclassical, Stage & Screen, ScoreПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68BC5AE6A5F62551B597244530AAEE9DB79BA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 655174   (821520) от 12.05.2013
 
 Antonio Lucio Vivaldi-Concerti per mandolini: Europa Galante, conductor Fabio Biondi (2001) /2002 Virgin Classics [flac|Lossless]<Chamber>
@@ -700,64 +758,6 @@ Ensemble Organum (Marcel Pеrеs) - Дискография (1984-2012) [APE/FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A20CD4476147B142FB814970EACC6BEA7B52BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505164   (806301) от 26.10.2021
-
-VA - Piano Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Easy Listening>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vitaly Margulis - Nocturnes, Op. 9 No. 2, Andante in E-Flat Major (4:34)
-02. Henrik Mawe - Suite bergamasque, L. 75 III. Clair de lune (5:01)
-03. Vitaly Margulis - Waltzes, Op. 64 No. 1, Molto vivace in D-Flat Major Minute Waltz (1:53)
-04. Slovak Philharmonic Orchestra - Piano Concerto No. 5 in E-Flat Major, Op. 73 Emperor II. Adagio un poco moto (8:19)(   Читать дальше...   )Жанр: Classical, Instrumental, Easy ListeningПродолжительность: 02:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E4C85539ABD8DBE0BC5FAC79740065E882186E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198539   (806179) от 12.01.2018
-
-VA - Great Romantic Piano Favorites (The World's Most Beautiful Melodies) (1997) [FLAC|Lossless|image + .cue] <Classical, Easy Listening>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earl Wild and Royal Philharmonic Orchestra - Piano Concerto No. 2 In C Minor (Rachmaninoff) (13:25)
-02. The Virtuoso Piano Quartet - Malaguena (Lecuona) (4:02)
-03. Michael Reeves and National Philharmonic Orchestra - Theme From Sonata In C (Mozart) (2:26)
-04. Earl Wild and Royal Philharmonic Orchestra - Nocturne In A Flat (Chopin) (4:02)(   Читать дальше...   )Жанр: Classical, Easy ListeningПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A371E93D399C7DD9221B8AF3A3932B9E466E14DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

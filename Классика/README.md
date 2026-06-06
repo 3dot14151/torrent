@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1873547   (1071317) от 28.05.2026
+
+VA - The Best 100 of Classical Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071317.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:34)
+002. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
+003. Katya Kramer-Lapin - Rhapsody on a Theme of Paganini, Op. 43 Variation No. 18. Andante cantabile (Transcr. for Piano Solo by Michael R. Loveridge) (3:12)
+004. Katya Kramer-Lapin - Suite Bergamasque, L. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E170624F176E5E1A9876EE2B57AB93DE366D1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873328   (1071140) от 27.05.2026
+
+VA - Classical Piano (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice I. Allegro (3:08)
+02. Sergey Bryukhno - 3 Gymnopédies No. 1, Lent et douloureux (2:53)
+03. Sergey Bryukhno - Sonnet in C Major (1:25)
+04. Katya Kramer-Lapin - Goldberg Variations, BWV 988 Aria (5:28)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09A9B5239FABD8C5E7408D7427EC5357AC08114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869042   (1067871) от 03.05.2026
 
 VA - The Best Classical Instrumental Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -688,64 +746,6 @@ Lindsey Stirling - Warmer In The Winter (2017) Japanese Edition [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEAE6D041A307FA342993715E294A9FAD4345652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443917   (1034899) от 31.01.2021
-
-Jef Martens - Building A Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Lives In My Dreams (1:34)
- 02. When We're On The Mountain (2:28)
- 03. How She Speaks Of The Sea (1:30)
- 04. Her Castle is Magnificent (1:10)(   Читать дальше...   )Жанр: Modern Classical, Solo PianoПродолжительность: 00:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80419808910DF6A73DC5C7DE8F8D05A9895FD618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446721   (1032504) от 10.02.2021
-
-Autumn Tears - The Air Below The Water (2020) 2xCD [FLAC|Lossless|image + .cue] <NeoClassical, Darkwave>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032504.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. The Calling (Instrumental)
-02. Sentient Idols
-03. Dreaming Deeper(   Читать дальше...   )Жанр: NeoClassical, DarkwaveПродолжительность: 01:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DB29C0AFBBE688C6408BE84756B6A00B0D6C12
 ```
 
 https://mybot314.ru/tekegram_catalog/

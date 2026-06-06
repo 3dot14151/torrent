@@ -1,3 +1,90 @@
+###  Публикация: 1098491   (908723) от 30.01.2017
+
+VA - Record Super Chart #472 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hardwell & Quintino - Baldadig (Extended Mix)  3:40
+02.  Грибы - Копы (Vincent & Diaz Remix)  4:10
+03.  Ofenbach - Be Mine (Amice Remix)  3:23
+04.  Clean Bandit feat Sean Paul & Anne-Marie - Rockabye (Denis First Remix)  4:08(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7D26479256D35F950483443CBACB3D1AC1D4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098392   (908705) от 30.01.2017
+
+VA - Deep House Collection Vol.106 (2017) [MP3|192-320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908705.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexander B - I See (Cosmic Cowboys Summer Remix) 9:04
+002. Almost Home - Girls (Original Mix) 5:28
+003. AN - TI - I Hurt You (Original Mix) 6:48
+004. Angelo F - Mambo Night (Original Mix) 6:00(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51432739E12E58085D0B82BAB6E97DE3D4D277A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991004   (908201) от 27.02.2016
+
+VA - After Eight Vol 4 (25 Bar Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Of Dreams - Rainy Days
+02. The Contact Project - Silver One
+03. Sensotango - Libre
+04. Francesco Demegni - Lethal Lady(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF70B0340129C6B8574C4080188FC28CFB73D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991254   (908197) от 27.02.2016
 
 VA - Electro House 50 Vol. 2 (2016) [MP3|320 кб/с] <Progressive, Electro, Club>
@@ -658,97 +745,6 @@ VA - Beatport Ambient: Electro Sound Pack #29 (2020) [MP3|320 Kbps] <Ambient, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04CAE110AE9A4766E8BA667F7396081DC100E960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991823   (904564) от 29.02.2016
-
-VA - Shake That House Vol. 5 (2016) [MP3|320 кб/с] <House, Electro House Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stev Bray - You and Me
- 02. DJ Mckoy - Give Me Your Space
- 03. Fos - Gambay (feat. Michael A.M)
- 04. Lowave & Skvatt - Combination(   Читать дальше...   )Жанр: House, Electro House DanceПродолжительность: 03:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E3B120056AF91BF7AB608E2ECB84A443B1D88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636288   (904472) от 29.03.2013
-
-VA - Exotik Lounge (2013) [MP3|320 кб/с]<Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ragi Ravin - Bali Sunset Chill Dreams (Buddha Beach Lounge Shortplay Mix) [11:18]
-02. Lotus Style Cult - Samota (Chop Suey Mix) [05:00]
-03. Stardust Alchemy - A Dream Under Your Star (After Dark Soleil Mix) [05:12]
-04. Skyfall - Particle of Soul [04:42]
-05. Aakarshan - Tantra Cafe (Sacred Spirit of Love Mix) [04:40]
-06. Ragi - Voyage to India (Buddha Sunset Del Mar Vocal Mix) [05:55]
-07. Sweet Velvet - La Plena Noche (feat. Debora Vilchez) [06:31]
-08. Pathetique - Au Clair De La Lune (feat. Rainfairy)Жанр: Lounge, ChilloutПродолжительность: 02:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E7C2BBC0279DBAA34DA985DDB93F597785EBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991829   (904459) от 29.02.2016
-
-VA - Top Lounge Moments (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - On the Lake
-02. Don Gorda Project - Feeling Free
-03. Cane Garden Quartet - Out With Friends
-04. Baghira - Put Your Arms(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B03409A6E5E9ED59617132FE4503F16A16D8C8BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

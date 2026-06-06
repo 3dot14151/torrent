@@ -1,3 +1,61 @@
+###  Публикация: 1533784   (701567) от 26.02.2022
+
+VA - Electronic Cafe, Vol. 1 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Touch - Sondern (2:30)
+02. Spoq - Say a Word (Original Mix) (2:12)
+03. CaPa - To Be Thoughtful (Original Mix) (4:39)
+04. Jazzamor - Illusion (Original Mix) (2:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FD061505226E153B023297220CFBCA3301354D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533510   (701560) от 26.02.2022
+
+VA - Chillout Beats 2: Chillout Your Mind (2022) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dacosta - Lifetime (5:02)
+02. Dellasollounge - Come with Me (Original Mix) (3:18)
+03. Ian Otta - Flowerfields (5:14)
+04. Martin Hiska - Walk with Me (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3256F6563E81C094528D7CDD067AB49D0FEFA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287610   (701209) от 08.03.2019
 
 Имя розы / The Name of the Rose / Der Name der Rose (1986) BDRip [1080p] ATV
@@ -644,61 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71D539C36DBF5C960561209834CF6716AA5C773B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533459   (699314) от 27.02.2022
-
-VA - Electro Blues, Vol. 2 (2014) [AAC|~273 Kbps] <Electro, Blues, Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699314.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Chill Bump - The Eponym (2:25)
-1.02. Son Of Dave - Ain't Going to Nike Town (Single Version) (3:11)
-1.03. Swing Republic, Blind Willie McTell - Searching the Desert for the Blues (3:20)
-1.04. K Theory - Good & Gone (4:14)(   Читать дальше...   )Жанр: Electro, Blues, SwingПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED09A04EDB7AA664666BF50495F41E1317F2500C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287844   (699270) от 09.03.2019
-
-Нассим Николас Талеб | Рискуя собственной шкурой. Скрытая асимметрия повседневной жизни (2018) [m4b|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699270.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей новой, резко провокационной и одновременно предельно прагматичной книге неподражаемый Николас Нассим Талеб рассказывает, как важно идентифицировать и фильтровать чушь, отличать теорию от практики, поверхностную компетентность от настоящей. Вы узнаете, что такое рациональность в сложных системах и реальном мире, симметрия и асимметрия и в чем состоит логика (   Читать дальше...   )Жанр: Самосовершенствование, Достижение успехаФормат: M4BПродолжительность: 08:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC25412194BFEE07D011F5975C8B70EEE73F8D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

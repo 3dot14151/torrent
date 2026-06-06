@@ -1,3 +1,61 @@
+###  Публикация: 1550759   (591637) от 12.05.2022
+
+Walter Murphy - Phantom Of The Opera (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уолтер Энтони Мерфи-младший - американский композитор, аранжировщик, пианист, музыкант, автор песен и музыкальный продюсер. Он наиболее известен благодаря инструментальной диско-адаптации Пятой симфонии Бетховена, которая возглавила чарты в 1976 году и была включена в саундтрек Saturday Night Fever. Последовали дальнейшие слияния классики и диско, такие как "Полет (   Читать дальше...   )01. Introduction (0:34)
+02. The Phantom Of Your Dreams (3:43)
+03. Dance Your Face Off (3:38)
+04. I'm Your Man (3:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F206C9BE133BB3D735817A8131A9DE8C2FD2BA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550737   (591600) от 12.05.2022
+
+VA - Eurodisco 80's Maxi Hits & Raritites, Vol. 2 (2020) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Lime - I Don't Wanna Lose You (Extended Dance Remix) (6:39)
+02. London Boys - I'm Gonna Give My Heart (Special Long Remix Version) (9:23)
+03. Fun Gang - Just for Fun (Radio Remix) (4:03)
+04. Geff Harrison - Bad New York City (Special Mix) (6:12)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92B21FA3396267AFE6C86764425AD175644B53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550917   (591207) от 13.05.2022
 
 Milk And Coffee - 2 Albums (1982, 1986) [MP3|320 Kbps] <Electronic, Disco>
@@ -340,6 +398,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552165   (585839) от 22.05.2022
+
+VA - The Original Masters, Vol. 9 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.C. Larue - I Don't Want to Lose You (14:04)
+02. Blair - Nightlife (7:19)
+03. Climax Blues Band - Couldn't Get It Righ (3:03)
+04. Billy Paul - Let the Dollar Circulate (4:56)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461D83DC3845E7C1175B04022BE874FED9256283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552156   (585836) от 22.05.2022
+
+VA - The Original Masters, Vol. 3 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maynard Ferguson - Gonna Fly Now (4:21)
+02. Duke Of Burlington - Flash (3:35)
+03. V.I.P. Connection (Arpady's) - West Coast Drive (4:40)
+04. John Forde - Don't You Know Who Did It (3:29)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861634E0077677D8CBFDED740D2A08FABD07330F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552160   (585835) от 22.05.2022
 
 VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
@@ -656,137 +772,6 @@ Space Project - Disco from Another Galaxy (1978) LP, Limited Edition [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79EADB8BCBA8A6A70B6633EA26A80CB65EDEDC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302257   (582249) от 14.05.2019
-
-ORS (Orlando Riva Sound) - Who Built The Pyramids (1981) 12'' [MP3|320 Kbps] <Electronic, Downtempo, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Built The Pyramids (5:19)
-02. The Wall Of Sound (6:46)
-03. Neonlight Children (4:39)
-04. Aren't You God (6:24)Жанр: Electronic, Downtempo, Funk, DiscoПродолжительность: 00:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A9B58360440BFFC3AA20E7BBFC729462E6609C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810975   (581493) от 07.08.2014
-
-Saphir - Perfect Combination (2006) Limited Edition [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Good (I Feel Fine) 4:51
-02. The Witch-Queen Of New-Orleans 3:31
-03. Little Rock 4:06
-04. Frough Your Eyes 4:07
-05. Shot In The Night 4:21
-06. Perfect Combination 3:12
-07. Never Give Up 4:00
-08. Storms Of Love 3:56
-09. Stand Up 3:47
-10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561FE84C67FE578A78DA60B8CABE9799F5BB0E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811133   (581485) от 07.08.2014
-
-Grant Miller - The Maxi-Singles Collection (2007) [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice 5:35
-02. Red For Love 5:28
-03. Doctor For My Heart 5:16
-04. I'm Alive Tonight 3:59
-05. Wings Of Love 5:15
-06. California Train 4:54
-07. (Find My) Tracks In The Snow 5:06
-08. Break Away 5:52
-09. Stranger In My Life 4:29
-10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D4D746FF999D533B847BFE605A076E9B0F8300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810893   (581444) от 07.08.2014
-
-VA - Italo Maxi Hits (2010) 2CD [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scotch - Delirio Mind 5:24
-02. Paul J.Qualley - Please Please 4:31
-03. Rewind - Rosalie (Pop & Go !) 6:04
-04. Orlando Johnson - With Just A Kiss 6:08
-05. Twilight - My Mind 7:48
-06. Stage - Voodoo Dance 7:06
-07. A.I.M. - So Evil (Close To The Edge) 7:50Жанр: Italo-DiscoПродолжительность: 01:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCB8B2CD67EC1067A543209E97C0D15C17D3688
 ```
 
 https://mybot314.ru/tekegram_catalog/

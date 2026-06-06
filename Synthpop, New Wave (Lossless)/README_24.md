@@ -1,3 +1,90 @@
+###  Публикация: 1672162   (169933) от 27.10.2023
+
+OMD (Orchestral Manoeuvres In The Dark) - Bauhaus Staircase (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bauhaus Staircase
+02. Anthropocene
+03. Look At You Now
+04. G.E.M.(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8D2463EDC0ABF06DA9A55EF7AB4047277A972E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345027   (168213) от 13.12.2019
+
+Malik Djoudi - UN (2017) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <French Electronic, Synthpop, Ambient Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peur de rien (4:34)
+ 02. Sous garantie (2:54)
+ 03. The American (4:22)
+ 04. Allant vers, à l'envers (3:43)(   Читать дальше...   )Жанр: French Electronic, Synthpop, Ambient PopПродолжительность: 00:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AF456AAFA3B0BA1C092EDBF8905D0BE2D753C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597789   (165082) от 16.12.2022
+
+Thermal Noise - Legends (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stronger than the Night [00:04:32]
+02. Legends [00:04:41]
+03. Object From Outer Space [00:03:37]
+04. Misfits [00:04:19](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49EFE03EA89FB6EB814BB10AAAC29F196ECE48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516898   (163548) от 14.12.2021
 
 Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, Geffen Records [FLAC|Lossless|tracks + .cue] <New Wave, Goth Rock>
@@ -657,93 +744,6 @@ VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:639DB642903B924B2D96E110D85AC765285718CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272215   (145543) от 26.12.2018
-
-Duran Duran - The Biggest And The Best (2012) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, Pop-Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is There Something I Should Know? (4:12)
-02. The Reflex (7' Version) (4:26)
-03. A View To A Kill (3:37)
-04. Rio (5:37)(   Читать дальше...   )Жанр: Synthpop, New Wave, Pop-Rock |Продолжительность: 02:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1878471B706C70F46846E2BB20C421710FD94F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272107   (145537) от 26.12.2018
-
-VA - Space Holidays Vol. 10 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NM - Interstellar Discovery (4:06)
-02. SynthOne - Electric Legend (5:39)
-03. Rama - Organix (5:13)
-04. Galaxy Hunter - Space Ship Two (One) (Instrumental) (5:35)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 02:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31774A27BFDC81338726C5686647AF06A4169C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272102   (145500) от 26.12.2018
-
-BELLATRIX - I Love KOTO - Covers and Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acknowledge
-02. Chinese Revenge
-03. Dragon's Legend
-04. Jabdah(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3E8B5DF77B75A198DA0F26DFC816596B412F11
 ```
 
 https://mybot314.ru/tekegram_catalog/

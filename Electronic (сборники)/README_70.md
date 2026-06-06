@@ -1,3 +1,90 @@
+###  Публикация: 1280576   (760421) от 03.02.2019
+
+VA - Trance Collection Vol.75 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.R.D.I. - Lost In The Dark (Extended Mix) 7:15
+02. Gayax & Calvin O'Commor - Only The Beginning (Extended Mix) 7:03
+03. Misja Helsloot - Let's Get Back (Original Mix) 5:23
+04. Binary Finary - 1998 (20th Anniversary Extended Remix) 7:19(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 09:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4C76CCE0EEB8382D5C393DEA095303AECA5523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394823   (760393) от 07.07.2020
+
+VA - Beatport Deep House: Electro Sound Pack #123 (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Edvard Hunger - Warning Of Dance
+002. Jack Trump - Trumpet And Sax
+003. Kosta - Deep Down
+004. Deep Massive - Minor Swing(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF51E962A4CFF5D918018A8BF7FB01E60442F3B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522159   (760360) от 06.01.2022
+
+VA - Beatport Electro House: Sound Pack #391 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760360.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 391-й музыкальный релиз от Beatport в стиле Electro House вошло большое число прекрасных замыслов, которые в лучшем виде добрались до слушателя. Композиции, составляющие танцевальный сборник, занимательны и чрезвычайно легки для слуха. Каждый на релизе отыщет ту самую запоминающуюся мелодию что будет крутиться в голове творя отличное настроение.001. Croatia Squad - Drop That Skirt
+002. Gabriel Pinheiro - Different Now
+003. Ronnie Spiteri - Demons
+004. Alban Berisha - Mirage(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640AE275E15B154E450F21EE2006C9A2B9297C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522171   (760358) от 06.01.2022
 
 VA - The Techno Streaming Sound (Vol.1) (2021) [MP3|320 Kbps] <Techno, Minimal>
@@ -664,93 +751,6 @@ VA - Cosmic Machine - The Sequel (2016) [MP3|320 кб/с] <Electronic, Experimen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5AC9A2302D9558FC1907DAFAF665DB869F8D4BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395168   (755580) от 10.07.2020
-
-VA - Beatport Disco House: Electro Sound Pack #125 (2020) [MP3|320 Kbps] <Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claborg - Twenty Four
-02. Jack Le Funk - Get Funky
-03. Eliezer - Crown Zero
-04. Paul Older - A Boo Kee Moon(   Читать дальше...   )Жанр: Disco, Funky HouseПродолжительность: 06:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79D14E1C63B3EBC1062053685D6B9E10E512707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395167   (755576) от 10.07.2020
-
-VA - Silent Prayer (2020) [MP3|320 Kbps] <Ambient, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. C.K.B. Magnetophon - Hello Phobos Hello Deimos
-002. Sol Oosel - In Allegiance To The Unknowable
-003. Jeb Ash - More Towards You
-004. Mauro Rawn - Soundtrack(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 10:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAB96AD80FBB721DD61034C6D01E54CDECB5A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522857   (754939) от 09.01.2022
-
-VA - E-Dance Tech House: Club Trendy Session (2022) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый трек в этом плейлисте имеет нечто особенное. Эти записи пробуждают очень много прекрасных чувств и воспоминаний, и я надеюсь, что то же самое произойдёт и с Вами.001. Eserex - Tricks & Sticks
-002. Danil Gurov & Broska - Hotta
-003. Paul Parsons - Dog Days
-004. Defunkt Hau5 - Poison(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 09:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C4868747CCE7B1CE57D50482CA7AFA6DB4582A
 ```
 
 https://mybot314.ru/tekegram_catalog/

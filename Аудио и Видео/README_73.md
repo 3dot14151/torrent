@@ -1,3 +1,61 @@
+###  Публикация: 1511934   (787951) от 23.11.2021
+
+VA - Nightflight New York (2013) [AAC|~331 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Connection - Tranquility Station (Smooth Evening Cut) (4:31)
+02. Frank Borell - Sleepy Hollow (Slow Your Life Mix) (7:35)
+03. Pascal Dubois - Housestream (Mindworm Mix) (5:10)
+04. Cocogroove - Martini Royale (Kiss Me James Mix) (5:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E63B296DE48785C908E958CDAFF77BADFE233C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511960   (787948) от 23.11.2021
+
+VA - Sunset in Africa, Vol. 2 (2021) [AAC|~322 Kbps] <House, Deep House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosko De Soul - Still Waters (Original Mix) (6:08)
+02. D'Joe - Passing By (Thap Soul Remix) (5:50)
+03. Lennart Richter - I Can't Sleep (Original Mix) (6:19)
+04. Monodeluxe - When the Time Will Come (5:28)(   Читать дальше...   )Жанр: House, Deep House, Organic HouseПродолжительность: 02:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1798412E6540A5DEAA69B07D134BDE411302629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511963   (787902) от 23.11.2021
 
 VA - Chill Today, vol. 2 (2016) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
@@ -651,58 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63CDF3D11F80F3295E2A3CFBFF55C0E6AA3632AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276790   (787239) от 18.01.2019
-
-Анеко Юсаги | Становление Героя Щита [Книга 8] (Adrenalin28, 2016) [m4b|HE-AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смело прыгнув в портал, ведущий в параллельный мир, в погоне за Кё, Наофуми оказывается в странном месте. Все уровни его развития обнулились, в руке самый примитивный щит, а рядом из всех спутников только Лисия. Что произошло? Что это за странные монстры? Где все? И что это за симпатичная девушка с удочкой наперевес, ловко уделывающая монстров?Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0AD5429704A07DAE8F5359652C572B76488D67B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276784   (787236) от 18.01.2019
-
-Анеко Юсаги | Становление Героя Щита [Книга 9] (Adrenalin28, 2016) [m4b|HE-AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перешагнув границы между мирами, Герой Щита вот-вот готов настигнуть злодея Кё, хитроумного обладателя Клановой Книги, похитившего энергию зверя-защитника Лингуя, чем поставил мир, защищаемый Наофуми, на грань уничтожения. Осталось всего-то собраться с силами, да взять штурмом убежище коварного врага. Отчаянная погоня приближается к своей жестокой развязке.Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42A39815D1AF96F573215E6DB4EBBD2BB0CFC49
 ```
 
 https://mybot314.ru/tekegram_catalog/

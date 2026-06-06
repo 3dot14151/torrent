@@ -1,3 +1,177 @@
+###  Публикация: 1455737   (1025491) от 20.03.2021
+
+Воnniе Туlеr - Тhе Веst Is Yеt То Соmе (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come
+02. Dreams Are Not Enough
+03. Hungry Hearts
+04. Stuck To My Guns(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBDE3C5BC53B2D0C3CD48194341039DFA914CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455813   (1025484) от 20.03.2021
+
+Umberto Tozzi – Seine Grossten Erfolge (1990) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ti Amo
+02. Eva
+03. Notte Rosa
+04. Tu(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFDD15A3D9A7928B4EC0FFD63E493CA42D432D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455924   (1025429) от 20.03.2021
+
+Madonna - Bedtime Story (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bedtime Story (Edit)
+02. Bedtime Story (Junior's Wet Dream Mix)
+03. Bedtime Story (Junior's Dreamy Drum Dub)
+04. Survival(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BDD443A26A71C6E9C3F436D839DF9B540F0561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456054   (1025293) от 21.03.2021
+
+Justin Bieber - Justice (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Much (2:33)
+02. Deserve You (3:07)
+03. As I Am (2:54)
+04. Off My Face (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40DE24B616C2610728496B89BB0301B4DEA0BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456070   (1025292) от 21.03.2021
+
+VA - Classic Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talisha Karrer - One (Acoustic) (04:05)
+02. Shannon & Keast - Love Story (Acoustic) (03:55)
+03. John Burnsby - I’m a Believer (Acoustic) (03:00)
+04. Karizma Duo - Everybody Wants to Rule the World (Acoustic) (02:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A3FA6253F4BDCA5586FEC69EC4D6FA16C050DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456584   (1024937) от 23.03.2021
+
+Stan Van Samang - Feel The Power (2021) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. River Of Life [00:03:01]
+02. Little Bits [00:06:05]
+03. Goodbye [00:09:43]
+04. This Is Not Our Time [00:05:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4B10F456952354089B53EF3E76D0F34D0DB80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456650   (1024916) от 23.03.2021
 
 VA - Vintage Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -571,180 +745,6 @@ Dalida - Dans la ville endormie (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chans
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F43BABE99AD07E916DD76BD4C703E094A76F9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467290   (1017915) от 03.05.2021
-
-VA - Ultimate Chillout (2017) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Chillout>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник не претендует на какую то супер-пупер новизну. Но Соня подобрала исключительно треки для хорошего отдыха по принципу - "поставил и слушаешь всё подряд". А что ещё нужно в такие длинные майские выходные? Серия Ultimate довольно скромно представлена на нашем трекере (ссылка внизу), но все релизы - это must have. ИМХО.CD1:
-01. George Ezra - Budapest  (3:24)
-02. First Aid Kit - My Silver Lining  (3:35)
-03. Lucy Rose - Like an Arrow  (3:28)(   Читать дальше...   )Тип издания: Box Set, 4 CDРелиз состоялся: 10 марта 2017 годаЖанр: Pop, Dance, ChilloutПродолжительность: 04:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4116C691AD122172619C7FE5F431318747DADFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468420   (1017246) от 07.05.2021
-
-Emma Stevens - Light Year (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump In (00:02:42)
-02. Forever (00:03:35)
-03. The Grass Is Always Greener (00:03:53)
-04. On a Day Like Today (00:02:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229B99475730F17DCE0C2D6201279A8834C621C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468278   (1017105) от 08.05.2021
-
-Wilson Phillips - Wilson Phillips (2016) 2CD [FLAC|Lossless|image + .cue] <  Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Release Me (Single Edit) (03:54)
-02. Hold On (Single Fade) (03:40)
-03. Impulsive (AOR Mix) (04:35)
-04. Impulsive (Single Edit) (digitally remastered 2000) (03:57)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38831761F61E25ED0656824E8C1046F273396DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468553   (1017097) от 08.05.2021
-
-Bay City Rollers - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Rock & Roll>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017097.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Remember (Sha La La La) (2:34)
-02. Shang-A-Lang (3:06)
-03. Angel Angel (2:26)(   Читать дальше...   )Жанр: Pop, Pop Rock, Rock & RollПродолжительность: 02:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE5DCE1E5F6360D0B1C43C9483BE989191C240E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468499   (1017077) от 08.05.2021
-
-VA - Greatest Covers Ever (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - I Heard It Through The Grapevine (Edit) (03:53)
-02. Musical Youth - Pass The Dutchie (03:23)
-03. Toots and The Maytals - Take Me Home, Country Roads (03:21)
-04. Bahamas - Don't You Want Me (03:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358ACC57AF569D96D2C252ADF651DB34370853DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468818   (1016738) от 10.05.2021
-
-Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define a City; Paris, Volume 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Soul, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sous Le Ciel De Paris, Padam Padam (Medley Remastered) [00:02:47]
-02. La Vie En Rose (Remastered) [00:02:32]
-03. C'est Si Bon (Remastered) [00:01:47]
-04. I Love Paris, Paname (Medley Remastered) [00:03:17](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Soul, Easy ListeningПродолжительность: 01:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7999405C20FA0475812FC5A84A7F42B8E418C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

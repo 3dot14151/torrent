@@ -1,3 +1,90 @@
+###  Публикация: 1180704   (323617) от 07.11.2017
+
+Mark Ashley - I Will Not Forget You (2017) [FLAC|Lossless|tracks + .cue] <Euro-Disco, EuroPop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jenny Come Home 4:00
+02. Please Believe Me 3:05
+03. Breath of an Angel 3:20
+04. I Will Not Forget You 3:10(   Читать дальше...   )Жанр: Euro-Disco, EuroPopПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72BBC1187533D21B36DF3E2AA53C2EC962FCED75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884733   (323178) от 07.11.2017
+
+Boney M. - Diamonds (2015) 40th Anniversary Edition [FLAC|Lossless]<Disco, Euro Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song Of Joy (Single Edit / Boney M. Feat. Liz Mitchell)
+02. Running Man (Frankie’s On The Run) (Boney M. Feat. Guyana)
+03. Sunny (John Munich & Thorsten Skringer Sax Radio Edit)
+04. Nightflight To Venus (Blank & Jones Remix)(   Читать дальше...   )Жанр: Disco, Euro DiscoПродолжительность: 03:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE0BB013A2567954A2AB7F142ADE2E226DA8E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259235   (321266) от 03.11.2018
+
+Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italove - Stockholm Is Calling (Extended Mix) (4:44)
+02. Italove - Follow Me To Mexico (Extended Mix) (4:43)
+03. Italove feat. TQ - Rhythm Of Love (Extended Mix) (7:11)
+04. Italove - Too Late To Cry (Matt Pop Club) (7:20)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9096F40ABB3AB8F5ABFF3C6CA3573F530CCE0D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259256   (320877) от 03.11.2018
 
 VA - Disco 80's Rare & Special Versions Vol. 2 (2016) Compilation [FLAC|Lossless|tracks + .cue] <Euro-Disco, Italo-Disco, Eurodance>
@@ -346,6 +433,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184328   (297030) от 19.11.2017
+
+Boney M. - Worldmusic For Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Holiday, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Birthday Jesus (Intro) - 0:24
+02. Carol Of The Bells (For One And All) (feat. Liz Mitchell) - 2:33
+03. Ave Maria - 3:20
+04. White Mountains (Spanish Romance) - 4:05(   Читать дальше...   )Жанр: Christmas, Holiday, Pop, Disco, Pop ReggaeПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F104DC084E5EA882834F12C92F2440C7C03470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333816   (296656) от 28.10.2019
 
 Radiorama - Greatest Hits & Remixes (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco, 80s>
@@ -491,6 +607,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186689   (284243) от 26.11.2017
+
+Martinelli - Voices (1987) Compilation, Unofficial [APE|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_284243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinderella (7:48)
+02. Voice (In The Night) (8:41)
+03. Summer Lover (5:45)
+04. Orient Express (6:52)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0225034460C54D0A2644430FD602A82BC780A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337385   (274802) от 10.11.2019
 
 VA - Another Side of Mike Mareen Part Two (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Synth-pop>
@@ -601,151 +746,6 @@ Ken Wilbard - You're Burning (1977) [FLAC|Lossless|tracks]<Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:399025D0D9212E2E497447ECFC572101E78871B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338395   (269768) от 15.11.2019
-
-VA - Another Side Of Fancy Part Two (2014) 2CD, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabine Sauvant - Cashbah In Cairo (Long Version) (5:24)
-02. Red Face - Down On The Corner (Long Version) (5:20)
-03. Tom Spencer - Get Love (12'' Version) (5:29)
-04. Paul Mc Douglas - Turbo-Geil (12'' Version) (6:37)(   Читать дальше...   )Жанр: Euro-Disco, Hi-NRGПродолжительность: 02:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C9455E15756E1B93C012AC7657F025E4A6FEAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267030   (268382) от 04.12.2018
-
-Video Kids - On Satellite (2011) Unofficial Release [FLAC|Lossless|image + .cue] <Euro-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellite (2:56)
- 02. Let The Music Play (3:14)
- 03. It's Not Easy (3:13)
- 04. The Zoo Song (3:21)(   Читать дальше...   )Жанр: Euro-Disco, 80sПродолжительность: 01:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A382D0C4F220D900E08CFFD2295E10F7FDD1111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267031   (268251) от 04.12.2018
-
-Mike Mareen - Greatest Hits & Remixes (2017) 2CD [FLAC|Lossless|image + .cue] <Italo,Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mike Mareen Essential Megamix (Nextanimal Edit) 8:05
-02. Love Spy (7inch Version) 4:16
-03. Dancing In The Dark (7inch Version) 3:31
-04. Stand Up (7inch Version) 3:59(   Читать дальше...   )Жанр: Italo,DiscoПродолжительность: 02:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A051BD4E13CADD8480198A991E91FD887D4A737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339895   (264272) от 22.11.2019
-
-VA - Italoconnection: Remixes Vol. 2 (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atelier Folie - Freedom Time (Italoconnection Remix) (6:14)
-02. Josep Xorto & The Congosound - Aixo Que Sona Es Nostre (Italoconnection Remix) (5:05)
-03. Aleph - Fly To Me (Italoconnection Remix) (5:38)
-04. Synergic Silence - Follow Your Instinct (Italoconnection Remix) (5:47)(   Читать дальше...   )Жанр: Italo-Disco, ElectroПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230ACEC543E12E830544EB87D68E9F9500257392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191873   (263767) от 15.12.2017
-
-VA - Italo Golden Classics (2 CD) (1996) [FLAC|Lossless|image + .cue] <Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263767.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Sandy Marton - People From Ibiza
-02. Fun Fun - Happy Station
-03. Radiorama - Chance To Desire(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1782F326BCB73110B6BCE8200AA5B64BEBFBDDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

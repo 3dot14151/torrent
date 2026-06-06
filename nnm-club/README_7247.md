@@ -1,22 +1,25 @@
-###  Публикация: 1062599   (780133) от 20.02.2018
+###  Публикация: 1205552   (782983) от 12.02.2018
 
-Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/upd17/dlc) Repack =nemos= [Deluxe Edition]
+VA - A Taste Of Kandi Winter (2010) [FLAC|Lossless|tracks] <House, Disco, Electro>
 
->>3
->>4
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Shadow Warrior 2 - продолжение  ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры  1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog.  В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+01.DJ Neo - Groove With You (feat Soraya Vivian - Soulgangsters Groove dub) (6:33)
+02.Jonni Black - I'm Over This (feat Lauren Rose) (7:18)
+03.Steven Quarre & Morris Mavado - The Reason (feat Stanford) (7:01)
+04.Sosua & Mad - Supaconstellation (7:32)(   Читать дальше...   )Жанр: House, Disco, ElectroПродолжительность: 02:55:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8EAD37D80C2EC54E5BD376E6A3CC73B06A517ED
+magnet:?xt=urn:btih:7C4F7169F015BB80AAD231B042EB3E1CA9E53A18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208184   (780132) от 21.02.2018
+###  Публикация: 1205544   (782982) от 12.02.2018
 
-Mose Allison - Ramblin' With Mose (1958) 2005, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+VA - Hed Kandi (A Taste Of Kandi Summer 2009) (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Got A Right To Cry [02:52]
-02. Old Devil Moon [05:11]
-03. The Minstrels [03:31]
-04. You Belong To Me [04:24](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:52:51
+01.Warren Clarke & Tara McDonald - Love Crazy (Triple D remix) (6:59)
+02.Disco International - Ready 4 More (feat Miss Lynsey) (5:06)
+03.No Halo - What Is This Feeling (7:43)
+04.Wawa & Herd - The Right Way (feat Amanda Wilson - Triple D remix) (6:39)(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:55:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9D82A760D2C53022D7A0FFB1770C372FF30CCB2
+magnet:?xt=urn:btih:B1FC94836FD04633B0C66997E25B353F6EF304C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,86 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208192   (780131) от 21.02.2018
+###  Публикация: 1205806   (782981) от 12.02.2018
 
-Billy Childs - Rebirth (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backwards Bop [06:38]
-02. Rebirth [07:39]
-03. Stay [05:59]
-04. Dance of Shiva [06:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF92CC8983AF6F0EE753A2F2FDDA423342F9438D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208181   (780130) от 21.02.2018
-
-The Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After You've Gone [04:53]
-02. When Johnny Comes Marching Home [05:16]
-03. Deep River [05:43]
-04. Till We Meet Again [04:19](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0B91CB24EBC447B5BA78FA0C1EA7B742A6CDBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208140   (780129) от 21.02.2018
-
-VA - Power Sounds (Volume 1) (2018) [MP3|320 Kbps] <Progressive House>
+VA - Bigroom Miami Smasher Vol.3 (2018) [MP3|320 Kbps] <House, Big Room, Club>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound  04:18
-02. Denis Dawydow, Simon Aces - F.A.Q.  05:15
-03. Julian Blaze, StarBouncers - Valentine (Time to Groove)  04:43
-04. Grimm Brothers - Back to Trumpets  04:52(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:37:04
+01.  Blaster Maxter  -  Armageddon (Original Mix)  5:47
+02.  Bassjunx  -  Carnival (Original Mix)  5:07
+03.  Leopardgecko  -  Yogurt (Original Mix)  6:01
+04.  DoranSilver  -  Portal (Original Mix)  4:00(   Читать дальше...   )Жанр: House, Big Room, ClubПродолжительность: 00:50:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AE5201ABF7BB3643285CE8A64BEA1FDCFA0C1E4
+magnet:?xt=urn:btih:4570314F2788782296FBBF87E557E232ED5A30DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,57 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208325   (780128) от 21.02.2018
+###  Публикация: 1206111   (782980) от 12.02.2018
 
-John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elements (08:27)
- 02. Symbols (07:15)
- 03. Implant (07:17)
- 04. Illuminate (07:24)Жанр: Electro, IDM, TechnoПродолжительность: 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208199   (780127) от 21.02.2018
-
-Christine Jensen Jazz Orchestra - Habitat (2013) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
+Sherri Roberts - Anybody's Spring (2017) Pacific Coast Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Treelines [11:39]
-02. Tumbledown [10:29]
-03. Blue Yonder [07:53]
-04. Nishiyuu [14:58](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 01:06:55
+01. It's Anybody's Spring [05:34]
+02. Spring Sprang Sprung [06:15]
+03. They Say It's Spring [05:25]
+04. It Might as Well Be Spring [05:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9DF4DFFD20F3F1B38FF567B4127020D447A7B02
+magnet:?xt=urn:btih:817A538AFD3BDD52221CB3C039B736A143C2241E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,343 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208011   (780126) от 21.02.2018
+###  Публикация: 1206082   (782979) от 12.02.2018
 
-Pharoah Sanders - Izipho Zam: My Gifts (1969) 2006, Bomba Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince of Peace [08:52]
-02. Balance [12:40]
-03. Izipho Zam [28:47]Жанр: Avant-Garde JazzПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7619A2C45ABA5A4D448271086710FE96F4E7B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208180   (780125) от 21.02.2018
-
-Earl Hines - Spontaneous Explorations (1964) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undecided [04:03]
-02. Fatha's Blues [05:12]
-03. A Sunday Kind Of Love [04:20]
-04. I've Found A New Baby [03:28](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7724CB1C92A408B972E62E9CCD9091C79A01177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208196   (780124) от 21.02.2018
-
-Bernard Primeau Jazz Ensemble - Virage (1997) Swing'in Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southend Stomp [06:36]
-02. Numbly [07:05]
-03. Con Alma [08:19]
-04. Traffic Jamm'n [09:15](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDF3335887AB994274ABCC312E717F37283A7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207957   (780123) от 21.02.2018
-
-Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porch Light [04:02]
-02. Autumn Landscape [03:44]
-03. Uyawda [04:43]
-04. Lolly Pop [02:19](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AC385F6961D8D016C29EDE8FC31202DDDC48C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208198   (780122) от 21.02.2018
-
-Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence Suite (2017) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part I (For Kenny Wheeler): Ouverture [01:17]
-02. Part I (For Kenny Wheeler): Starbright [15:26]
-03. Part II (For Jan Jarczyk): To Jan [06:21]
-04. Part III (For John Coltrane): Drum Interlude [01:35](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5860D7C5BB2A3C84E23718FBCABA571E50DD6514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208187   (780121) от 21.02.2018
-
-Mose Allison - I Don't Worry About A Thing & Mose Alive (1962, 1966) 1999, Collectables Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Worry About A Thing [02:19]
-02. It Didn't Turn Out That Way [02:44]
-03. Your Mind Is On Vacation [02:38]
-04. Let Me See [04:12](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACAB99484580D881D01BEE74F0CAD5D50AF3CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208282   (780120) от 21.02.2018
-
-М.В. Лутцев и др. | Католицизм в конфессиональном пространстве Уральского региона (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780120.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике представлены материалы Межрегионального круглого стола «Католицизм в конфессиональном пространстве Уральского региона» посвящённого 170-летию издания указа о постройке католического собора в г. Оренбурге (28 ноября 2014 г., Оренбург). Книга объединяет научные статьи, освящающие историю и современное положение Римско-Католической Церкви в России и на Урале, (   Читать дальше...   )Жанр: Материалы Межрегионального круглого столаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E03D71B5A10C9349D8B64309F4255ED84796FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208186   (780119) от 21.02.2018
-
-The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Lossless|tracks] <Techno, Ambient, IDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope (11:02)
- 02. Disfigured Phantasy (05:53)
- 03. Levitation (08:16)
- 04. Psycho Kinesis (05:23)(   Читать дальше...   )Жанр: Techno, Ambient, IDMПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F75A81FC8F8707077B79FFFDA466F31B8822E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208193   (780118) от 21.02.2018
-
-Tom Guarna - The Wishing Stones (2017) Destiny Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [02:19]
-02. Song for Carabello [05:15]
-03. Surrender Song [07:05]
-04. Hope [07:17](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA57C893A95F2D24EE4BA06E215027D90E6E83E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208038   (780117) от 21.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Женщины. Гонка 10 км. Свободный стиль (15.02.2018) WEB-DL [H.264/720p-LQ]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 7-й тур. Норвегия — Китай (11.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 февраля 2018 года, четверг. 09:30 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Лыжные гонки. Женщины.
-Гонка 10 км. Свободный стиль(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581AE629CA5D8E91C72BC962843C001AFA1FF7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208301   (780116) от 21.02.2018
-
-VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blake Baxter - Where Is The Love (05:42)
- 02. Santonio Echols - Sources (05:01)
- 03. Eddie 'Flashin' Fowlkes - T.M.F.61 (05:59)
- 04. Thomas Barnett - Operation-10 (05:05)(   Читать дальше...   )Тип издания: CD •Жанр: Techno, Detroit Techno •Продолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12557AE82B0B714A70BCA091AA511E8114685B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208141   (780115) от 21.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Женщины. 2-й тур. Китай — Россия (ОАР) (15.02.2018) WEB-DL [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780115.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 февраля 2018 года, четверг. 03:05 МСК
+11 февраля 2018 года, воскресенье. 03:05 МСК
 XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг. Женщины. 2-й тур.
-Китай — Россия (ОАР)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:58:49
+Кёрлинг.
+Микст. Круговой раунд. 7-й тур.(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:20:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FEF509CADA5F7B9E774B25474EDE1D3BA2EE531
+magnet:?xt=urn:btih:DFEB14638EB72EF78E1218BA02F47AD4EF86FD10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,28 +143,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208170   (780114) от 21.02.2018
+###  Публикация: 1206064   (782978) от 12.02.2018
 
-Paulina Cassidy - Drawing Up A Storm (2018) Projekt Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Darkwave, Ethereal>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 6-й тур. Норвегия — США (10.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782978.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 февраля 2018 года, суббота. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 6-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE78C5F617CC6B0252FF70D668B2109B8566FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205995   (782977) от 12.02.2018
+
+VA - 2003 Hands (2003) Hands Productions [FLAC|Lossless|tracks+.cue] <Noise, Experimental, Industrial>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Waterdancer (06:08)
- 02. Ocean Nymph (03:45)
- 03. Seahorses (03:34)
- 04. Asleep In The Undercurrent (04:33)(   Читать дальше...   )Жанр: Ambient, Downtempo, Darkwave, EtherealПродолжительность: 00:54:07
+01. Ah Cama-Sotz – Quatrâlh (04:29)
+02. Ah Cama-Sotz – Ôm-Rach (01:53)
+03. Ah Cama-Sotz – Zmeü-Kh (Part II) (08:44)
+04. Synth-Etik – N_Loop (04:08)(   Читать дальше...   )Тип издания: CDЖанр: Noise, Experimental, Industrial •Продолжительность: 01:15:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9240883905E63FBB277159D0258D9D864C99CF2
+magnet:?xt=urn:btih:301922C6A2C966E876CED8A2070A82078EED20F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,83 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206913   (780113) от 21.02.2018
+###  Публикация: 1206071   (782976) от 12.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. Финал (12.02.2018) WEB-DL [H.264/720p-LQ]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 6-й тур. Швейцария — Южная Корея (10.02.2018) WEB-DL [EN]
 
 >>Спорт и активный отдых
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 февраля 2018 года, понедельник. 15:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Фристайл. Мужчины.
-Могул. Финал(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E17EA688A5D525FD003B208E3A7A499EF2CA6D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208275   (780112) от 21.02.2018
-
-Джейн Эллис | Русская Православная Церковь. Согласие и инакомыслие (1990) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор истории оппозиции в Русской Православной Церкви и представления неконформистской интеллигенции о внутрицерковной жизни, выраженные в самиздате.Жанр: Монография, историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F6848B188E9F1CBD0B7E60400526E4B1E12658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208152   (780111) от 21.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Женщины. 2-й тур. Китай — Россия (ОАР) (15.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780111.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 февраля 2018 года, четверг. 03:05 МСК
+10 февраля 2018 года, суббота. 14:05 МСК
 XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг. Женщины. 2-й тур.
-Китай — Россия (ОАР)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:59:01
+Кёрлинг.
+Микст. Круговой раунд. 6-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:45:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F36FA4E88103768913905436FBD4B6D8E707920
+magnet:?xt=urn:btih:A3D83117B7AC57A4BD250C8C96DEC23EFCBCB364
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +230,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208174   (780110) от 21.02.2018
+###  Публикация: 1205750   (782975) от 12.02.2018
 
-Елена Тростникова (сост.) | Мудрость отцов-пустынников [Православная библиотека] (2017) [PDF, DJVU]
+Владимир Ермилов (сост.) | Воля [Сборник] (1911) [PDF]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто мы? Какие силы в нас действуют? Чего мы можем достичь? В этой книге вы найдёте ответы и наставления старцев, прикоснётесь к опыту отцов-пустынников, который передавался лично от учителя к ученику.
-
-Книга рекомендована Издательским Советом Русской Православной Церкви.
-(   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+Рассказы и стихи для среднего и старшего школьного возраста.Жанр: Детская проза, СтихиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F15FAACF983E8A60279D91C935BF783E8F426A0C
+magnet:?xt=urn:btih:F3E0C17D272AB2A3F7132E7B37E3B637DC633EE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,28 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208055   (780109) от 21.02.2018
+###  Публикация: 1205917   (782974) от 12.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Женщины. Гонка 10 км. Свободный стиль (15.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Конькобежный спорт. Женщины. 3000 м (10.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 февраля 2018 года, четверг. 09:30 МСК
+10 февраля 2018 года, суббота. 14:00 МСК
 XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Лыжные гонки. Женщины.
-Гонка 10 км. Свободный стиль(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:20:36
+Конькобежный спорт. 1-й День соревнований:
+Женщины. 3000 м(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:28:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:029FE6F410A218E0349EF652F2C9E71CE72673E7
+magnet:?xt=urn:btih:6BBF72AA01E42AC17C3AE51CE9D545E5E9A4AF56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,28 +285,451 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208340   (780108) от 21.02.2018
+###  Публикация: 1205925   (782973) от 12.02.2018
 
-Noa Fort - No World Between Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Мужчины. Трамплин HS-109. Финал (10.02.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps] [EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Now Is Our Time
-02 – Traveling (In Time And Space)
-03 – Variations On Longing
-04 – Mirrors(   Читать дальше...   )Жанр: Jazz VocalsПродолжительность: 00:34:18
+10 февраля 2018 года, суббота. 15:35 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Прыжки с трамплина.
+Мужчины. Трамплин HS-109. Финал(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: Английский, ИнтершумСубтитры: отсутствуютПродолжительность: 03:00:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAC7AB5BA8AAAB023D368DB1EE322CF75B021EC2
+magnet:?xt=urn:btih:14432A9722A47018B0FD5152C2FE0FC2BF5FCD00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205744   (782972) от 12.02.2018
+
+О. Танин, Е. Иоган | Военно-фашистское движение в Японии (1933) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая работа двух советских востоковедов представляет большую научную и политическую ценность. Военно-фашистское движение Японии является одним из тех механизмов, которые должны перевести Японию из состояния скрытой в состояние открытой мировой империалистической войны. Знание этого фугаса, заложенного на Дальнем Востоке под дело мира, является необходимым. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2638DD40BCDE89AC9A18C15F15E2FF6FBFC7B214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205829   (782971) от 12.02.2018
+
+VA - Underside 5 LP (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block Control - Collaps [4:58]
+02. Fatloaf & oneBYone - Roller [4:14]
+03. Paimon & Place 2b - Complete Me [4:39]
+04. Limtek - July [4:28](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 04:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6BD393483C0A372165BEA13BD06F3746759A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205808   (782970) от 12.02.2018
+
+Л. Мишель | Коммуна [из воспоминаний] (1926) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор настоящей книги, Луиза Мишель , — народная учительница, революционерка и баррикадный боец, — является одной из самых обаятельных личностей в героическом восстании парижского пролетариата 1871 года.
+
+Луиза Мишель родилась в 1836 г ., в бедной крестьянской семье. Двадцатилетней девушкой она сдала экзамен на звание учительницы и учительствовала в Париже, в рабочем (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F1F6DC27C2F884BFDFE86916C1BE3EEE901E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205964   (782969) от 12.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Санный спорт. Мужчины. 1-я и 2-я попытка (10.02.2018) IPTV [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782969.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 февраля 2018 года, суббота. 13:10 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Санный спорт.
+Мужчины. 1-я и 2-я попытка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD05AB89CF4C688673369EC462CA68760C710531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206074   (782968) от 12.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 6-й тур. Россия (ОАР) — Канада (10.02.2018) IPTV [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782968.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 февраля 2018 года, суббота. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 6-й тур.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C573FB638E3288D37FF742FB35D37A20A092B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205918   (782967) от 12.02.2018
+
+VA - MonsterJam Eurodance (2018) [MP3|320 Kbps] <Eurodance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782967.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jenya Alexanov - Trap'n'jazz (Original Mix)
+002. Viktor Astakhov - Dreams Lake (Original Mix)
+003. Selena - Can't Stop the Feeling (Original Mix)
+004. Max Fischer - Brussels (Original Mix)(   Читать дальше...   )Жанр: Eurodance, Club, HouseПродолжительность: 09:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE9822ED986178FC9B8A7E97CD0496B8721718E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206132   (782966) от 12.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Мужчины. Спринт (11.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782966.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 февраля 2018 года, воскресенье. 14:15 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Биатлон. Мужчины. Спринт 10 км
+Арена: Центр биатлона "Альпензия" (Пхёнчхан, Южная Корея)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346D95BDD28914F9DCC0BBDBECE6B1DC9FA4CB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206086   (782965) от 12.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 7-й тур. Швейцария — Россия (ОАР) (11.02.2018) IPTV [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782965.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 февраля 2018 года, воскресенье. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 7-й тур.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7FA8D06E66C23F9923B7321A8DF44F5256674D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206096   (782964) от 12.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Мужчины. Спринт (11.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782964.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 февраля 2018 года, воскресенье. 14:15 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Биатлон. Мужчины. Спринт 10 км
+Арена: Центр биатлона "Альпензия" (Пхёнчхан, Южная Корея)Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8734177D6A104727FCCC134D86AAF293D33051B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205749   (782963) от 12.02.2018
+
+Николай Михайлович Карамзин | Повести Карамзина (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86512881B21E3DA65E9547DBC18369B25F56431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205991   (782962) от 12.02.2018
+
+VA - Nujazzvides (2018) [MP3|320 Kbps] <Lounge, Chillout, Nu-Jazz>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bajka  -  The Hunting (Club Des Belugas Remix)  4:03
+02.  Living Room  -  Liquid Jazz (Original Mix)  3:11
+03.  Cube  -  Power Of Your Love (Original Mix)  10:00
+04.  Weathertunes  -  The New Jazz Five (Original Mix)  4:12(   Читать дальше...   )Жанр: Lounge, Chillout, Nu-JazzПродолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A363C50834A9FDDE54D09A37E6F91086FA36FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206079   (782961) от 12.02.2018
+
+Shake - Shake (1977) LP [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Singing This Song For You (3:12)
+02. Ne Me Regarde Pas (4:11)
+03. If (3:36)
+04. Tu Sais Je T'Aime (You Know I Love You) (3:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA6FBD961187F98130BC6143164E6E3D1C105C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205957   (782960) от 12.02.2018
+
+Jose Calvario - The Best Disco In Sound (1977) LP [MP3|320 Kbps] <Instrumental, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Lisbon, Coimbra, Things To Imagine No 2 (11:10)
+02. Cancao Do Mar, Lisboa A Noite, As Coisas Que Eu Invento (12:58)Жанр: Instrumental, DiscoПродолжительность: 00:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4C187F02C92A9574CAEB64E6A33959B5115552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205748   (782959) от 12.02.2018
+
+Валентина Дмитриева | Вешний цвет (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D1248B915D0CFE74ED9931A2ADA684D6D570DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206107   (782958) от 12.02.2018
+
+Dalot & Sound Awakener - Little Things (2018) Fluid Audio [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strangers In The City (04:01)
+02. All That Fall (05:57)
+03. Inside (03:11)
+04. Everyday Happiness (03:35)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EF31C325DB52A4C1485F3BC4A0648D2021BAAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

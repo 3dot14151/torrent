@@ -1,3 +1,67 @@
+###  Публикация: 812639   (570863) от 14.08.2014
+
+Babe - Hollands Glorie (2003) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Drunken Sailor
+02. Ooh La La I'm Falling
+03. Mister Blitzer
+04. Wanna Do (What Mamma Said)
+05. Please Me Please Do
+06. (Never Listen To A) Bouzouki Player
+07. I'm A Rocking Machine
+08. Wonderboy
+09. Billy Joe
+10. Indian Habbits(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22DB5801840F4E75C5FD6F3C2BE230DAA46D038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151373   (570510) от 20.07.2017
+
+Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover To Lover (For Sale) (AV Version) (08:13)
+02. Take My Heart (Vocal Version) (05:13)
+03. Recollection (Vocal Version) (07:03)
+04. I'm Your Lover (Vocal) (05:30)(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E418E763EE17C99779E23F9C6AAA7C687063960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152359   (567109) от 22.07.2017
 
 Digitalo - Say Yes (2016) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
@@ -693,70 +757,6 @@ Blue System - Forever Blue (1995) [FLAC|Lossless|image + .cue] <Euro-Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C22DB41DE1DCF09AB0019059C07F486E364B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053212   (526529) от 16.09.2016
-
-Eruption - Leave A Light (1978) Remastered, 2016, Big Break Records [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave A Light (I'll Keep A Light In My Window) (06:48)
-02. Sweet Side (03:54)
-03. Up And Away (03:10)
-04. Left Me In The Rain (03:57)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3BC443070752F77D4B3BB7F47310FD2F5E40FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371249   (523685) от 04.08.2011
-
-A-ha - 25 (The Very Best of A-ha) 2CD (2010) [FLAC|Lossless]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move To Memphis (Single Version)
-02. Dark Is The Night For All
-03. Cold As Stone (Re-Mix)
-04. Angel In The Snow (Edit)
-05. Shapes That Go Together
-06. Summer Moved On
-07. Minor Earth Major Sky (Niven's Radio Edit)
-08. The Sun Never Shone That Day (Radio Edit)
-09. Velvet
-10. Forever Not Yours(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

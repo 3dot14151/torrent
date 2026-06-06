@@ -1,3 +1,32 @@
+###  Публикация: 1294691   (625793) от 09.04.2019
+
+A$AP Rocky (ASAP Rocky) - TESTING (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distorted Records (2:20)
+02. A$AP Forever REMIX (feat. Moby, T.I. & Kid Cudi) (5:16)
+03. Tony Tone (3:28)
+04. Fukk Sleep (feat. FKA twigs) (3:13)(   Читать дальше...   )Производство: A$AP Worldwide/Polo Grounds Music/RCA RecordsЖанр: Hip-HopПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5AC0EDC0055B5EE1C2A98AAA1CDC8756FFA8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295107   (620761) от 12.04.2019
 
 Knowledge the Pirate - Flintlock (2018) Sword & Skull Edition [FLAC|Lossless|tracks + .cue] <Underground Hip-Hop>
@@ -716,35 +745,6 @@ Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5473E2D1186A84EF0CF5259928202AC2B683D79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256511   (351892) от 23.10.2018
-
-6ix9ine - Day69: Graduation Day (2018) Mixtape [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy (00:01:53)
-02. Gummo (00:02:38)
-03. Rondo (Feat. Tory Lanez & Young Thug) (00:02:18)
-04. Keke (00:02:32)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F7449A3C54514C84B31F6A0796BCAC1756D99E
 ```
 
 https://mybot314.ru/tekegram_catalog/

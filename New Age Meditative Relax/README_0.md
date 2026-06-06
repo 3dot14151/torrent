@@ -1,3 +1,35 @@
+###  Публикация: 602115   (997585) от 13.01.2013
+
+Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Arrow Chamber 11 [00:08:16]
+02. Ancient Arrow Chamber 12 [00:08:13]
+03. Ancient Arrow Chamber 13 [00:10:32]
+04. Ancient Arrow Chamber 14 [00:04:27]
+05. Ancient Arrow Chamber 15 [00:06:38]
+06. Ancient Arrow Chamber 16 [00:06:53]
+07. Ancient Arrow Chamber 17 [00:07:27]Жанр: Native American,New AgeПродолжительность: 01:01:21 + 00:34:47 + 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580234   (997545) от 13.01.2013
 
 Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
@@ -775,35 +807,6 @@ Oliver Scheffner - The Magic of the Moon (2014) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3782AA2AE0C172EA491D75A34AF53B5BE6639550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255570   (960908) от 20.01.2014
-
-Волшебная свирель 3 CD - Мелодии в тишине, Мечты, мечты..., Звуки небес. (2006) [MP3|320 kbps]<Classical, relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born free
-02. Early Morning Rain
-03. The French Waltz
-04. Don't fall in love with a dreamer(   Читать дальше...   )Жанр: Classical, relaxПродолжительность: 03:18:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

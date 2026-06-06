@@ -1,3 +1,32 @@
+###  Публикация: 1022351   (729523) от 01.06.2016
+
+Yngwie Malmsteen - World On Fire (2016) [MP3|320 кб/с] <Neoclassical Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World on Fire
+02. Sorcery
+03. Abandon
+04. Top Down, Foot Down(   Читать дальше...   )Жанр: Neoclassical Heavy Metal, Power MetalПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264D843BFED4399F073A27DBC109C6D5B5E05F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022680   (728930) от 02.06.2016
 
 Derdian - Revolution Era (2016) [MP3|320 кб/с] <Melodic Power Metal>
@@ -716,35 +745,6 @@ Hater - Requiem Aeternam (2016) [MP3|320 кб/с]<Deathcore, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7AE0D28D1021D26F30046C93821E52FD94C024E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129971   (718993) от 30.04.2017
-
-Resurrected - Resurrected (2017) [MP3|320 Kbps] <Brutal Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellcome 05:03
-02. The Overkill To Dwell 02:36
-03. Human Killing Spree 05:01
-04. Bewareness Of Truth 05:15(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C043EEA28067314EA8A7BAE7C9BE779EA1FC3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

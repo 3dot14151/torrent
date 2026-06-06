@@ -1,3 +1,90 @@
+###  Публикация: 1248812   (439640) от 21.09.2018
+
+VA - Elles De Graaf - The Long Run - The Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance,Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elles De Graaf – Show You My World (Ferry Corsten Edit - 2014 Remastering)
+02. Armin van Buuren & Perpetuous Dreamer – The Sound of Goodbye (Armin's Tribal Feel Radio Edit)
+03. Elles De Graaf & Alan Morris – Calm The Night (Ferrin & Morris Edit)
+04. Elles De Graaf – Mind of The Wonderful 2018 (Sunset Remix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 01:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8DA754D5C3DA607AD55E8CDB0BFA05286B390A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410122   (438433) от 20.09.2020
+
+VA - Azure Ibiza (2020) [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaym – Crystal
+02. Deep Movement – Looking Out
+03. E1ectron1k – Autumn's Rustle
+04. Trancenoid – Nowhere(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12EFC0F88A3A265D8F93554858F270CF37C0A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063111   (437644) от 15.10.2016
+
+VA - Ibiza Trance 2016 Volume Two (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Tritonal, Angel Taylor - Getaway (Gareth Emery & Ashley Wallbridge Radio Edit) [04:09]
+02 Reunify, Kris Maydak, Danyka Nadeau - Worth It (Willem de Roo Radio Edit) [02:54]
+03 Noise Zoo - Spectre (Radio Edit) [03:31]
+04 Rodrigo Deem - Lux (Radio Edit) [03:39](   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8975CFA953B89D30841BA5E2E5A1FCF42E38229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323732   (433799) от 05.09.2019
 
 DJ Ensamble - Trancing Queen (2005) [FLAC|Lossless|tracks + .cue] <Trance, Eurodance>
@@ -658,93 +745,6 @@ VA - Mellomania Step 16 (Mixed by Pedro del Mar) (2009) 2CD, Compilation, Mixed 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B72C4F32434337F610213335C9DCBD6EDEA5FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327635   (372568) от 26.09.2019
-
-Ahmed Romel - RUYA (2019) [FLAC|Lossless|WEB|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Romel - Be My Eyes (Original Mix) (3:39)
-02. Ahmed Romel - Dystopia (Original Mix) (5:13)
-03. Ahmed Romel - Vanya (Original Mix) (3:54)
-04. Ahmed Romel & Simon O'Shine - The Love Potion (Original Mix) (4:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D168592DD1831A2209D749F535F3236BD12AC39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327682   (372437) от 26.09.2019
-
-VA - Solarstone presents Pure Trance 7 (Extended) (2019) [FLAC|Lossless|WEB|tracks] <Trance, Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neptune Project ft. Christopher Lovell - Elixir of Life (Original Mix) (3:28)
-02. Mike Saint-Jules - Parachuting (Club Mix) (7:05)
-03. Paul Sawyer - Meridian (12 Version) (7:25)
-04. Elfsong - Crenshinibon (Extended Dub Mix) (6:27)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E42AF5E5CE04C4CC93737F754E2970A8FEA168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327442   (372266) от 26.09.2019
-
-Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [FLAC|Lossless|WEB|tracks] <Trance, Tech Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Shift (Extended Mix) (06:39)
-02. Belasco (Extended Mix) (06:39)
-03. Another Day in L.A. (Extended Mix) (06:49)
-04. Empty World (Extended Mix) (06:57)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BBC398D67CE039380EE5063FEEA995E638499B
 ```
 
 https://mybot314.ru/tekegram_catalog/

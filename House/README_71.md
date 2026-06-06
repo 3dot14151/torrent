@@ -1,3 +1,293 @@
+###  Публикация: 1429062   (177450) от 05.12.2020
+
+Timmy Trumpet - Mad World (2020) [MP3|320 Kbps] <Big Room, Electro House, Hardstyle>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timmy Trumpet - Intro
+02. Timmy Trumpet, Swedish Red Elephant & 22Bullets - The City
+03. Timmy Trumpet, Jebroer & Dr Phunk - Child Of The Devil
+04. New World Sound & Timmy Trumpet ft. Kheela - Not Like You(   Читать дальше...   )Жанр: Big Room, Electro House, HardstyleПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94501A64CB67B2F2CF6422C3ACE45E0EE4D08F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669110   (173011) от 15.10.2023
+
+VA - Figura Autumn 2023 [MP3|320 Kbps] <Melodic House,Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Mode - Unknown Planet (Original Mix) (8:11)
+02. Artem Kazantsev & Danil Shevyrev - 2020 (Original Mix) (7:01)
+03. Onia - Symbiosis (Extended Mix) (5:05)
+04. P59 - Most Wanted (Original Mix) (7:16)(   Читать дальше...   )Жанр: Melodic House,Tech HouseПродолжительность: 01:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79A462ABCB8AF70BA034D3DE787433BDF9E9052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669682   (172647) от 17.10.2023
+
+VA - Black Hole House Music 10-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PARAFRAME - Panic (Extended Mix) [6:00]
+02. They Kiss & York - Synth Pop Beat (Club Mix) [3:44]
+03. Brendan Mills - Love Is Blind (Club Mix) [3:39]
+04. ZOYA - When Heaven Calls (Extended Mix) [4:44](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4D92697B856AB82EE1C8474AD8797B675B457D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670147   (172321) от 19.10.2023
+
+VA - Electronic Elements - Amsterdam 2023 [MP3|320 Kbps] <House, Progressive House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan Blomqvist & Malou - Alone (Stephan Jolk Extended Remix) [4:31]
+02. Miss Monique & AVIRA feat. LUNA - Subterranean (Extended Mix) [6:07]
+03. Enamour & Warung - Who We Are (Lufthaus Extended Remix) [6:16]
+04. Joachim Pastor - Ice Walls (Extended Mix) [6:14](   Читать дальше...   )Жанр: House, Progressive House, ElectronicПродолжительность: 02:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926FCF86A9DA85683C36C78EF8B9D12B97F1D305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671005   (171430) от 24.10.2023
+
+VA - ADE 2023 [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FiddeLozza - Universal Language (Original Mix) [7:57]
+02. Mind Of Us - Last Kiss Goodbye (Original Mix) [8:31]
+03. Ev Rymd - Fata Morgana (Original Mix) [6:57]
+04. Jon Bubble - Faster (Original Mix) [6:31](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E43D0CC16C6FCBB1AD7E97FBE45DD5BE065A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344325   (170468) от 10.12.2019
+
+VA - Merry Christmas/Dance Music Party (2019) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo – Let You Go (feat Caley Rose) (2:48)
+02. Richard Bee – Everybody's Free (2:53)
+03. Oscat – In The Night (Manuel Costa remix) (3:06)
+04. Silvio Carrano And Monaus – Lady (Hear Me Tonight) (feat Rich Fayden - radio edit) (2:56)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43140B671E812C43B2E1DF6011B8FF339B1B2A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344328   (170146) от 10.12.2019
+
+VA - Top 100 Best Bass House '19 (Part 1) (2019) [MP3|320 Kbps] <House, Future House, Tech House, Bass House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Federico Rosano – Throws Up (Bass House Vip Mix) (4:15)
+02. Houze Muzzik – Puzzle Flow (Bass House Vip Mix) (4:24)
+03. Sick Kids – Friends (Henrick B Jordan Bass House VIP Mix) (4:20)
+04. Michael Beltone – Moving To The Beat (G-Mafia Bass House Mix) (3:50)(   Читать дальше...   )Жанр: House, Future House, Tech House, Bass HouseПродолжительность: 03:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D945CB6E2705959E617E9695E2BEC2DC756BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344496   (169810) от 11.12.2019
+
+VA - Muscular Well-Being (EDM Music For Workout) (2019) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169810.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Andy Well - Take Me Back (5:39)
+2.Stan Kinley - The Pain (8:22)
+3.Andy Well - Organ Nights (4:55)
+4.Supernocs - Covery (6:00)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4D3DF0ACED5CE25C3003457D97A5D3020EDADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344695   (169805) от 11.12.2019
+
+VA - EDM Anthems 2020: Top 40 Club Beats For DJs (2019) [MP3|320 Kbps] <Progressive House, Big Room, Future House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic – On & On (3:58)
+02. Teknova – Daddy DJ 2K20 (Melbourne Bounce Mix)(3:16)
+03. Rene Rodrigezz, MC Yankoo & Marcus Cito – OK (Pull Up) (2:12)
+04. MaxRiven – Freeloader (3:27)(   Читать дальше...   )Жанр: Progressive House, Big Room, Future House, Electro HouseПродолжительность: 02:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5BCDA1783E7B12AA9279C4D9B03FEC7A56164F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596729   (169222) от 11.12.2022
+
+VA - Deep Christmas Vibes (2022) [MP3|320 Kbps] <Deep-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supernova - Lovely Summer Dreams (Extended Mix) (6:58)
+02. Private One - Mio Plus Mia (Extended Mix) (8:07)
+03. Audiowhores & Stee Downes - Facts (Deep Vibe) (7:00)
+04. Supernova feat. Ann Saunderson - R.L.H. (Shur-i-kan Vocal) (6:19)(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 02:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF9326A3BCAE8384A57B35530B86AC4DC35B414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596728   (169113) от 11.12.2022
 
 VA - House 2023 (2022) [MP3|320 Kbps] <Deep-House>
@@ -453,293 +743,6 @@ VA - Deep and Loud (2016) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2F7DD32FC1F25F06B0C96AE56DC412C973CB673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968325   (156621) от 23.12.2015
-
-VA - Hed Kandi Anthems (2015) [MP3|320 кб/с] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. StoneBridge - Put 'Em High (feat. Therese)Жанр: Funky, Club HouseПродолжительность: 11:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882D4D50F2D66E40B620F8E99DEE45F6811F2796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270474   (156408) от 19.12.2018
-
-VA - Christmas Dance Party 2018-2019 (Best of Dance, House & Electro) (2018) [MP3|320 Kbps] <House, Dance, Electro-House, Bigroom>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spikaa feat. Deja - Home (Radio Mix)
-02. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit)
-03. John Reyton - Out Of The Dark (Radio Edit)
-04. Geo Da Silva - Pump It Up (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Electro-House, BigroomПродолжительность: 02:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3619A1AE7B058B83FE2EFB235344ABE8870BE511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270658   (155998) от 20.12.2018
-
-VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luc Forlorn - Feel So High 5:51
-02. Marga Sol, Darles Flow - Need You Tonight 5:04
-03. Aybee, Players Play Music - Pieces Of My Mind (Radio Edit) 3:32
-04. Blondee - Move Your Body (Club Mix) 4:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54D5B1EB5748A2220A3B8DC3CB21F7D196A7BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518279   (155858) от 19.12.2021
-
-The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [MP3|320 Kbps] <Dream House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me Softly (3:29)
-02. I Like Chopin (3:35)
-03. Bilitis (3:50)
-04. Children (5:23)(   Читать дальше...   )Жанр: Dream House, TranceПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89F1C8AD8A5BE526D08D30716AE96C5BFFFF141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194382   (155750) от 25.12.2017
-
-VA - Silk Music Pres. Shingo Nakamura 02 (2017) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura - Always (Original Mix)
-02. Shingo Nakamura & Stendahl - Tribute, Chapter Ii (Original Mix)
-03. Looper & Andy Wooding - All We Are (Shingo Nakamura Remix)
-04. Shingo Nakamura - Sapporo (Original Mix)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C450335D985B08D07AFA022872CA35AE613E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676767   (155730) от 14.11.2023
-
-VA - Hidden Paradise (2023) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase & Natune - My Way (Deep Immersion Remix) (6:28)
-02. A-Mase - Beautiful Day (Extended Mix) (5:56)
-03. A-Mase & Natune - I'll Find You (Extended Tropical Mix) (5:10)
-04. A-Mase - Paradise (Extended Mix) (6:25)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76675C05D6854C465B1531C594A9A9AE11DD6BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086181   (154807) от 23.12.2016
-
-VA - Disco House 2k17 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djm - Wake Up Everybody (Main Mix) 04:02
-02. Dpdg - You To Me Are Everything (Tbo & Vega Remix) 03:48
-03. Moomicoo - Don't Look Any Further (Moomicoo Mix) 04:24
-04. Jason Parker - U Sure Do (Radio Edit) 03:25(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC4920C450BE9F03FCB5F7DB930B94B4EBC6856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086194   (154674) от 23.12.2016
-
-VA - Disco Christmas 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Favorite & Laura Grig - Last Christmas (Dj T'paul Sax Mix) 05:37
-02. Dj Favorite & Sugarmammas - Bad Girls (Original Disco Mix) 04:45
-03. Major Lover & Will Fast - First Life (Original Mix) 06:10
-04. Dj Favorite & Theory - Beautiful Night (Dj Flight Remix) 05:22(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F065ABB77472CD63CBD6A7F92D135C190B2C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270884   (154566) от 21.12.2018
-
-VA - World Club Charts (2018) [MP3|320 Kbps] <House, Tropical, Funky, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiziara - Save Me (Radio Version) 3:17
-02. Ibiza Bitches - Be Happy (#сmondance Radio Remix) 3:17
-03. Higher State Of Trance - Memories (Radio Version) 3:22
-04. Mykel Mars - Give Me The Sunshine (Radio Version) 3:48(   Читать дальше...   )Жанр: House, Tropical, Funky, ClubПродолжительность: 02:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BA3932D924148C2B61E07A6D34823B8B45AA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270881   (154518) от 21.12.2018
-
-VA - Disco Electronica Vol.36 (2018) [MP3|320 Kbps] <Deep House, Funky, Nu Disco, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sven Tasnadi - It's Your Love (Edit) 6:38
-02. The Deepshakerz - Diggin' Down 5:12
-03. Diego Lima - Bubblegum 6:39
-04. Huxley, Ron Carroll - Work 5:46(   Читать дальше...   )Жанр: Deep House, Funky, Nu Disco, Indie DanceПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349F7A2C3187C8B2959E263096BD7C46D708D4A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

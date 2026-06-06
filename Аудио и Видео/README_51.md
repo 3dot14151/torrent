@@ -1,3 +1,61 @@
+###  Публикация: 1503408   (819699) от 19.10.2021
+
+VA - The Best of Italo Disco, Vol. 2 (2010) [AAC|~345 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Creatures - Maybe One Day (Dance Mix) (5:46)
+02. Evelyn Barry - Take It As a Game (New Super Remix) (6:08)
+03. Xenon - Opera (Dance Version) (5:19)
+04. Band of Jocks - Good Times (Original Italian Mix) (4:45)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923399ACF67499A5E349A0A793F26A22AFCDBC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503556   (819698) от 19.10.2021
+
+Максим Леонидов - Седьмое небо (2021) [AAC|~322 Kbps] <Pop, Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В твоём городе осень (4:25)
+02. В зоне доступа твоих губ (3:08)
+03. Убить дракона (3:15)
+04. Кот (4:13)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E3D8ADE31E678A9FE54E0636AE0751F397E77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503411   (819696) от 19.10.2021
 
 VA - The Best of Italo Disco, Vol. 4 (2011) [AAC|~356 Kbps] <Pop, Disco>
@@ -660,64 +718,6 @@ VA - Chill House Vibes Vol 1: Ultimate Chill House Collection (2021) [AAC|~323 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36A626FF93230BDF957E9DB575D74BB5DDAFC615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503867   (817977) от 20.10.2021
-
-Гарин и Гиперболоиды - Экстрада (2021) [AAC|~342 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Движение (4:30)
-02. Работа не волк (5:00)
-03. Песни восточных славян (3:32)
-04. Бездельник (3:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC55B619778A5EA610B8161182F6E8AB980E8327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503688   (817879) от 20.10.2021
-
-Коча, Сашка, Янка - Квартирник в Харькове 23.06.1989 (2020) [AAC|~375 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817879.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Сергей Кочерга - Тост. За тех, кого... (3:05)
-1.02. Александр Чернецкий - Это (4:48)
-1.03. Янка Дягилева - Reggae (2:01)
-1.04. Сергей Кочерга - Хот-джаз (4:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5DD78E42D0BC81FD24DE73AF0372A9A3EDD28B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1131152   (710516) от 04.05.2017
+
+Mark Ashley - I Will Not Forget You (2017) [MP3|320 Kbps] <EuroDisco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jenny Come Home (Radio Version) 4:00
+02. Please Believe Me (Radio Version) 3:05
+03. Breath of an Angel (Radio Version) 3:20
+04. I Will Not Forget You (Radio Version) 3:10(   Читать дальше...   )Жанр: EuroDisco, PopПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA56BA4295EA08C86BDF4618016DC6B46FBF591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025461   (710034) от 12.06.2016
+
+Giorgio and Chris - Loves In You, Loves In Me (1978) [MP3|320 кб/с] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love's In You, Love's In Me (3:35)
+02. Keep It Together (3:26)
+03. I Can't Wait (9:35)
+04. Love Now, Hurt Later (6:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4492FE88A2780A2C13B4165F3E250316E45F8EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025470   (709930) от 12.06.2016
 
 Giorgio Moroder - Midnight Express (1978) [MP3|320 кб/с] <Electronic, Disco>
@@ -686,67 +744,6 @@ Possession - Possession (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E80CF80B3431FB39E5090A3658EE1AB0EDEE5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221171   (696729) от 23.04.2018
-
-VA - Ultimate Disco (4CD) (2018) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Earth, Wind & Fire - September
-02. The Jacksons - Blame It On The Boogie
-03. Heatwave - Boogie Nights(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:17
-
-01. The Jacksons - Shake Your Body (Down to the Ground)
-02. Luther Vandross - Never Too Much(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1F2CAFFC13364462AE2CF3436A8CF781C31213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133524   (695129) от 12.05.2017
-
-Sirena - The Dancer (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dancer (5:48)
-02. Killing Me Softly (6:06)
-03. Comparsita (4:14)
-04. Saturday Night (4:19)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECF70AE339A1F95E7DF6CC25FAA22B5D9D037F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

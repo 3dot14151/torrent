@@ -1,3 +1,61 @@
+###  Публикация: 945346   (433933) от 10.10.2015
+
+Willie May - Blues Mona (2015) [MP3|320 кб/с]<Blues, Country Blues, Funky>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lock It Up (03:25)
+02. Big Legged Woman (03:38)
+03. Monas Watching Eye (04:12)
+04. Stop Hurtin' Me (03:38)(   Читать дальше...   )Жанр: Blues, Country Blues, FunkyПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1956004CF7C4F1AA9AD389DDBBD943DD2A51E6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945542   (433922) от 10.10.2015
+
+Cass Greaves - He's Whiskey in a Teacup (2015) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen of the Bayou (04:21)
+02. Devil Boy (05:10)
+03. You Ain't Been Around (05:02)
+04. St Louis Blues (04:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA0F1BDB6AE253778E47A868A8C50E032E1B06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945229   (433921) от 10.10.2015
 
 White Night Blues - Live in Poland (2010) [MP3|320 кб/с]<Blues>
@@ -695,64 +753,6 @@ Sue Foley - The Ice Queen (2018) Deluxe Edition [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B16B144E0088A28B07F3724E845170ABD6A3AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573425   (412371) от 31.08.2022
-
-Tommy McLain - I Ran Down Every Dream (2022) [MP3|320 Kbps] <Roots, Country, Blues, Swamp Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - No Tomorrows Now [00:03:08]
-02 - I Ran Down Every Dream (feat. Elvis Costello) [00:03:22]
-03 - I Hope [00:03:47]
-04 - Livin' on the Losin' End [00:02:54](   Читать дальше...   )Жанр: Roots Rock, Country Rock, Blues Rock, Swamp RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F66D3448C924EA9488162C84D1C0B26492EFF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167967   (410605) от 23.09.2017
-
-The Beat Daddys - 5 Moons (2006) [MP3|320 Kbps] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pale White Circle
-02 - Common Ground
-03 - Been There, Liked That
-04 - Bad Streak(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95511E25FC57E40ECCB302C8612BC8E89E88F479
 ```
 
 https://mybot314.ru/tekegram_catalog/

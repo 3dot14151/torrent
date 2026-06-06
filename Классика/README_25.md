@@ -1,3 +1,58 @@
+###  Публикация: 220894   (612757) от 25.07.2010
+
+Tomazzo Albinoni - Музыка, неподвластная времени (2007) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037734   (611905) от 25.07.2016
+
+Chequerboard - The Unfolding (2013) [FLAC|Lossless|tracks] <Folk, Modern Classical, Acoustic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dunes    07:48
+02. Opening The Gates    04:43
+03. The Sorrow Bird    04:09
+04. Like A Bell To A Southerly Wind    04:26(   Читать дальше...   )Жанр: Folk, Modern Classical, AcousticПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA48CF96444CE9C26F465ECDEA6ED56E1664253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985789   (608662) от 16.06.2018
 
 Оркестр Большого Театра, Дирижер Геннадий Рождественский - Петр Ильич Чайковский, Щелкунчик (1960) 2CD, 1999 Мелодия [FLAC|Lossless|tracks + .cue] <ballet>
@@ -685,64 +740,6 @@ Beethoven Sym No.7 in A major
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D7C8F779EFC155E45EAC786EEC5A42B91C4FFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299447   (599605) от 01.05.2019
-
-Rabassa - Requiem (Harmonia del Parnàs) (2007) [FLAC|Lossless|image + .cue] <Classical sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599605.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lamentació 2a. de la Feria V
-
-Missa defunctorum, for double chorus, 2 flutes, 2 violins & continuo:
-2. Introitus(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131053C36028793974736D98F4C810C4149F46AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038813   (599294) от 30.07.2016
-
-Johannes Brahms - Symphonies Nos. 1,2,3,4. Tragic Overture, Op. 81, Academic Festival Overture, Op. 80 (2014) [FLAC|Lossless|image + .cue] <Classical, orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No.3 In F Major, Op.90
-1.I. Allegro Con Brio (13:38)
-2.II. Andante (8:58)
-3.III. Poco Allegretto (6:58)(   Читать дальше...   )Жанр: Classical, orchestralПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A58943C3BCA8DA3EC62D0DD1EC66AECFD963DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

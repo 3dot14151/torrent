@@ -1,3 +1,88 @@
+###  Публикация: 1292886   (642683) от 31.03.2019
+
+N1NT3ND0 (Баста) - Папа на рэйве (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Делуга
+02. Ствол дымится
+03. Сomsi comsa
+04. Какаду(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D6CDBD52A7F46C5EA0B9638C4FD19C28E2AB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228187   (637234) от 31.05.2018
+
+Noize MC - Хипхопера: Орфей & Эвридика (2018) [MP3|320 Kbps] <Hip-Hop, Alternative Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noize MC - Голос & струны (Орфей)
+02. Noize MC - С нами (Орфей и Эвридика)Жанр: Hip-Hop, Alternative RockПродолжительность: 01:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5CEF52C6C9D631FDC6BB32C6A0F0FE76D72122B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033707   (635702) от 12.07.2016
+
+Каспийский Груз - The Брутто (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не было и не надо (feat. Гансэлло)
+02. Guantanamera (feat. Ликий Адвайта)
+03. Черная Волга
+04. Стрелки(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF992FFBFB8C73FEA129DB6C5DC270E92387D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141914   (634754) от 18.06.2017
 
 Two Feet - Momentum (2017)  EP [MP3|320 Kbps] <Trap, ChillTrap>
@@ -658,93 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:110F862B46B1FCDB066D211DCE574B346B56E9AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149543   (600106) от 11.07.2017
-
-Jay-Z - 4:44 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill Jay Z
-02. The Story Of O.J.
-03. Smile (Feat. Gloria Carter)
-04. Caught Their Eyes (Feat. Frank Ocean)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114E3BB8FE92133BDE42AAF0DB12F3D4AB51A4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232388   (599798) от 24.06.2018
-
-Iration - Iration (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Reggae Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Already Gold
-02. Press Play
-03. Twisted Up
-04. Broken Promises (feat. Slightly Stoopid)(   Читать дальше...   )Жанр: Reggae, Reggae RockПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4894EC4E74136BE68E4179A3DE042E62330680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039438   (595821) от 01.08.2016
-
-Desiigner - New English (2016) [MP3|320 Kbps] <Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Caliber
-03 - Make It Out
-04 - Shooters(   Читать дальше...   )Жанр: TrapПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E0C75C441820500E7688F4366ACD3A694030D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1271184   (146896) от 25.12.2018
+
+Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adeste Fideles
+02. Ave Maria
+03. Away In A Manger
+04. The First Noel(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC91F61D47127A3060545C0625D1D210DF820BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969903   (143117) от 29.12.2015
+
+J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossless|image+.cue] <Classical, Chamber Music, Recitals, Baroque Period, Toccata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toccata for keyboard in F sharp minor, BWV 910 (BC L146) (11:25)
+02. Toccata for keyboard in C minor, BWV 911 (BC L142) (13:13)
+03. Toccata for keyboard in D major, BWV 912 (BC L143) (11:50)
+04. Toccata for keyboard in D minor, BWV 913 (BC L144) (14:26)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Baroque Period, ToccataПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586472   (135570) от 22.12.2012
 
 Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variations, Etude>
@@ -687,64 +745,6 @@ VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D79E356A61BAF99369F7759FD27512614A6D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707359   (62753) от 16.03.2024
-
-VA - Dark Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Let Go of the Past and Sleep Calm (1:45)
-02. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)
-03. Katya Kramer-Lapin - Gnossienne No. 1 (2:46)
-04. Vladislav Mikhalchuk - 12 Etudes, Op. 25 - No. 12 in C Minor Ocean (2:32)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C7F8D66A03DE063E92D082A7B8145F593399F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707942   (62567) от 18.03.2024
-
-VA - Легкая музыка (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-02. Christina Grigoryants - Folkloric (4:09)
-03. Sergey Bryukhno - When the Stars Are Shining (1:25)
-04. Matvey Lapin - Melody in A Minor (From The High Pass) (3:23)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6558099A91551E38503366B41C14F1EC9330F202
 ```
 
 https://mybot314.ru/tekegram_catalog/

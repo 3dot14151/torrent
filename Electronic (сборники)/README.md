@@ -1,5 +1,92 @@
 https://t.me/izofen
-###  Публикация: 1871608   (1069624) от 
+###  Публикация: 1873743   (1071395) от 29.05.2026
+
+VA - Waves (mixed by Dj V) (2026) [MP3|320 Kbps] <Club House, Afro House, Tribal House, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Bob Sinclar - Cruel Summer (Again) (Tom Enzy Extended Remix)
+02-Afro Medusa, Nico de Andrea, Vanetty - Ethnica (Pasilda) (Extended Mix)
+03-Andor Gabriel & Jerome Sydor - Temperatura (Extended Mix)
+04-Avicii & Cris Taylor - Jabali Levels (Simea X Matek Afro Mashup)(   Читать дальше...   )Жанр: Club House, Afro House, Tribal House, PopПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B917AB904BFA77FACCD58D2AE83718E1D2C1FB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873872   (1071328) от 30.05.2026
+
+VA - Vocal Techno 2026 [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. REMAZE - Lights Out (1:54)
+02. Anyma, Adam Sellouk, CARLA - Girls MIA (2:13)
+03. Stylo, Eli & Dani - TAKA TAKA (2:19)
+04. DJ BuduA - Euphoria - Radio Edit (2:20)(   Читать дальше...   )Жанр: TechnoПродолжительность: 06:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9BEF2535CCED50B386FEE448D074A0132FD67B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872807   (1070816) от 24.05.2026
+
+VA - Record Super Chart 23.05.2026 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bebe Rexha & Faithless - New Religion (2:54)
+02. Yearboox - Graceland (2:20)
+03. Eben - Hollow (3:04)
+04. TRAP MAFIA HOUSE - Mafia Style (2:37)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0F733BA04CC1969D10A11E41D731043FFC6BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871608   (1069624) от 17.05.2026
 
 VA - Beat, Bass, Melody vol.5 (mixed by Dj V) (2026) [MP3|320 Kbps] <Euro Trance, Hardgroove, Hyper Pop, Mainstage>
 
@@ -28,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870860   (1068849) от 
+###  Публикация: 1870860   (1068849) от 14.05.2026
 
 VA - DOWN LOW 10 (2026) [MP3|320 Kbps] <Bass House, Dark Techno, Other>
 
@@ -57,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870014   (1068769) от 
+###  Публикация: 1870014   (1068769) от 09.05.2026
 
 Frontmusic - 90s Club Electronica (2026) [MP3|320 Kbps] <Electronic>
 
@@ -86,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870138   (1068702) от 
+###  Публикация: 1870138   (1068702) от 10.05.2026
 
 VA - Night Rider 10 (2026) [MP3|320 Kbps] <House>
 
@@ -115,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869993   (1068538) от 
+###  Публикация: 1869993   (1068538) от 09.05.2026
 
 VA - Мелодии и ритмы отечественной эстрады выпуск 2 (mixed by Dj V) (2026) [MP3|320 Kbps] <Club House, Dance, Pop, Broken Beat, Drum&Bass>
 
@@ -659,93 +746,6 @@ Sardø - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C0C0D8FBEE9ECE3BAA6F5912B4569EB32C5AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853978   (1056981) от 15.02.2026
-
-VA - Contact 4: People & Machines (2026) [MP3|320 Kbps] <Minimal, Tech House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RÜFÜS DU SOL - Innerbloom - Radio Edit (3:58)
-02. Fideles, CamelPhat, Be No Rain - Night After Night - CamelPhat Remix (6:58)
-03. ARTBAT, Argy, Zafrir - Tibet (6:43)
-04. Depeche Mode, Massano - Ghosts Again - Massano Remix (6:42)(   Читать дальше...   )Жанр: Minimal, Tech House, OtherПродолжительность: 04:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FD37C6CAC9CCF421D770B48436EC4679162EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852489   (1056158) от 08.02.2026
-
-VA - Мелодии и ритмы (Russian Edition) (mixed by Dj V) (2026) [MP3|320 Kbps] <CLub House, Dance, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Моя Мишель x Casso & D-Block Europe - Зима в сердце (Elmy Edit)
-02-BEARWOLF - Посмотри в глаза (Solomon08 Remix)
-03-Время И Стекло x Mind Electric - Имя 505 (Pitchugin Mashup)
-04-Минаева vs Andy Shik & Silver Ace - Шоколадка (DJ Baur VIP Edit)(   Читать дальше...   )Жанр: CLub House, Dance, PopПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F74DD488A8DE555BF18FEE064984022EA8E553B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852266   (1055854) от 07.02.2026
-
-VA - Chill House. Terrace Mix (2024) [MP3|320 Kbps] <Chill-House, Deep-House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055854.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Planetopia - City Lights - (01:56)
- 002. Alena Kita - Alive - (02:01)
- 003. Grafine - Breathing - (02:02)
- 004. Galter - Give It - (02:04)(   Читать дальше...   )Жанр: Chill-House, Deep-House, ElectroПродолжительность: 10:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDE955A7D15BD02432A2668BB18A287E313FE76
 ```
 
 https://mybot314.ru/tekegram_catalog/

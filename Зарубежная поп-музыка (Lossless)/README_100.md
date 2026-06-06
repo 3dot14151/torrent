@@ -1,3 +1,293 @@
+###  Публикация: 1805548   (12143) от 08.07.2025
+
+VA - #1 Hits of the 50s, Vol. 2 (2001) CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Dinning / Teen Angel    [0:02:37.31]
+02. Frankie Avalon / Why    [0:02:35.20]
+03. Don Gibson / Oh Lonesome Me    [0:02:26.41]
+04. Buddy Knox / Party Doll    [0:02:16.04](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F045336C8973D5B2CEF2E190D4DC53DB82FBFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805529   (12135) от 08.07.2025
+
+Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Song    [0:04:01.35]
+02. Daniel    [0:03:53.07]
+03. Honky Cat    [0:05:13.18]
+04. Goodbye Yellow Brick Road    [0:03:14.52](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DE005C53ABAFFB98E9C1FAAF5D1A61CE8D6FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805851   (12007) от 09.07.2025
+
+VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bl3ss & Camrinwatsin - Kisses (Feat. Bbyclose) 02:18
+02. Lf System - Afraid To Feel 02:58
+03. A7s - Dumb 02:30
+04. Billy Gillies - Dna (Loving You)Жанр: Pop, DanceПродолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED4C548F147CDEC673F8C9760D460911F46C188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806798   (11530) от 14.07.2025
+
+Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2025) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11530.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Thomas Anders - …Sings Modern Talking - Ready For Romance:
+01. Brother Louie (Thomas' Version) 3:53
+02. Just We Two (Mona Lisa) (Thomas' Version) 4:10
+03. Lady Lai (Thomas' Version) 4:20(   Читать дальше...   )Жанр: PopПродолжительность: 02::10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF63E1B1560E6C6A12FEB507E6A4D1D527B0DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808456   (10395) от 25.07.2025
+
+Sandra - Paintings In Yellow (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiroshima (6:52)
+02. (Life may be) A Big Insanity (4:30)
+03. Johnny Wanna Live (4:29)
+04. Lovelight In Your Eyes (5:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252FCCCD11799F220B45609DBC8D1C95DD9A991A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808454   (10364) от 25.07.2025
+
+Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Ordinary Love (07:21)
+02. Feel No Pain (05:09)
+03. I Couldn’t Love You More (03:50)
+04. Like a Tattoo (03:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0FF61244B539F5DE91C5618F6753577604C7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808451   (10362) от 25.07.2025
+
+Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joyride (4:24)
+02. Hotblooded (3:18)
+03. Fading Like a Flower (Every Time You Leave) (3:53)
+04. Knockin' On Every Door (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215F28F22AF3FCB58E0BA0AC681B9B18D19542A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808455   (10357) от 25.07.2025
+
+Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Land (04:46)
+02. We'll Be Together (04:11)
+03. Heaven Can Wait (04:04)
+04. Just Like Diamonds (05:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2DA901E92908F87E5CF366D93AC974F604CFFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809024   (10079) от 28.07.2025
+
+VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salt-N-Pepa - Let's Talk About Sex (3:34)
+02. George Michael - I Want Your Sex (4:45)
+03. LaTour - People Are Still Having Sex (4:07)
+04. Right Said Fred - I'm Too Sexy (2:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143DD67CA63B81A60EF37A7D4616E29DD03E49C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809021   (10073) от 28.07.2025
+
+A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1985 - Hunting High And Low
+1986 - Scoundrel Days
+1988 - Stay On These Roads(   Читать дальше...   )Жанр: PopПродолжительность: 03:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2513A18957985D62F2012345F8A44369793E63F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809049   (10060) от 28.07.2025
 
 VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -455,35 +745,6 @@ Barbra Streisand - A Collection-Greatest Hits ... And More - 1989, FLAC (image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97432E50005DC47D1650E16F84586DC0AACB69CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820013   (982) от 25.09.2025
-
-Kylie Minogue - Tension Tour//Live 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights Camera Action (Intro;Live From The Tension Tour) (1:45)
-02. Lights Camera Action (Live From The Tension Tour) (1:28)
-03. In Your Eyes (Live From The Tension Tour) (2:05)
-04. Get Outta My Way (Live From The Tension Tour) (2:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C66347AC28456C2A6C7802CF118C709061FF63B
 ```
 
 https://mybot314.ru/tekegram_catalog/

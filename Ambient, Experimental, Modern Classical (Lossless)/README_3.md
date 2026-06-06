@@ -1,3 +1,32 @@
+###  Публикация: 1356031   (980523) от 29.01.2020
+
+Ed Carlsen - Morning Hour (2019) Moderna Records [FLAC|Lossless|WEB-24Bit|tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Light (01:43)
+02. Whisper (03:22)
+03. The Gallery (03:31)
+04. Words (04:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36549A0144731C458A2AD5888C5F3F142DE5E213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356728   (977942) от 31.01.2020
 
 Jogging House - Lure (2019) Seil Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
@@ -708,35 +737,6 @@ VA - Faith In A Wet Season (2012) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BCAF3B7E3AC599EBEEF0F3EFAF46F86DEE962A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759260   (909124) от 21.02.2014
-
-Sinepearl - Cycles Within Cycles Within (2014) [FLAC|Lossless|WEB-DL]<Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great Wobble (14:28)
- 02. Miryjudi Goes South (10:05)
- 03. Illusion Of Control (8:52)
- 04. Light Of The First Quarter (6:48)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46EAF7806353C888A1628662CADDFFB8B51CE395
 ```
 
 https://mybot314.ru/tekegram_catalog/

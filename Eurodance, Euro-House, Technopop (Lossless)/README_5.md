@@ -1,3 +1,147 @@
+###  Публикация: 1679402   (137495) от 25.11.2023
+
+Army Of Lovers - Sexodus (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexodus
+02. Love Is Blue (feat. Olya Polyakova)
+03. What’s That Look (feat. Tamer Wilde)
+04. Romanism(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2D2235DD407394007239930BFB089BE02C579A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825196   (136757) от 17.10.2025
+
+Yellow Claw - Blood For Mercy (2015) 10th Anniversary,  Remaster, 2025, Mad Decent [FLAC|Lossless|WEB-DL|tracks] <trap music, hip hop, dubstep, hardstyle and moombahton>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roller (2025 Remaster) [00:03:17]
+02. Higher (feat. Lil Eddie) (2025 Remaster) [00:03:36]
+03. For The Thrill (feat. Becky G) (2025 Remaster) [00:04:16]
+04. Nightmare (feat. Pusha T & Barrington Levy) (2025 Remaster) [00:04:06](   Читать дальше...   )Жанр: trap-music, hip-hop, dubstep, hardstyle, moombahtonПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5C5C91C6EEA34AAE91D9413DE77CC7706A0563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689818   (123934) от 07.01.2024
+
+Cabballero - The Elements (1995) [FLAC|Lossless|image + .cue] <Trance, Eurodance, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 1:58
+02. Hymn (Sphinx Club Mix) 7:03
+03. Nanaya 6:13
+04. Wonderful World 3:59(   Читать дальше...   )Жанр: Trance, Eurodance, EuropopПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB82E9C94C3891DF98F287C69F224FD590995107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691949   (122974) от 14.01.2024
+
+V.A. - ITALO DISCO 90's remember (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Café Chantal - Café Chantal (Radio Version)
+02. Beatmatic - This Is Your Dream (Short Cut)
+03. Crystal Ball - The One (Single Version)
+04. Dj Cube,Linda Kay - Love Me (7th Version)(   Читать дальше...   )Жанр: Eurodance, EuropopПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:025B2FF5883D27D3134F5E5DE45A1C9C9E979800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715772   (111494) от 13.04.2024
+
+E-Bomber - Your Tee Is Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Dance-Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E-Bomber – Your Tee Is Hot (radio mix) (3:51)
+02. E-Bomber – Your Tee Is Hot (Party XL remix) (4:07)
+03. E-Bomber – Your Tee Is Hot (Piano Xs remix) (3:36)Жанр: Euro-Dance, Dance-PopПродолжительность: 00:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A81AB05B459A6054DED9393A8CFFCE16FBB60F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718828   (110804) от 27.04.2024
 
 Hypaton x David Guetta Feat. La Bouche - Be My Lover (2023 Mix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro House, Future House, Future Rave>
@@ -582,151 +726,6 @@ One Man Sound - It's My Life (2021) [FLAC|Lossless|tracks] <Dance, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B26822944CD5BF76139CB48CB66F6AE0AC74169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769221   (32850) от 27.12.2024
-
-VA - Happy New Year Party 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JLUIS - Paradise (3:07)
-02. MaxRiven - Loveparade (2:25)
-03. Rene Rodrigezz,Nico Roschnai & Miguel Lemos - Call It Love (2:31)
-04. Teknova - Voices (2:07)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12BC85A77578ABEB1225A04144D4468C75E5301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769218   (32809) от 27.12.2024
-
-VA - Happy New Year 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - feelslikeimfallinginlove (3:58)
-02. Benson Boone - Beautiful Things (3:01)
-03. Charli xcx - Apple (2:32)
-04. David Guetta & Bebe Rexha - I’m Good (Blue) (2:56)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 02:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C70847421126E876F53759194C0AEAF0BF9752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770409   (32288) от 01.01.2025
-
-Gigi D'Agostino, Luca Noise - Total Eclipse (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, Dance, EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Total Eclipse (Totalmente GIGI DAG & LUC ON Mix) [2:51]
-02 - Joyful (Strong And Happy GIGI DAG & LUC ON Mix) [4:44]
-03 - Sound of Love (Strong And Happy GIGI DAG & LUC ON Mix) [4:36]
-04 - Total Eclipse (Different GIGI DAG & LUC ON Instrumental Mix) [4:13](   Читать дальше...   )Жанр: Italo Dance, Dance, EuroDanceПродолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01150A83FDFFC2B5C81856F8947283D5AAB90EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770685   (32010) от 04.01.2025
-
-Gigi D'Agostino - Gin Lemon E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, Dance, EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gin Tonic [8:47]
-02 - Psicadelica [6:33]
-03 - All In One Night [8:41]
-04 - Wondering Soul [7:15](   Читать дальше...   )Жанр: Italo Dance, Dance, EuroDanceПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF933113ACF59F306665BC01E7F88C29FB6A936A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791626   (21326) от 15.04.2025
-
-Don Amore - Memories of Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco, Synth-Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Only Want You (Intro Version) [3:01]
-02 - Long Ago [7:10]
-03 - Don't Leave Me Tonight [6:06]
-04 - In Your Eyes [6:32](   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 01:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7516C94A306B82F4DA9F4C4475532016655522A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

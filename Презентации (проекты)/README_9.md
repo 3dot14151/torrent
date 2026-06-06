@@ -1,3 +1,56 @@
+###  Публикация: 1101602   (892014) от 08.02.2017
+
+Проекты - VideoHive - Phone App Presentation Template - 19299264 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phone App Presentation Template - проект для создания презентаций с применением дисплеев мобильных устройств.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00EC9212ADE9588C4D64F83E75A0D5B77090274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994216   (891215) от 07.03.2016
+
+Проекты - Pond5 - Powerful Business Presentation - 42882236 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для корпоративного видео или бизнес-презентации.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE0F5CAE0D127F96B0B8A6ABAD347694CB6C2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994113   (891133) от 07.03.2016
 
 Проекты - VideoHive - Vertical Scroll [AEP]
@@ -622,59 +675,6 @@ Destroyerz // Sport Promo - проект для создания презент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37AEB5ED85A946326A724FAC9B9DC7A28D4B8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997746   (873431) от 17.03.2016
-
-Проекты - RocketStock - Schema [AEP]
-
->>След.
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Schema - футуристическое, современное слайдшоу, ориентировано на корпоративное видео или технические презентации.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043BC921FB0ACA0C1241DE7DCFA5E0A53DF9A850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106349   (872734) от 19.02.2017
-
-Проекты - CreativeMarket - Food Promo - 1265547 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для продвижения бизнеса, рекламы товаров, меню, различных услуг.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0659D0BF0CA56B620EFF67F83D52E8D6FD58D69F
 ```
 
 https://mybot314.ru/tekegram_catalog/

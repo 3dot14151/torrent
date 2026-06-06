@@ -1,3 +1,32 @@
+###  Публикация: 1281371   (749824) от 09.02.2019
+
+Yuki Murata - Gift (2014) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. in the morning (4:16)
+ 02. gift (2:26)
+ 03. at 3 o'clock (2:30)
+ 04. a white bird (3:55)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF924167FEE7DBFFE54A8B754ED5D8BD22AF84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019393   (749758) от 23.05.2016
 
 Yoshida Brothers - Hishou (2007) [FLAC|Lossless|tracks + .cue] <Folk, World, Instrumental>
@@ -745,41 +774,6 @@ Mono - 9 albums (2001-2010) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient>
 07. Pure As Snow (11:37)
 08. Halcyon (Beautiful Days) (09:18)
 09. Everlasting Light (12:35)2001-2010Жанр: Post-Rock, Instrumental, AmbientПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339058   (667415) от 20.05.2011
-
-Huang Hui - Singing Of Bamboos (2005) [APE|Lossless]<Chinese Instrumental>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_667415.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yao Ethnic Dance
-2. Rapeseed Flower
-3. Homesickness
-4. Little Cowboy
-5. Little Cabbage
-6. Lullaby
-7. Flowers and Kids
-8. Mountain Air in Yimengshan
-9. Rainbow Girls
-10. Jasmine(   Читать дальше...)Жанр: Chinese InstrumentalПродолжительность: 00:52:38
 
 ## Скачать торент
 ```bash

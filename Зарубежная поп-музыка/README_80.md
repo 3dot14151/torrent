@@ -1,3 +1,90 @@
+###  Публикация: 1271413   (150289) от 23.12.2018
+
+Don Amore - Memories Of Dreams (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Only Want You (Intro) 03:00
+2. Long Ago 07:09
+3. Don't Leave Me Tonight 06:05
+4. In Your Eyes 06:31(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B59028EF8806DC9C48B30E3C6A5BA6D32AC332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677473   (150284) от 18.11.2023
+
+VA - NOW That's What I Call 40 Years (2023) Vol. 1-4, 12 CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Britney Spears - ...Baby One More Time [3:32]
+02. Steps - Tragedy [4:31]
+03. Eiffel 65 - Blue (Da Ba Dee) [3:40]
+04. Gabrielle - Rise [3:40](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 15:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE5DEE5B7F056E0ED706212A8DED799E7A9DC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271439   (150276) от 23.12.2018
+
+Jessie J - This Christmas Day (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Claus Is Comin’ to Town
+02. Man With The Bag
+03. Rockin’ Around the Christmas Tree
+04. Jingle Bell Rock(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6273FEC8D63DB1F9D5723E91AA104324D0B37DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271298   (149989) от 23.12.2018
 
 VA - Christmas - The Ultimate Collection (2018) [MP3|320 Kbps] <Ballad, Country, Smooth Jazz>
@@ -655,90 +742,6 @@ VA - 100 Greatest Workout Songs (2019) [MP3|320 Kbps] <Pop, Rock, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C9D43C6F73D8499340A4CD93A60F08CD61A568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348412   (144718) от 27.12.2019
-
-VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144718.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Prince - Purple Rain 8:41
-002. Coldplay - Everglow 3:48
-003. Foreigner - I Want To Know What Love Is (2013 Remaster) 5:06
-004. Spandau Ballet - True (Single Edit) 5:28(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E91BFF3D8F2DAEC1B6D61B5A5BEE7D3FA70E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969719   (144553) от 28.12.2015
-
-Монатик - S.S.D. (2013) [MP3|256-320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Дым
-03. ТайУлетаю
-04. Важно(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11531FE4AAB97E4947C39E7600EC2BE421EA6BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272443   (144267) от 27.12.2018
-
-Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moi… Lolita (Reloaded)Жанр: Deep House, Pop, ElectronicПродолжительность: 02:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1013ACBABADFF320FF3C5650621AA86D6CDB4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

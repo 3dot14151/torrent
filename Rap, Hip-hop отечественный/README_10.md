@@ -1,3 +1,32 @@
+###  Публикация: 1178100   (357646) от 27.10.2017
+
+Макс Корж - Малый повзрослел ч.2 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357646.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вспоминай меня
+2. Молодость всё прощает
+3. Пьяный дождь
+4. Малиновый закат(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D0A215894BCFBA4017F1E3A3FA35D33C94163A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072068   (353847) от 12.11.2016
 
 Грибы - Дом На Колесах ч.1 (2016) [MP3|320 Kbps] <Hip-Hop, House>
@@ -606,6 +635,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423432   (300250) от 13.11.2020
+
+БАЗАР - Плохой альбом (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_300250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Омар Хайям [03:11]
+02. Пепе Гвардиола [02:52]
+03. Чудо и бекон [03:25]
+04. Абракадабра [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43835E4B9466A5B786F10F05362D84B0B4007F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423429   (300089) от 13.11.2020
 
 Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -635,28 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423435   (299940) от 13.11.2020
+###  Публикация: 1423438   (300074) от 13.11.2020
 
-ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+Loqiemean - Черная метка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_300074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Только Mic и я [02:20]
-02. Моби Дик [03:37]
-03. В бой идут одни старики (feat. Schokk & Czar) [03:54]
-04. Эсперанто [03:17](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:17:59
+01. Белый работяга [01:49]
+02. Прорубь [03:35]
+03. Метаморфоза [02:15]
+04. Жарко (feat. Куок) [03:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:733879A1B11C22D4CC7A666C5154C07E9C7FB604
+magnet:?xt=urn:btih:29D62B3E45275EE0F613FF9A6B28D66014E40C8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,86 +722,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423442   (299800) от 13.11.2020
+###  Публикация: 1423434   (299948) от 13.11.2020
 
-Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [01:52]
-02. Что за бизнес сука? [03:25]
-03. Block Baby [03:28]
-04. G Shit [03:20](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466D1A4886409A33B22684BBD13106BF7E51C9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423439   (299668) от 13.11.2020
-
-Тимати - Транзит (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+Johnyboy - Демоны проснутся в полночь (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Харлей [03:34]
-02. Звездопад [02:50]
-03. Царь зверей [02:49]
-04. Хавчик (feat. Джиган, Даня Милохин) [03:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:57:47
+01. ALCATRAZ [03:20]
+02. Бензин [02:46]
+03. Onlyfans [03:23]
+04. Pass out Freestyle [03:54](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:52:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:030EC245C2127F0052B9B2EE160728DFA2D0B411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423532   (299654) от 13.11.2020
-
-Скриптонит, Niman - PVL is back (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [01:31]
-02. Gasoline [03:20]
-03. Spice Girls [02:57]
-04. Nice Guy [03:15]Жанр: Rap, Hip-HopПродолжительность: 00:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3501A7F15B50486C1B3AB6EA86EA9463C756B4F
+magnet:?xt=urn:btih:F85E1566263F53576B4089743F4D17D4DC57C5D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

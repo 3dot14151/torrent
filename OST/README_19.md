@@ -1,3 +1,32 @@
+###  Публикация: 1330007   (345612) от 08.10.2019
+
+Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Soundtrack) (2004) [MP3|320 Kbps] <Classical, Baroque>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношения между Людовиком XIV, Люлли и Мольером, лежащие в основе фильма "Король танцует", несомненно, уникальны в истории искусств. Если летописцы, историки и романисты много вышивали вокруг этой встречи, то факты еще интереснее, чем легенда. Ибо речь идет не только о встрече мецената, музыканта и драматурга. Благожелательная случайность сделала все лучше, (   Читать дальше...   )01. Te Deum Motet a deux choeurs (02:16)
+02. La Bocanne primitive (01:43)
+03. La Bocanne compliquee (01:06)
+      .....Опера Фаэтон(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7B3E7F9F8DDCFCCDE4D9616113B6F61066BFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578062   (345384) от 23.09.2022
 
 VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Picture, OST [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Hard Rock>
@@ -728,35 +757,6 @@ VA - Скалолазка и Последний из Седьмой колыбе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473264FAC93E1C2400FCC231A32DF5D6CF73BABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075567   (320990) от 22.11.2016
-
-Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) + (Orchestral Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowden Symphonic (03:30)
-02. Burden Of Truth (02:05)
-03. Opening - Secret Downloading (01:40)
-04. Troops March (01:58)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:39:24 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FC50756E8302011A8E193DF6FC8695A4AD7C9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1278820   (767742) от 27.01.2019
+
+Crypton - 3 Singles (1981-1984) 7" [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger In Space (4:17)
+02. Movin' On (3:18)
+03. Galaxy Drive (3:21)
+04. Time Is On Your Hands (3:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C400A1C95DCA04FE05D144506FE01F4B82DBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125744   (767090) от 16.04.2017
+
+A La Carte - Sun Sun Summertime (1989) Vinil-Rip [MP3|320 Kbps] <Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+Sun Sun Summertime
+Put Your Hand On Your Heart
+Take Me To Your Heart(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD26DD0069647CE7054D3700E6CDC4228C868725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393615   (766936) от 01.07.2020
 
 Enterprise - Enterprise (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -685,64 +743,6 @@ Irene Cara - 3 Albums (1982-1987) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:245A4F5AB9523ED9A3F1800975975080C3897D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020597   (745454) от 26.05.2016
-
-Automat - Automat (1978) [MP3|320 кб/с] <Electronic, Disco, Ambient>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automat: a) (The) Rise   (6:09)
-02. Automat: b) (The) Advance   (4:06)
-03. Automat: c) (The) Genus   (6:40)
-04. Droid   (5:25)(   Читать дальше...   )Жанр: Electronic, Disco, AmbientПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5630BA192E76DF80DD1E864E64E50E23975A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020952   (743698) от 27.05.2016
-
-Tantra - The Collection (2013) 2CD [MP3|320 кб/с] <Electronic, Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянская группа Tantra - проект композитора, аранжировщика и продюсера Celso Valli,  являющимся одним из пионеров итальянской диско-сцены и известным по работе с Macho, Azoto и Passengers. Композиция Hills Of Katmandu была ремикширована Patrick Cowley и является классикой space-disco.01. Hills Of Katmandu   (16:22)
-02. Wishbone   (15:43)
-03. Su-Ke-Leu   (2:33)
-04. Mother Africa   (4:39)(   Читать дальше...   )Жанр: Electronic, Disco, Euro-DiscoПродолжительность: 02:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70ADB6D75278AE3704092C79F701AA629BE35FE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

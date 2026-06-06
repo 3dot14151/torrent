@@ -1,3 +1,119 @@
+###  Публикация: 1147117   (609605) от 02.07.2017
+
+VA - Armada Ibiza (2017) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thomas Gold - Magic (Alex Preston Remix)  3:15
+02.  Tommy Trash - Dreamer  3:07
+03.  ATB - Connected  3:36
+04.  DeaDmau5 - Polaris (Original Mix)  9:45(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE7070C427A455814F86D04FBF792F1F4B22D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231062   (608661) от 16.06.2018
+
+VA - Global Explosion Progressive House 8 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paul Sparkes - Worgull (original)
+02.  C-Jay - Shogun (Dirty Disorder remix)
+03.  Alexi Bongioanni - Do It Yourself (original mix)
+04.  Downpour - Cloudy (original mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E96626243AFDB2292F344726DE6D3156449E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913281   (607146) от 28.06.2015
+
+VA - Secret Weapons (2015) [MP3|320 кб/с]<Techno, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Hour - Speaking Groove (06:16)
+02. Erik Hagleton - Pressure (Club Mix) (06:46)
+03. Mihalis Safras & Mark Broom - Messing (Dosem Remix) (07:13)
+04. Tapesh - Black Out (Club Mix) (06:59)(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 03:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D903EEC87713772E6F70FE80FB1B03B829751817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913392   (605213) от 29.06.2015
+
+VA - Ibiza Beach Club (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiffre 100 - Skies (06:34)
+02. The Sura Quintet - Intimacy (05:31)
+03. Soul Emphasis - Going Deeper (06:15)
+04. Over Range - Groove the Day (06:22)(   Читать дальше...   )Производство: Nidra MusicЖанр: Deep House, Chill HouseПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9EA5E74ABC529F8B1759CDFA970C6FD8922C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038789   (604970) от 29.07.2016
 
 VA - Dance Zone - Top Music Hits (2016) [MP3|320 Kbps] <House, Progressive>
@@ -635,130 +751,6 @@ VA - Ibiza Deep House (2018) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09181FD29BFCC30DB9D2119BA9B3CE05E2750C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914594   (596371) от 03.07.2015
-
-VA - Ibiza Deep House (2015) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ally Sereda - Foreplay (Leon S Remix) (06:27)
-02. Miguel Alcobia - Hold On (08:37)
-03. Jaques Le Noir - Repeat Your Kiss (05:57)
-04. Chrissy DePauw - Spiriling (Leon S Deep Vocal Mix) (07:06)(   Читать дальше...   )Производство: Planet House MusicЖанр: Deep House, Chill HouseПродолжительность: 02:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F1D97648BD35D9CD6648138420ACDEE1575BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526575   (595741) от 25.07.2012
-
-VA - All Gone Pete Tong Groove Armada Miami 12 (2012) [MP3|320 кб/с]<Electronic, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовый британский диджей Pete Tong анонсировал выход своей новой компиляции, которая была создана в содружестве с музыкантами из группы Groove Armada.Компиляция получила название «All Gone Miami 12» и разделена на два диска, за каждый из которых отвечает отдельная творческая единица. Первый диск составил и подобрал сам Пит, а второй на совести участников Армады.
-
-Релиз запланирован на 26 марта 2012 года, а в качестве выпускающего лейбла заявлен знаменитый рекординг Defected.1. Groove Armada - Disco, Love, Groove (4:17)
- 2. Toby Tobias feat. Brendan Reilly - Tomorrow's Bringing (Bicep NY Mix) (2:03)
- 3. Placeholder - Don't U Know (Jacob Korn NuGroove Remix) (2:57)
- 4. Parallel Dance Ensemble - Shopping Cart (Maxxi Soundsystem Remix) (3:36)
- 5. Fingers Inc. - Music Take Me Up (5:12)
- 6. Cle - Feel It (Don't Cha Know) (4:38)
- 7. DJ Nibc & Patrick L feat. Andreas Cavaco - Call Me (Tiger Stripes Remix) (3:01)
- 8. Shenoda - Finally (Original Mix) (4:05)
- 9. Bingo Players - Devotion (Original Mix) (0:48)
- 10. Nina Kraviz - Ghetto Kraviz (1:48)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E0E8291FA323C1EE31ED3EBE23C95F0375BB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150239   (595278) от 14.07.2017
-
-VA - 100% Super Hits (Summer '17) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Flight – Extasy (Latin Summer Mix) 06:17
-02. Lykov – I Can Live 04:36
-03. Richard Highway – Somebody 03:54
-04. DJ Favorite – Reach the Sky 03:59(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7ACDCC83E35094AEFC078A302B298B207B1A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233006   (595085) от 27.06.2018
-
-VA - The Gold Of Ibiza (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ray Of Love - Sixthy (Sugar & Club Saxy Mix) 2:56
-02. Jay Beach - Mr. DJ (Fine Gold Mix) 3:02
-03. House Defrag - Fight (Red Zone Mix) 2:47
-04. The Philosopher - Trumpet Ring (Vocatrumpa Ibiza Mix) 3:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19D9A1E4568FA9073BD11A2E8362C463025342B
 ```
 
 https://mybot314.ru/tekegram_catalog/

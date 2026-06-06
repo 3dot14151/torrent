@@ -1,3 +1,148 @@
+###  Публикация: 1074038   (340365) от 18.11.2016
+
+Lamb Of God - The Duke (2016) EP [MP3|320 Kbps] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Duke 04:31
+02. Culling 03:32
+03. Still Echoes (Live from Rock Am Ring) 04:35
+04. 512 (Live from Bonnaroo) 04:48(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B3F186E2F4C52F60F7954DCE2775FF628FE630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074654   (339012) от 19.11.2016
+
+Candiria - While They Were Sleeping (2016) [MP3|320 Kbps] <Progressive, Experimental Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339012.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. While They Were Sleeping
+2. Mereya
+3. Wandering Light
+4. The Cause(   Читать дальше...   )Жанр: Progressive, Experimental Metal, MetalcoreПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9741C17D3028D279CAE30F6438485AD65F7698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074653   (338602) от 19.11.2016
+
+Arkan - Kelem (2016) [MP3|320 Kbps] <Oriental Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hayati (05:06)
+02. My Reverence (05:35)
+03. March Of Sorrow (05:24)
+04. Leaving Us (04:18)(   Читать дальше...   )Жанр: Oriental Melodic Death MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BDEDDAC18A4A3FFC0A1A85F3C16CA6AA75017E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074252   (338203) от 19.11.2016
+
+Dark Sarah - The Puzzle (2016) [MP3|320 Kbps] <Symphonic Metal, Neo-Classical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338203.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breath
+2. Island In The Mist
+3. Little Men
+4. Ash Grove(   Читать дальше...   )Жанр: Symphonic Metal, Neo-Classical MetalПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEBDF0714159ED4EC994C78605F61587370221C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419734   (337814) от 29.10.2020
+
+Godsnake - Poison Thorn (2020) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Urge To Kill
+02. Poison Thorn
+03. Sound Of The Broken
+04. We Disagree(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538A5C6C7D2C247CA0E12C3A7880C5EE27A716E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419693   (337801) от 29.10.2020
 
 Armored Saint - Punching The Sky (2020) [MP3|320 Kbps] <Heavy Metal>
@@ -599,152 +744,6 @@ Drowning Pool - Strike A Nerve (2022) [MP3|320 Kbps] <Alt. Metal, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB1E352CF9344D41593B0BDEB3E91A4F8DFB48BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580099   (331996) от 30.09.2022
-
-Sabaton - Weapons Of The Modern Age (2022) EP [MP3|320 Kbps] <Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Father (4:38)
-02. The Red Baron (3:22)
-03. Dreadnought (4:58)
-04. The Attack Of The Dead Men (3:56)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57B9D3B22A2447F9F8ABB102937BEB630B23E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451249   (331874) от 15.10.2019
-
-Machine Head - 7albums + 3EPs + 7singles (1993-2011) [MP3|320kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Thrash Metal, Heavy Metal, Nu MetalПродолжительность: 00:07:38
-
-
-01 | Locust (Advance Mix) | 7:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35E2B9BB4444820988CCA9E5A50071EFDB64400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580003   (331845) от 30.09.2022
-
-Aviana - Corporation (2022) [MP3|320 Kbps] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curriculum [00:01:15]
-02. Obsession [00:03:30]
-03. Rage [00:03:36]
-04. Paradox (feat. Marcus Vik of Invent Animate) [00:03:31](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1BCBD9CDE38E044915B3FFA20DF16C4436905C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796021   (331757) от 15.10.2019
-
-Machine Head - 2 Studio Albums, 2 Live Albums, 3 Singles (2012-2019) [MP3|320 кб/с] <Groove Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331757.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - Machine F**king Head Live (2CD, Live)
-2014 - Killers & Kings (Single, RSD 10-inch)
-2014 - Bloodstone & Diamonds (Limited Edition Mediabook)
-2016 - Is There Anybody Out There? (Single)(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 06:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58990DF4F03FA01904503772A57ACB3E88C17526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 93996   (331747) от 15.10.2019
-
-Soulfly - 8albums + 2EPs + 3singles (1998-2012) [MP3|320kbps] <Groove/Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бразильский вокалист и гитарист Макс Кавалера основал Soulfly после своего ухода из группы Sepultura в 1996 году.
-1996—1997 годы были чрезвычайно трудными для Макса. Он оставил группу Sepultura, одним из основателей которой он являлся, в знак протеста на увольнение его жены, а также менеджера группы, Глории Кавалеры, остальными участниками команды. К тому же он тяжело (   Читать дальше...   )Жанр: Groove Metal, Nu Metal, Thrash MetalПродолжительность: 00:09:05
-
-
-01 | Unleash (Clean Edit) | 4:33(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CB362A9D6057F2775103F0F2CDF25FCCB96CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

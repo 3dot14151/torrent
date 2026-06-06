@@ -1,3 +1,61 @@
+###  Публикация: 1354532   (987881) от 22.01.2020
+
+Alphaville - Salvation (1997) Reissue 2000, Metropolis Records [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Inside Out [5:17]
+ 02 - Monkey In The Moon [3:53]
+ 03 - Guardian Angel [4:14]
+ 04 - Wishful Thinking [3:48](   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD27FB51CD789F28C36903233BA671F0679C6271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354808   (986975) от 23.01.2020
+
+Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will-o-the-wisp
+02. You are the one
+03. Happy people
+04. Dreamland (feat. Years & Years)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F289E7D50E4A9F2AA00FA0B36ACD1D8763EFB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 740903   (985891) от 01.01.2014
 
 Depeche Mode - Happiest Boys (1999) [#BRONS 376, Unofficial Remix Compilation] [FLAC|Lossless]<Synthpop>
@@ -686,64 +744,6 @@ Boytronic - Love For Sale (1988) Remastered, Deluxe Edition, 2014, SP Records [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6FCE81E3F8BEED617D7180D744753FB4E75AD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361020   (958123) от 17.02.2020
-
-Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the Beginning (4:40)
-02. Catch My Fall (4:39)
-03. Devil in Heaven (3:43)
-04. I Don't Want to Lie Anymore (5:33)(   Читать дальше...   )Жанр: Electronic, Synthpop, EBM |Продолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F1D1C7C42C27883FBB1D29CE6C9735C6F97176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979737   (953020) от 31.01.2016
-
-Northern Lite - Letters & Signs (Part Two) (2010) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Japan [6:00]
- 02. Wicked Mess [4:36]
- 03. Run (feat. Chapeau Claque) [3:15]
- 04. Home [4:06](   Читать дальше...   )Жанр: Synthpop, Rock, ElectronicПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C58A1804E760CC2094E7B69CC824594F5A2542
 ```
 
 https://mybot314.ru/tekegram_catalog/

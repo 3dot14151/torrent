@@ -1,3 +1,32 @@
+###  Публикация: 1379824   (837691) от 30.04.2020
+
+VA - NOW Alternative Classics (2020) [MP3|320 Kbps] <Indie & Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.E.M. - The One I Love
+02. The Killers - All These Things That I've Done
+03. The Wallflowers - One Headlight
+04. Massive Attack - Protection(   Читать дальше...   )Жанр: Indie & AlternativeПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DA294E74E485E01EE09FE28334EF13CB0275D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005011   (836768) от 07.04.2016
 
 Filter - Crazy Eyes (2016) [MP3|320 кб/с] <Alternative Rock, Post-Grunge>
@@ -713,35 +742,6 @@ Hollywood Undead - Day Of The Dead (2015) Best Buy Edition [MP3|320 кб/с]<Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC3363D11C6ECB75D57C35DBC70B09F19A08F8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009542   (810157) от 21.04.2016
-
-Bazzookas - Ska.World (2016) [MP3|320 кб/с] <Ska, Altertative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:24)
-02. Winwin (03:01)
-03. Torn (03:36)
-04. Wrong Train (03:05)(   Читать дальше...   )Жанр: Ska, AltertativeПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B76EB28B241475ACFDC4245812286496E92F42C
 ```
 
 https://mybot314.ru/tekegram_catalog/

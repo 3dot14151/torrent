@@ -1,3 +1,108 @@
+###  Публикация: 488881   (91024) от 27.04.2012
+
+Solo Tango Orquestra - Historias de Tango (2010) [FLAC|Lossless]<Tango Argentino>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milonga Sentimental (live) (2:19)
+02. Toda mi Vida (2:50)
+03. Mano Brava (2:14)
+04. Gallo Ciego (3:29)
+05. A las cinco en la giralda (live) (3:13)
+06. Cite Tango (live) (5:46)
+07. Amelitango (live) (3:21)
+08. Oblivion (live) (4:02)
+09. Verano Porteno (live) (6:25)
+10. Solitude (3:43)(   Читать дальше...   )2010Жанр: Tango ArgentinoПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479996   (87373) от 09.04.2012
+
+VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<Романсы>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гори, гори моя звезда (Б.Штоколов)
+ 02. Я помню вальса звук прелестный (Н.Брегвадзе & М.Джабуа)
+ 03. Романс о романсе (В.Пономарева)
+ 04. Нищая (А.Малинин)
+ 05. Ямщик, не гони лошадей (С.Захаров)
+ 06. Сердце на снегу (М.Магомаев)
+ 07. Во глубине сибирских руд (Л.Сметанников)
+ 08. Старый муж (Песня цыганки) (Н.Раутио)
+ 09. Я Вас любил (Ф.Царикати)
+ 10. Ночь светла (Т.Синявская)(   Читать дальше...   )1999Жанр: РомансыПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480009   (87305) от 09.04.2012
+
+VA - Русская народная хоровая песня (2000) [FLAC|Lossless]<Русская народная хоровая песня>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ай, заинька, ай, серенький
+ 02. Пойду ль, выйду ль я
+ 03. Самара-городок
+ 04. Помню, я еще молодушкой была
+ 05. Камаринская (Небывальщина)
+ 06. Валенки
+ 07. Ах, вы сени, мои сени
+ 08. Во кузнеце
+ 09. Бояре, мы к вам пришли
+ 10. Как у наших у ворот(   Читать дальше...   )2000Жанр: Русская народная хоровая песняПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771370   (71902) от 06.01.2025
 
 VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -658,93 +763,6 @@ VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:823AEC571300B548D4D52C55EA99F39E642ED107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798807   (17251) от 23.05.2025
-
-VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Jennifer Dons - Desert Groove (Original Mix) (5:24)
-02. Don Lockwood, Tibetania - Whirligig (Original Mix) (5:22)
-03. Gabriel Slick, Tibetania - Day & Night (Original Mix) (5:54)
-04. Tibetania, Willco - Cosmic Breath (Original Mix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810838   (16723) от 07.08.2025
-
-VA - Pioneer LaserActive - The Art Of Entertainment - Private Music Sampler (1993) [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Funk / Soul, Blues, Pop, Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taj Mahal / Strut    [0:03:43.07]
-02. A.J. Croce / Which Way Steinway    [0:03:20.50]
-03. Leon Redbone / Lazy River    [0:03:05.08]
-04. Pahinui Brothers / Jealous Guy    [0:04:56.07](   Читать дальше...   )Жанр: Jazz, Rock, Funk / Soul, Blues, Pop, FolkПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEB543B0FAC28C5B08DEEBE99108E2F24BBF8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811334   (16325) от 09.08.2025
-
-VA - The Orient Collective: Earth And Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Mateus - Earth and Sky (5:34)
-02. Mikhail Catan - Mirage (Ali Termos) (6:37)
-03. Juantxo Munoz - Aqsa (7:16)
-04. The Hanumans - Azalai (5:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44309419E7D3131752D17C73BD3B4DE9DB5797A
 ```
 
 https://mybot314.ru/tekegram_catalog/

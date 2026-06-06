@@ -201,6 +201,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258814   (332726) от 01.11.2018
+
+The Prodigy - No Tourists (2018) [MP3|320 Kbps] <Electronic, Breakbeat>
+
+>>След.
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_332726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need Some1
+02. Light Up The Sky
+03. We Live Forever
+04. No Tourists(   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC29371A4FE39CDB90B8EDC8B5F2C5A30A4DA2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955785   (331944) от 12.11.2015
 
 The Prodigy - The Day Is My Enemy (2015) Expanded Edition [MP3|320 кб/с]<Breakbeat, Electro>
@@ -397,6 +426,35 @@ Karetus - PINATA (2015) [MP3|320 кб/с]< Drum & Bass, Dubstep, Electro, Moomba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2FD3EF33EE2B2868BAA4693959C8D3020EC40F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961981   (297096) от 03.12.2015
+
+VA - Fast Warehouse Music (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Commix - Bear Music
+02. Urbandawn - Trindade
+03. Subwave - I Need You
+04. Dark Soul - Raze(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 05:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B197413D9654451175508C27C71D4D597CFD78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,64 +749,6 @@ Colombo - Abandoned Factory II (2015) [MP3|320 кб/с] <Breaks>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81D95A56FFED1767203744E5373C98C1D35F367A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084196   (220687) от 18.12.2016
-
-Monstercat - Best of 2016 (2016) [MP3|320 Kbps] <Electro, House, Glitch Hop, Drumstep, Trance>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marshmello - Alone
-02. Pegboard Nerd & NGHTMRE - Superstar (feat. Krewella)
-03. Vicetone - Nevada (feat. Cozi Zuehlsdorff)
-04. Hellberg - Synchronize (feat. Aaron Richards)(   Читать дальше...   )Жанр: Electro, House, Glitch Hop, Drumstep, TranceПродолжительность: 05:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2C2FD7BEF9B53E47121803DF1C661BEF38D58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829032   (201889) от 25.10.2025
-
-Bassnectar (Lorin Ashton) - 5 Albums (2020-2025) [MP3|320 Kbps] <Electronic, Breakbeat, Dubstep>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - All Colors
-2023 - The Golden Rule
-2024 - The Golden Rule Remixes (Part 1)(   Читать дальше...   )Жанр: Electronic, Breakbeat, DubstepПродолжительность: 5 CD, 05:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4574A70EA32D20AEAD2ECD28ACE71EA3E29A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

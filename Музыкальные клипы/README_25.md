@@ -1,3 +1,60 @@
+###  Публикация: 556781   (424788) от 06.10.2012
+
+Zaira - Mi vida (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7552A77EAA2BE442B4200C853FFE0F1FA99E9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557220   (418823) от 08.10.2012
+
+Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD) (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418823.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента выхода одного из самых успешных соло синглов солиста легендарной группы Queen, Фредди Меркьюри (Freddie Mercury), прошло более 25 лет, но тем не менее альбом «Barcelona» не теряет своей популярности, и вот уже совсем скоро выходит новая специальная орекстровая версия этого легендарного альбома.
+
+Напомним, что сингл Barcelona записан совместно с легендарой (   Читать дальше...   )1. Barcelona - Ku Club Ibiza performance
+2. Barcelona - La Nit performance
+3. How Can I Go On - La Nit performance
+4. The Golden Boy - La Nit performance(   Читать дальше...   )Жанр: Classic Rock / OperaПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEF2A8F5011DE222C3C6B163DF069CA3F5D0B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064618   (418459) от 23.10.2016
 
 The Weeknd - False Alarm (2016) WEB-DL [MPEG-4/1080p-LQ]
@@ -641,64 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51AD24744AC23DB9B09FABACCBC3408950D31B33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565469   (400031) от 26.10.2012
-
-Aerosmith - What Could Have Been Love (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4900C53E11086D683C88408873B74DEA472C03CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170516   (399225) от 01.10.2017
-
-Deep and sensual music for love (2017) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заводные клипы электронной музыки с прекрасными девушками поднимут вам настроение!
-
-Постельных сцен эротики течение,
-Нежность белых тонких простыней,(   Читать дальше...   )01. Ansah - I Know [03:18]
-02. Tom Ferro - Molly [04:27]
-03. Jake Ackers - Enigma [05:40]
-04. Gold Front - Jumanji [03:52](   Читать дальше...   )Производство: All WorldЖанр: ElectronicПродолжительность: 02:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AC63A4D02180BEEBE84CBCF0E51907ECBC332C
 ```
 
 https://mybot314.ru/tekegram_catalog/

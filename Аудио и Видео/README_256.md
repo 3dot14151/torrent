@@ -1,3 +1,380 @@
+###  Публикация: 1430726   (169970) от 11.12.2020
+
+Григорий Лепс - Честь имею! Разведка боем (Высоцкий) (2020) [AAC|~330 Kbps] <Chanson; Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я вам мозги не пудрю (2:45)
+02. Штрафные батальоны (2:59)
+03. Жил я с матерью и батей (1:16)
+04. Их восемь, нас двое (2:43)(   Читать дальше...   )Жанр: Chanson; PopПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3C0567480367C8A68CC849EC3984E5D9F226A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430812   (169945) от 11.12.2020
+
+Sody - real growth takes time (2020) [AAC|~273 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. butterfly (3:09)
+02. hold it all together (3:02)
+03. i'll be there (2:24)
+04. scary part of me (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6903C0F482C4078DB0E60AD389F683712CF3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430717   (169906) от 11.12.2020
+
+Григорий Лепс - Честь имею! Мой первый срок (Высоцкий) (2020) [AAC|~329 Kbps] <Chanson, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой первый срок (2:01)
+02. Татуировка (2:07)
+03. Счётчик щёлкает (2:00)
+04. Я был душой дурного общества (2:10)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39F563738D278A19D9A2347F8A87FDC4C0C8E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430731   (169889) от 11.12.2020
+
+Григорий Лепс - Честь имею! Городской романс (Высоцкий) (2020) [AAC|~328 Kbps] <Chanson, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подумаешь, с женой не очень ладно (1:36)
+02. В пику, а не в черву (2:08)
+03. Попутчик (2:44)
+04. Про соседа-завистника (2:02)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED8023FD1CAC4546A3E965C0205F22D59E9EB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430707   (169880) от 11.12.2020
+
+Владимир Высоцкий - Оригинал пятый (октябрь - декабрь 1973 года) [Часть 1] (2020) [AAC|~182 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. «То ли в избу и запеть…» (3:31)
+02. Песенка про метателя молота (1:31)
+03. Песня командировочного (3:13)
+04. Песня про стукача (1:50)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696865C06D514A7D4CD29F3E408CA8B621899E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430696   (169876) от 11.12.2020
+
+Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 2] (2020) [AAC|~183 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Разведка боем (2:31)
+02. Золотая середина (2:57)
+03. Песня про белого слона (2:49)
+04. Песня лётчика (2:05)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BE4C860168759A1CEBECEB41FF5AE5D8C880C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430698   (169871) от 11.12.2020
+
+Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 3] (2020) [AAC|~193 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тот, который не стрелял (2:42)
+02. Чужая колея (3:20)
+03. Мишка Шифман (2:57)
+04. Затяжной прыжок (4:42)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA75B34E87EB91EB1CAF2F4295B8B8095ECED0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430703   (169861) от 11.12.2020
+
+Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 2] (2020) [AAC|~187 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я был слесарь шестого разряда (1:27)
+02. «Передо мной любой факир - ну просто карлик…» (1:13)
+03. «Говорят, арестован…» (1:01)
+04. «Вот раньше жизнь!..» (1:44)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470BFC74DCF572519FE552B390498363E97D8DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430701   (169856) от 11.12.2020
+
+Владимир Высоцкий - Оригинал третий (декабрь 1973 года) (2020) [AAC|~384 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баллада о маленьком человекe (6:37)
+02. Марш футбольной команды «Медведей» (3:17)
+03. Песня Билла Сиггера (2:24)
+04. Мистерия хиппи (3:57)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A20A090C6AB2118A7EA85712AEAC60CD570840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430684   (169850) от 11.12.2020
+
+Владимир Высоцкий - Оригинал первый (апрель 1972 года) (2020) [AAC|~172 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Певец у микрофона (4:14)
+02. На маскараде (2:44)
+03. Марш аквалангистов (1:41)
+04. Оловянные солдатики. Детская песня (2:08)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E457A0EDF35BC29C4AE0AD601B88177EC8DEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430708   (169845) от 11.12.2020
+
+Владимир Высоцкий - Оригинал пятый (октябрь - декабрь 1973 года) [Часть 2] (2020) [AAC|~189 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. «Ну о чём с тобою говорить!..» (1:14)
+02. «Эй, шофёр, вези - Бутырский хутор…» (1:17)
+03. «До нашей эры соблюдалось чувство меры…» (1:30)
+04. «То была не интрижка…» (1:23)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9681A4C3260F24A83F380373C1822B92A2F9CA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430693   (169820) от 11.12.2020
+
+Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 1] (2020) [AAC|~181 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кругом пятьсот (МАЗы) (4:06)
+02. Песня канатоходца (3:37)
+03. Увижу восход! (Чёрные бушлаты) (4:05)
+04. Песня про телевизор (3:58)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60035249F427957830AAA0B734A88779D11F0F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430702   (169816) от 11.12.2020
+
+Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 1] (2020) [AAC|~184 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Письмо на выставку (2:23)
+02. Письмо в деревню (2:22)
+03. Бал-маскарад (1:31)
+04. Песня завистника (1:40)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A58803936ADA17AC5135B1DEDEB083ED8BF66A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430796   (169808) от 11.12.2020
 
 Taylor Swift - evermore (2020) [AAC|~284 Kbps] <Pop, Alternative>
@@ -366,380 +743,6 @@ VA - A Tribe Called Kotori 4 (2020) [AAC|~324 Kbps] <Progressive House, Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F8C748668DE9FA8360DDAA36B1E0B349DE653EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515563   (169717) от 07.12.2021
-
-VA - Finesse Jazz, Vol.2 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coolcut - Please Come Home (Smooth Radio Edit) (4:26)
-02. Jizz Jazz - Just a Friend (Tenderly Mix) (4:19)
-03. Jazz Breezin - Black or White (For Couples to Make Love) (5:17)
-04. Jazzy Brazzy - Touch Me Kiss Me (Instrumental Mix) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C06969703090D20368C8B42F636C01C8B1AFDBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515261   (169703) от 07.12.2021
-
-VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 4 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamw41ker - Lullaby (2:06)
-02. Openzone Bar - Caribbean Nights (3:45)
-03. T2'n - Ataraxia Rouge (2:14)
-04. Living Room - Wisdom & Freedom (2:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF09F955FDE43276A7ADAA837C606858D4B4EA7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515333   (169698) от 07.12.2021
-
-VA - Heart of Electronica (Chillwave Downtempo Moods) (2019) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sofa Groovers - Stop Here (Chill Trip Mix) (2:56)
-02. Influenzer - Lofi Smoke (1:46)
-03. Roleystone, Rebel Angel - First Day (Enigmatic Dubstep Chill Mix) (4:04)
-04. Substrata - High Love (Chillax Mix) (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CAF075D87710A4D8A860F384B2928C675A19083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515564   (169697) от 07.12.2021
-
-VA - Finesse Jazz, Vol.3 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderphazz - Stories And Lies (4:04)
-02. Gary Rosenblatt - Nightmoves (Guitarras de Luna Mix) (4:22)
-03. Smooth Jazzerz - Look to the Future (Night Lounge Mix) (4:54)
-04. Redundant Mankind - Alpaca (Chillax Saxy Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0365B3CF50BC88285C2E5A583F9D6C48FCC8C9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515293   (169692) от 07.12.2021
-
-VA - Best of Smooth Lounge, Vol. 2 (A Finest Selection of Chill & Modern Bar Tracks) (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CiYou - Downtown Nights (4:39)
-02. Soundset City - Bar Nights (3:31)
-03. Audiozoom - Lounging Keys (4:46)
-04. Jean Mare - Adlipi (2:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2585ABFF76217B631515FBA4AD10E0DE80E43DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430710   (169687) от 11.12.2020
-
-Владимир Высоцкий - Оригинал седьмой (октябрь 1974 года, дополнение 1971 г. дома у Высоцкого) (2020) [AAC|~234 Kbps] <Acoustic, Chanson, Ballad>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Очи чёрные. Погоня (2:46)
-02. Очи чёрные. Старый дом (2:58)
-03. Инструкция перед поездкой за рубеж, или Полчаса в месткоме (5:08)
-04. Куплеты Бенгальского (2:11)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AED4552B5FF2AFCAA887CA1E2D13D5D8DD0BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515503   (169682) от 07.12.2021
-
-VA - Urban Soulful Grooves, Vol. 3: Urban Vibes for Urban People (2021) [AAC|~309 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Legend - Shallow Dive (Original Mix) (4:17)
-02. Soul Trend - Before It Gets Too Late (4:47)
-03. Lounge Groove Avenue - Thoughts (Original Mix) (4:32)
-04. Fl!p - Oh, and I Like You (Simply Chill Remix) (4:35)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful House, Deep HouseПродолжительность: 01:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAECF4F6FF37EFA0BC1C31FF3196DA523127A58D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430691   (169677) от 11.12.2020
-
-Сплин - Вира и майна (2020) [AAC|~332 Kbps] <Rock, Alternative>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Призрак (4:14)
-02. За семью печатями (3:22)
-03. Беги, моя жизнь (4:29)
-04. Джин (4:01)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A810D0E57229F5EB7DE7AB465B3BD7D021FA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515504   (169672) от 07.12.2021
-
-VA - Urban Soulful Grooves, Vol. 4: Urban Vibes for Urban People (2021) [AAC|~323 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pier-O - Funkadelphia Love Story (5:15)
-02. Marga Sol - Closer, Longer (5:27)
-03. Kostafunk, Chidi - Paradise (Instrumental Mix) (8:19)
-04. Schwarz & Funk - Seawind (Beach House Mix Radio Cut) (3:01)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful House, Deep HouseПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595039CD20ED16FDC2E739B5F29679D60EA569CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515275   (169666) от 07.12.2021
-
-VA - Chill Out 2022 (Compiled by DoctorSpook) (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barby - Angel Droid (9:32)
-02. Sixsense - Wherever You Are (4:17)
-03. The Big Port - Another World (4:40)
-04. TrapaleX - BimBam (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1498448C828D9C8BF460124AB7D4B54AF836142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404230   (169664) от 11.12.2020
-
-Ярослав Гжендович | Гелий-3 (2020) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169664.jpg" />
-</div>
-
-
-###  Подробнее
-
-2058 год. Это мир, в котором омнифоны заменили собой любые социальные связи, где ролики из МегаНета покончили с медиаресурcами и культурой, а место журналистов заняли ивентщики, обыкновенные люди, которые снимают все вокруг в надежде заполучить эффектную и скандальную запись. Это мир, в котором любой полет на самолете намеренно превращен в настоящий ад, в котором (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 13:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C54073E6332A5F613E8E3ECE94C59BE11582B05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515431   (169654) от 07.12.2021
-
-VA - Best of Chill Jazz 3 (2019) [AAC|~350 Kbps] <Chill Out, Lounge, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Guessing Game (4:17)
-02. Konstantin Klashtorni - Let's Chill (5:29)
-03. Chillaxing Jazz Kollektion - Key of Sea (5:18)
-04. Love Suggestions - Life Is Love (4:44)(   Читать дальше...   )Жанр: Chill Out, Lounge, Smooth JazzПродолжительность: 01:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A589009F4A72890C82BD0F321679CF39D8CCC2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515271   (169653) от 07.12.2021
-
-VA - My Time | My Music (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azeotrop - Chilly Beach (5:44)
-02. Mind Conventions - Irrefragable (5:58)
-03. gesolreut - Switching Things Up (6:02)
-04. Asking Altotas - Sowing Time (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A194673B914A0B0B918069E1885CD49830E146
 ```
 
 https://mybot314.ru/tekegram_catalog/

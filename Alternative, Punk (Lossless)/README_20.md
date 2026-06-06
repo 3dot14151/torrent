@@ -1,3 +1,61 @@
+###  Публикация: 1285003   (724999) от 24.02.2019
+
+Telekinesis - Effluxion (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Effluxion (03:32)
+02. Cut the Quick (04:22)
+03. Like Nothing (02:53)
+04. Running Like a River (01:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC414339519D0A9D3AAC9E4F1B946FD91B8CBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285098   (724919) от 24.02.2019
+
+Anemone - Beat My Distance (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Your Own (03:31)
+02. Daffodils (03:53)
+03. Memory Lane (04:51)
+04. Sunshine (Back to the Start) (05:30)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3082657EB89E7F0DD4C551AF10DF15D031CA15A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285009   (724910) от 24.02.2019
 
 Julia Jacklin - Crushing (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -688,64 +746,6 @@ Curses - Chapter II: Bloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ADF3349C7F1D9BCE97CE64E5FF69C621F3C4E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286582   (711350) от 03.03.2019
-
-Banda Bassotti - Amore e odio (2004) [FLAC|Lossless|tracks + .cue] <Rock, Punk, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711350.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Juri Gagarin (03:43)
-2. Amore E Odio (03:33)
-3. Partiro' Per Bologna (03:58)
-4. Scelgo (03:50)(   Читать дальше...   )Жанр: Rock, Punk, SkaПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60853D46FA5FFF99BF11554AABF58B6A09AABDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286606   (711315) от 03.03.2019
-
-Backyard Babies - Sliver & Gold (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Rock & Roll, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Morning Midnight
-02. Simple Being Sold
-03. Shovin' Rocks
-04. Ragged Flag(   Читать дальше...   )Жанр: Rock & Roll, PunkПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4C8033CEA7DE509D4F6CCA39EF246BED775495
 ```
 
 https://mybot314.ru/tekegram_catalog/

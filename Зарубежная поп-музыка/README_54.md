@@ -1,3 +1,32 @@
+###  Публикация: 1170778   (398453) от 02.10.2017
+
+Miley Cyrus - Younger Now (2017) [MP3|320 Kbps] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Younger Now
+02. Malibu
+03. Rainbowland (Feat. Dolly Parton)
+04. Week Without You(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B938BB38195002CC24195F5CE3EBAFFAA9821B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566597   (397854) от 28.10.2012
 
 Blue System - The History Of (2009) [MP3|320 кб/с]<Euro Disco>
@@ -746,35 +775,6 @@ Gina X Performance - 4 Albums (1978-1984) Reissue CD, LTM, 2005 [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1644BB4AA9506AC8439022E122189A635A7C6819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175025   (383259) от 16.10.2017
-
-Carla Bruni - French Touch (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карла Бруни известна не только как жена экс-президента Франции и супермодель, но и как поп-звезда. Для нового альбома певица по-своему исполнила любимые хиты AC/DC, The Rolling Stones, ABBA, The Clash и многих других.1. Enjoy The Silence
-2. Jimmy Jazz
-3. Love Letters
-4. Miss You(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E6AA9A6D311A40CB3EB7C3389D5FAF6FCB1686
 ```
 
 https://mybot314.ru/tekegram_catalog/

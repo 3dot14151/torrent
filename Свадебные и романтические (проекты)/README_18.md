@@ -1,3 +1,30 @@
+###  Публикация: 970291   (140455) от 30.12.2015
+
+Проекты - Pond5 - Wedding Film Memories [AEP]
+
+>>След.
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания свадебного слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CB78DB2BFE830AD47753D03A6708D620DB4786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 740194   (137856) от 31.12.2013
 
 VideoHive - The Wedding Roses - 5580414 [AEP]

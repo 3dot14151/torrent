@@ -1,3 +1,67 @@
+###  Публикация: 191324   (853020) от 11.04.2010
+
+Various - Полонезы И Вальсы Русских Композиторов (1990) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Waltz From The Ballet Raymonda
+02 - Waltz From The Ballet Lady Soubrette
+03 - Waltz From Ballet Suite Op.52
+04 - Waltz Capriccio
+05 - Waltz From The Opera Eugene Onegin
+06 - Polanaise From The Opera Christmas Eve
+07 - Polonaise From The Opera Pan Voyevoda
+08 - Introduction And Polonaise From The Opera Boris Godunov
+09 - Polonaise From Ballet Suite Op. 52
+10 - Polanaise From The Opera Cherevichki(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000518   (852051) от 29.03.2016
+
+Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Igitur Servus
+02. An Oiche
+03. Riu Riu
+04. Incantations(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020C12B2BFCF05243F621EA3947E76E1F78B9C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005908   (830743) от 10.04.2016
 
 Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
@@ -687,64 +751,6 @@ Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01BEC82D45E9E399BA21BE16792621463BE9C7E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401575   (707521) от 11.08.2020
-
-The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Breakaway (03:17)
-2. Jeepers Creepers (02:50)
-3. Piccolo Pete (02:58)
-4. The Very Thought of You (03:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03124F4B4561E290135534CBAB846C826C3A7777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328145   (706993) от 11.08.2020
-
-VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .cue] <Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armik - Sailing To Bimini (05:14)
-02. The Ventures - Blue Chateau (02:43)
-03. Hugo Strasser - Raindrops Keep Falling On My Head (02:30)
-04. Boris Zepyr - Fernando (04:25)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 03:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E66ABB2198EC3FA015AD9BA52933E092715E7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 1570080   (241325) от 15.08.2022
+###  Публикация: 1833608   (246318) от 02.11.2025
 
-Emsisoft Emergency Kit 2022.8.1.11609 Portable [Multi/Ru]
+Nocturnal (2023) [Ru/Multi] (1.2.1.747) Repack Let'sРlay [Enhanced Edition]
 
->>Архив торрентов
->>Архив Программ
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный портативный комплект антивирусных программ, который может быть использован без установки и Интернета для сканирования с помощью движков Bitdefender и Emsisoft, а также лечения зараженного компьютера от вредоносного ПО, используя USB-флешку.
-Состав Emsisoft Emergency Kit:
-- Emergency Kit Scanner (сканер)
-- Commandline Scanner (сканер, работающий из командной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Nocturnal - это экшен-игра, в которой вы играете за Ардешира, воина Вечной Пламени, возвращающегося на свою родину, Нахран, после многих лет отсутствия. С появлением таинственного Тумана остров недавно погрузился в хаос, и Ардешир должен использовать свой пылающий меч и мощные способности, чтобы разгадать его тайны и освободить Нахран.Тип издания: RepackРазработчик: Sunnyside GamesЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA46D36123A41D39FE826B2654EBF315AF045135
+magnet:?xt=urn:btih:94D459B4A40077F5229129B72161687F98761A5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544647   (241324) от 16.04.2022
+###  Публикация: 491339   (246317) от 03.05.2012
 
-Одинокий волк / Опасный / Dangerous (2021) BDRip [H.264/1080p]
+VA - Зарубежные Новинки Интернета (2012) [MP3|256 кб/с]<Pop>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Риду Форрестеру выпала непростая судьба. В юности он пошёл в армию и был направлен в горячие точки. Он уцелел на войне, но из-за ужасов, открывшихся его глазам, получил серьёзное повреждение психики. Ветеран стал настоящим социопатом, который терпеть не может окружающих и зациклен лишь на своей персоне. Он приезжает на отдалённый остров, чтобы расследовать подозрительную (   Читать дальше...   )Производство: США / Benaroya Pictures, Minds Eye Entertainment, Falconer PicturesЖанр: Боевик, триллерРежиссер: Дэвид ХэклАктеры: Скотт Иствуд, Кевин Дюран, Фамке Янссен, Тайриз Гибсон, Мэл Гибсон, Бренда Базине, Райан Роббинс, Брендан Флетчер, Лиэнн Лэпп, Чад РукПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские, английские (Full, SDH)Продолжительность: 01:39:02
+01. Gabry Ponte feat. Pitbull, Sophia Del Carmen - Beat On My Drum (Eu Radio Edit)
+02. Ne-Yo - Burning Up
+03. Deepcentral - So Divine (Radio Edit)
+04. Riz feat. Drake - Waiting Up
+05. Jai Alexander & Sarah & Deonta' G - Summer Temptation (Radio Edit)
+06. Kelis - Kids
+07. Keri Hilson - Freedom Ride
+08. Stilettos - I Nat Er Der Kun Musik (Radio Edit)
+09. Jerome Price - Letting Go (Radio Edit)
+10. Julia - To The Stars2012Жанр: PopПродолжительность: 06:09:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDD6A01931C44908E3026198A999B978AC2348A4
+magnet:?xt=urn:btih:95DE2C3D2B63D0FAB82217D3BBFCA2FB6438F276
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,664 +59,677 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119808   (241323) от 29.03.2017
+###  Публикация: 491494   (246316) от 03.05.2012
 
-Mississippi Fever - 300 Miles to Memphis (2015) [FLAC|Lossless|image + .cue] <Blues Rock, Rockin Blues>
+VA - Trance Maniacs Party: Melody Of Heartbeat #83 (03.05.2012) [MP3|320 кб/с]<Vocal Trance>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Feel Like Superman (03:40)
-02. Traveling Riverside Blues (03:33)
-03. Steal Away Your Love (04:34)
-04. Downtown Train (04:16)(   Читать дальше...   )Жанр: Blues Rock, Rockin BluesПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9995872A0FB492EE6AB0C1B85FF1382423956F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630041   (241322) от 28.04.2023
-
-Мать (1926) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241322.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному роману М.Горького.
-Непосильным, каторжным бременем был труд рабочих на заводах и фабриках в царской России. Трудно живётся и семье заводского рабочего Власова, который пытается скрасить беспросветную жизнь в пьяном угаре кабака. Нелегко приходится его покорной, преждевременно состарившейся жене Ниловне, терпеливо сносящей побои мужа. Сын Власовых (   Читать дальше...   )Производство: СССР, "Межрабпом-Русь"Жанр: драма, экранизация, немое киноРежиссер: Всеволод ПудовкинАктеры: Вера Барановская, Николай Баталов, Иван Коваль-Самборский, Анна Земцова, Александр Чистяков, Всеволод Пудовкин, Н. Видонов, Иван Бобров, Александр Громов, Владимир УральскийЯзык озвучки: немойСубтитры: русские (интертиры)Продолжительность: 01:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357DDCEC964288227EC90E6489C9A5C3ED1F3841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618623   (241321) от 12.03.2023
-
-VA - Extreme Sports Music Vol 5 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Native U - Halligalli (Radio Edit) (3:35)
-02. Timbo - On Fire (Radio Edit) (2:49)
-03. Sl4tch - Fall Asleep (Extended Mix) (3:26)
-04. Agoric - Omg! (Radio Edit) (3:20)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042DF87277C90878CF8B3B08497C7F8D47D56B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625395   (241320) от 09.04.2023
-
-ФотоМОНТАЖ 1.41 RePack (& Portable) by elchupacabra [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241320.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMS ФотоМОНТАЖ – редактор фото с поддержкой слоев. Вы сможете освоить профессиональную ретушь лица, соединить несколько изображений, убрать лишние объекты, заменить фон и улучшить качество снимков.
-Содержит 180+ объектов и текстур, современные фильтры и 3D LUT. Можете сделать коррекцию тона и освещения автоматически или вручную.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E87903C2BD6EC1EE52959D18931E75329C0A849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386551   (241319) от 30.05.2020
-
-Cynthesis - ReEvolution (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Divine Night (2:23)
-02.Convergence (1:24)
-03.The Grand Façade (7:48 )
-04.A Most Trivial Pursuit (3:20)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D304C9BF48936024E261EE0F05DF20E608BE77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570119   (241318) от 15.08.2022
-
-ISO Workshop 11.4 Pro RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241318.jpg" />
-</div>
-
-
-###  Подробнее
-
-ISO Workshop – небольшая программа для работы с образами дисков: извлечения данных из образов практически всех существующих форматов (iso, bin, nrg, cdi, mdf, img, gi, pdi, dmg, b5i, b6i), конвертирование из поддерживаемых форматов в iso, записи (только iso и cue) на CD, DVD, BD диски и создание образов с оптических носителей.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADC2926C39418B87E3FE25B1AD030D26C0BF5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460062   (241317) от 04.04.2021
-
-Sagath - Necrotica 2 (Remix Pack) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Это мой крест (Lunar Vision Remix) [03:16]
-02. Каннибалы (Drill Area Remix) [02:36]
-03. Затащите меня в ад (Obscure Remix) [02:24]
-04. Каннибалы (D.saipa Remix) [03:28](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1A7F47827FA60EB0A72BB58044B6DCE813208D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544550   (241316) от 16.04.2022
-
-Смертельный выбор (Выбирай или умри) / Choose or Die (2022) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241316.jpg" />
-</div>
-
-
-###  Подробнее
-
-В надежде выиграть денежный приз друзья перезапускают загадочную компьютерную игру 1980-х и попадают в сюрреалистичный мир полный ужаса.Производство: Великобритания / Anton, Stigma FilmsЖанр: Ужасы, триллер, драмаРежиссер: Тоби МикинсАктеры: Эйса Баттерфилд, Эдди Марсан, Роберт Инглунд, Кейт Флитвуд, Райан Гейдж, Айола Эванс, Анджела Гриффин, Кэролайн Лонк, Джо Болланд, Джордж ХэннигэнПеревод: Любительский двухголосыйСубтитры: Русские, английскиеПродолжительность: 01:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56575B654E115109A223966AC066E7691BEB2A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618741   (241315) от 12.03.2023
-
-Gwen Stefani - Love.Angel.Music.Baby. (2004) 15th Anniversary Edition, 2020, Interscope Records [FLAC|Lossless|WEB-DL|tracks] <Hip Hop, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What You Waiting For?                    [03:41]
-02. Rich Girl                                [03:56]
-03. Hollaback Girl                           [03:19]
-04. Cool                                     [03:09](   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50061CA8ABCCC9051BFD9A0C287066F3E075C109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386559   (241314) от 30.05.2020
-
-Fatal Portrait - Adventum (2006) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End of the Show
-02. Conqueror's Mask
-03. In Emptyness I Dwell
-04. The Crusade(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CE819F49B1370EEEA2B84424C9AC2EB2DAAA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119683   (241313) от 29.03.2017
-
-Monster Energy NASCAR Cup Series 2017. Этап 5 - Fontana. Гонка (2017) HDTVRip [H.264/720p-LQ] [VO]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241313.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 этап Monster Energy NASCAR Cup Series Auto Club 400, Auto Club Speedway (200 laps, 400 miles).Телекомпания: FOXЖанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийПродолжительность: 02:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CBF0EBE091CE80B50066B415F02F7302A20F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569989   (241312) от 15.08.2022
-
-Г.А. Самусевич | Моделирование процессов функционирования СМО (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое издание содержит описание теоретического материала, посвященного методам демонстрации процессов функционирования во времени систем массового обслуживания (СМО). Представлены два подхода к формированию моделей СМО: аналитическое и непрерывно-стохастическое моделирование процессов функционирования СМО наглядными (графическими) методам изучения с целью (   Читать дальше...   )Жанр: Системы массового обслуживанияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C243EB552C6DC31AAD460FB71934B079951708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459744   (241311) от 04.04.2021
-
-Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свинцовый зонт [02:34]
-02. ЧБ [02:33]
-03. В городе без метро [03:24]
-04. Надбровная дуга [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268C9047D398FE4EE27C87C9A7C542D339BD2BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546947   (241310) от 26.04.2022
-
-Auto Highlight 4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда страница просто плохо оформлена и информация, которую вы ищете, недостаточно видна. Приложение Auto Highlight автоматически выделяет определенные слова на определенных страницах. Помогает вам увидеть важные части.Тип издания: macOS SoftwareРелиз состоялся: 25.04.2022Разработчик: © 2020 Juraj MäsiarПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39D377556B2CCB569D4898FD776E8E68163BB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625363   (241309) от 09.04.2023
-
-Ислам Ханипаев | Луна 84 (Книга 1) (2023) [MP3, Кирилл Головин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241309.jpg" />
-</div>
-
-
-###  Подробнее
-
-2084 год. Хакер Дэниел Стоун оказывается в исправительной колонии «Мункейдж» на Луне. Вокруг него — сотни парней и девушек, разделенных забором под напряжением. Они могут видеть друг друга, но не могут общаться.
-Начальник колонии устраивает показательные казни, заставляет заключенных драться и регулярно выпускает к ним смертоносную тварь. Все это выглядит словно (   Читать дальше...   )Жанр: ФантастикаИздательство: bookmateПродолжительность: 08:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960CEB46CE8E00AB01801DC346FD4B339FE008AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544192   (241308) от 16.04.2022
-
-Minecraft Dungeons (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.20 / DLC] [Ru/Multi] [Ultimate Edition]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройди всю историю Minecraft Dungeons от начала до конца. Сразись с ордой мобов, исследуй уровни в разных измерениях и найди невероятные сокровища, пройдя сюжет, посвященный злобному Arch-Illager и Orb of Dominance.Тип издания: LicenseРазработчик: Mojang Studios, Double ElevenЖанр: Adventure, ActionЯзык озвучки: Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD4786221432FE44BD39FF759459F4578D83180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618583   (241307) от 12.03.2023
-
-VA - String Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241307.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coldplay - Viva La Vida                                 [04:02]
-   2. Liam Gallagher - All You're Dreaming Of                 [04:01]
-   3. Regina Spektor - Fidelity                               [03:47]
-   4. Ben Abraham - If I Didn't Love You                      [04:06](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AB422EFFF4BACAB585B42BA6DF24BED8CD55AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386691   (241306) от 30.05.2020
-
-ImageRanger Pro Edition 1.7.1.1527 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241306.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 29.05.2020Разработчик: XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912790431BDDFA37786CF90B9C82922B136B8F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119640   (241305) от 29.03.2017
-
-Dave Brubeck Quartet - Complete 1958 Berlin Concert (2008) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241305.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Duke
-2. Take the "A" Train
-3. Two Part Contention
-4. One Moment Worth Years(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69EE919D8451165A0D0F829A0D58A4C53DE6DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569994   (241304) от 15.08.2022
-
-SideFX, Adrien Lambert | Ultimate Terrain Workflow (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я много экспериментировал с Houdini для своего короткометражного фильма. Я так много узнал, что решил поделиться серией уроков об окружающей среде и о том, почему бы вам не заинтересоваться созданием ландшафта в Houdini!Производство: SideFXЖанр: Houdini 18Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8927782C7EC8B8202B903807EE69ED3A3F0214DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547105   (241303) от 26.04.2022
-
-Геннадий Черкашин | Кукла (2022) [MP3, Ольга Пойманова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о семье, пережившей блокаду Ленинграда. В ней нет описания тех ужасов, голода, страха и боли. Зато есть чай «белая ночь» (кипяток без заварки), оставленные в осажденном городе близкие, которых нельзя взять с собой, детский дом, возвращение, квартира, в которой теперь другие люди… И кукла, подаренная некогда дедушкой-профессором, которую теперь нужно выкупать (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 00:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2110507E27AA66D61D6B87C415BDF3E8D4FC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630332   (241302) от 30.04.2023
-
-Michael Davis - Hip-Bone Big Band (2016) Hip-Bone Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butter Ball [5:27]
-02. Zaq Attack [5:20]
-03. Zona [7:00]
-04. Walk Like the Guv [6:52](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E836F7A6086767D1836CCC7DB48CB793489833ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386555   (241301) от 30.05.2020
-
-Darking - Steal The Fire (2015) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icarus    					       (05:46)
-02. Steal The Fire     				       (08:06)
-03. Eldorado    				       (06:43)
-04. I'm A Legend    				       (06:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6AD8670277575A1C3C1FFD17BCF94FE35309EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618681   (241300) от 12.03.2023
-
-Richard Wright - Wet Dream (1978) Japanese Edition, Reissue, 1994, Sony Records [FLAC|Lossless|image + .cue] <Prog Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый сольник клавишника группы Pink Floyd.Композиции с этого альбома не исполнялись на концертах, ни одна из них не была выпущена в виде сингла. Больше половины композиций — инструментальные. Дизайн обложки альбома Wet Dream выполнен студией Hipgnosis.
+VA - Trance Maniacs Party: Melody Of Heartbeat #83 (03.05.2012)
 
-Период творческого перерыва, появившийся в работе группы Pink Floyd после концертного тура In the Flesh (завершился (   Читать дальше...   )01. Mediterranean C
-02. Against the Odds
-03. Cat Cruise
-04. Summer Elegy(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:44:04
+Год: 03.05.2012
+Жанр: Vocal Trance
+Продолжительность: 03:32:11Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Kyau & Albert - A Night Like This (Original Mix) [06:03](   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1825F23D41EF36D8299E9A6CFB3DBE7C4C3EFA72
+magnet:?xt=urn:btih:B53DBB7B6803B9E85D0ECA0002B12C69AD5713AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491651   (246314) от 03.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246314.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 12
+Название: Computer Desktop Wallpapers Pack 12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A61FDFA744869FDFE55D84EE80D3B45F461B2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491631   (246312) от 03.05.2012
+
+[Wallpapers] Cars Desktop Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246312.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Cars Desktop Wallpapers Pack 2
+Название: Cars Desktop Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0FAD56190A0E6F891082B1B30D8218695E413C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491427   (246309) от 03.05.2012
+
+Журнал | Мир садовода №9 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246309.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мир садовода» - дачные советы для садоводов и огородников. Издание для тех, кто желает вырастить прекрасный сад и получать богатый урожай овощей и фруктов! Очень много разнообразной, интересной и полезной информации, которую готовят известные специалисты огороднической тематике. Также своим опытом делятся читатели.апрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E233FA8DE0103B9221A52C99049B697B012945F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491424   (246306) от 03.05.2012
+
+[Wallpapers]Nature Landcapes Full HD Wallpapers 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C0CFBCD031E7AC2D09C901B578F85357DD34AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491175   (246305) от 03.05.2012
+
+[Wallpapers] Best Impressive Full HD Wallpapers (03.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4EE6F7121766E2B3F6040BDFA1ADF92AB9EF9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491657   (246304) от 03.05.2012
+
+[Wallpapers] Abstraction Desktop Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246304.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Abstraction Desktop Wallpapers Pack 2
+Название: Abstraction Desktop Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 4000х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C382E74747DC978B606FC156C3CE370AD454219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491627   (246303) от 03.05.2012
+
+[Wallpapers] Magnificent Architecture HQ Wallpapers Pack 1
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246303.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Magnificent Architecture HQ Wallpapers Pack 1
+Название: Magnificent Architecture HQ Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5B130841D4A1AB838BF241217CB09F3C4C3940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491518   (246294) от 03.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF4E1CB804CB8D2D57C91D5FD6835E274408357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491508   (246293) от 03.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1301ECDF6A881CCEBAED8E8C1ED3D3A9D24021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491014   (246292) от 03.05.2012
+
+VA - Клубные Новинки Vol.70 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Di Salvo & Piccolo - La Frutta Dell'amor (Original Mix)
+02. Ethillas - Mavien (Original Mix)
+03. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
+04. Ivan Mateluna Feat. Tiff Lacey - Where Is the Love (DJ Fellow & Nick Asoev Remix)
+05. Dandi & Ugo - Industrial Silence (Original Mix)
+06. Aleksey Yakovlev - Space Odyssey (Original Mix)
+07. Matan Caspi - Surprise Me feat Mykle Anthony (Original Mix)
+08. Cedric Gervais - Molly (Original Mix)
+09. Elay Lazutkin - It's Not Me (Original Mix)
+10. Guru Josh - Infinity 2012 (Robbie Rivera Juicy Remix)2012Жанр: Club, DanceПродолжительность: 04:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BC6D616B4D475DC71010800FAF70A1D847384C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491519   (246290) от 03.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 15
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B662E08211AC22AB445043DE01E3D78E86F7D2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491177   (246289) от 03.05.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (03.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC88F54CC952C0C1D92F1D5F34FF9B2467E71C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491513   (246288) от 03.05.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246288.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 7
+Название: Nature Desktop Wallpapers Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF273F597ED128A6AB17A6E3103C3F91F7B3520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491620   (246287) от 03.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 16
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C875F562A6C9CE2C4C4AA78A608B09CACC6F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491334   (246286) от 03.05.2012
+
+VA - May Club Party (2012) [MP3|192-256 кб/с]<Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lika Star - Точка росы (Tone Project club mix)
+02. Аметист & Настенька Жигалова - Игра В Любовь
+03. Alex M.O.R.P.H. & Protoculture - Waking Up The Stars (Radio Edit)
+04. Gino Manzotti Feat. Damon - Save Me (Radio Edit)
+05. Алабама - Отпускаю
+06. DJ Dark & Shidance feat. Phelipe - Sexy Lady (Hey!) (Andeeno Damassy Remix)
+07. Andy Moor feat. Jessica Sweetman - In Your Arms (Original Mix Edit)
+08. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
+09. Frisco Disco feat. Ski - One Way Ticket (Radio Version)
+10. Gradusi - Zametaet (DJ HiTretz & Sergei Karpov Remix)2012Жанр: ClubПродолжительность: 08:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1D532AF039025C875CE66AFFB41A0B93DE180A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491649   (246285) от 03.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246285.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 11
+Название: Computer Desktop Wallpapers Pack 11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9204D0836456D55EFC266E1A9919C9F24CBC9603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491180   (246282) от 03.05.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (03.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2756
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5632E6FE7A8ADAA5D7FB702AC7EFFF61BE90E824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491630   (246280) от 03.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 18
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BA6FF40B9157E6DE849627D11E1FFF90CFF9EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491659   (246278) от 03.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 20
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1680х1050 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B9FAD31C13894662D3EACECC5B422132390FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491629   (246276) от 03.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 10
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246276.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 10
+Название: Computer Desktop Wallpapers Pack 10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450FD07E19843FA9591485042F6E1456026417E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491178   (246274) от 03.05.2012
+
+[Wallpapers] Gilrs Wallpaper (03.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D5E594B299CEBA177788418F2E17ABD8CE73A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491179   (246273) от 03.05.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (03.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 4544х3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55704CE15E5D9243F2B1B8B12EB6598212961FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833161   (246272) от 01.11.2025
+
+Шрифты - Behance - Graviton Font Foundry - Rauda Font Family - 1171905 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифтовое семейство Rauda было разработано Пабло Балселлсом для Graviton Font Foundry в 2017 году. Это акцидентный геометрический шрифт без засечек с острыми углами, создающий выразительный и солидный вид.
+Rauda состоит из 8 начертаний. Каждое содержит глифы для нескольких языков.Формат: OTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982870974902B65E0B96F63A4BFF3AB37DCBBD41
 ```
 
 https://mybot314.ru/tekegram_catalog/

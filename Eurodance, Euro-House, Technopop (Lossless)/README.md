@@ -1,5 +1,92 @@
 https://t.me/izofen
-###  Публикация: 1871001   (1069772) от 
+###  Публикация: 1872690   (1070801) от 24.05.2026
+
+Euphoria - Total Euphoria (1992) [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.		The Power (Intro)	0:23
+02.		Love You Right	3:35
+03.		One In A Million	3:56
+04.		Do For You	4:24(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78A1F140FC5319475DE264987A10414ED053D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872841   (1070795) от 24.05.2026
+
+DJ BoBo - Best Of (2026) [FLAC|Lossless|tracks + .cue] <Eurodance, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Dream Come True
+02. Everybody
+03. Somebody Dance With Me
+04. Love Is All Around(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FF010E81F11C4585BA194C9E11C9D2AD93C8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871640   (1070275) от 23.05.2026
+
+VA - The Unity Mixers – Dance Computer Volume 2 (1994) [FLAC|Lossless|WEB-DL|image + .cue] <Euro House, Hard Trance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corona - The Rhythm of the Night 2:12
+02. Jam & Spoon - Right in the Night 1:33
+03. Intermission - Piece of My Heart 2:16
+04. Latino Brothers - The Musik 1:43(   Читать дальше...   )Жанр: Euro House, Hard TranceПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95C1D2077ED985962FB1291EA15B3507DA9ACBD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871001   (1069772) от 16.05.2026
 
 VA - Let's Get 2 It (1992) 2 x CD [FLAC|Lossless|tracks + .cue] <House, Hip Hop, Pop>
 
@@ -28,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870823   (1069388) от 
+###  Публикация: 1870823   (1069388) от 15.05.2026
 
 Vengaboys - The Platinum Album (2000) [FLAC|Lossless|tracks] <Europop, Euro House, Eurodance>
 
@@ -57,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869553   (1069235) от 
+###  Публикация: 1869553   (1069235) от 10.05.2026
 
 T.H. Express - Love 4 Liberty (1996) [FLAC|Lossless|tracks] <Euro House, Eurodance>
 
@@ -659,93 +746,6 @@ Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1E2D450E99ADAFFDE5CAFC1531F53A1C1D4F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348794   (1004229) от 02.01.2020
-
-VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musikk VS. Chiris Montana - Summer Lovin' ( Acapella )
-02. Martin Villeneuve - Come On Over ( Up Jeet Remix )
-03. Rio Dela Duna & Dani Cohiba - El Cubano ( Martin Villeneuve Remix )
-04. Do Santos - Noti Verisi(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349866   (1004072) от 03.01.2020
-
-Rewind Feat. Madame Denise - Video Killed The Radio Star (1993) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Video Killed The Radio Star (Radio Edit) 4:03
-02. Video Killed The Radio Star (With An Eye 2 Techno) 5:02
-03. Video Killed The Radio Star (Mother's Day) 4:15
-04. Kaleidoscope (Coming Soon) 2:17Жанр: Euro HouseПродолжительность: 00:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3836DC8A1172890128170394F2A99FAC8A1E9AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349870   (1004069) от 03.01.2020
-
-Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Dancing On My Own 5:19
-02. Faster 7:08
-03. Believe In Me 7:45
-04. I Want You Heaven 6:48(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E27CD7C56529450EB4E6C65B82E033268F4920E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1314973   (516056) от 17.07.2019
+
+Славянский базар в Витебске. Церемония закрытия фестиваля (15.07.2019) HDTVRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь на 16 июля в витебском Летнем амфитеатре торжественно закрыли «Славянский базар — 2019». Гала-концерт собрал на одной сцене артистов из Беларуси, России, Украины, Молдовы, Италии, Швеции. Самой звездной гостьей стала София Ротару — певица уже давно не была на «базаре» и подарила витебским зрителям новую песню.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4118D5151B529C3568715796864831A51B185E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930195   (516008) от 22.08.2015
+
+Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм "Iron Maiden: Flight 666" повествует о глобальном 45-ти дневном турне легендарной британской рок-группы Iron Maiden и является первой документальной лентой группы. Картина представляет собой реальные съемки мирового турне группы, которое состоялось в феврале-марте 2008 года. В рамках турне группа на специально оборудованном личном самолете Boeing (   Читать дальше...   )Flight 666 (Film)
+1. The "Magic Carpet" Takes A Bow
+2. A New Friend In Mumbai
+3. Jetlag Is A Killer(   Читать дальше...   )Жанр: Heavy MetalРежиссер: Scot MCFadyen, Sam DunnПродолжительность: 01:52:19 (Film) | 01:43:40 (Concert)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC10BA04C676B797060E0DDCBE1E8BCF2EB8889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536052   (515357) от 17.08.2012
+
+Slipknot / Live At Download (2009/2012) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slipknot - американская группа, исполняющая музыку в стиле ню-метал. Группа образована в 1995 году, хотя первые признаки её существования датируются 1992 годом, когда был сформирован минимальный состав. Этот концерт был снят когда Slipknot озаглавил фестиваль перед 80,000 поклонниками в июне 2009 года. Среди многих легендарных шоу в прямом эфире, эта работа остается (   Читать дальше...   )Жанр: Nu-Metal, Alternative MetalАктеры: SlipknotПеревод: ОтсутствуетПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930584   (513660) от 24.08.2015
 
 Muse - Live At Rome Olympic Stadium (2013) BDRip [H.264/1080p]
@@ -658,93 +739,6 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BC94FCD54FD44FA7EC8800B580312FE97023103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936944   (492231) от 13.09.2015
-
-The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
-02. When The Whip Comes Down
-03. Let s Spend The Night Together
-04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichАктеры: Mick Jagger (vocals, guitar), Keith Richards (guitars, vocals), Ronnie Wood (guitars, backing vocals), Bill Wyman (bass guitar), Charlie Watts (drums), Ian Stewart (piano), Ian McLagan (keyboards, backing vocals), Ernie Watts, Boby Keys (saxophone)Продолжительность: 02:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D8C88305F7B049FB5F8F53F98134D8C55A5E3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937213   (489551) от 14.09.2015
-
-James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой концерт оркестра в Королевском Альберт-Холле, который не нуждается в особом представлении. Около двух часов прекрасной инструментальной музыки различных стилей и направлений, некоторые номера сопровождают вокал, как индивидуальный, так и ансамблевый.01. Pulstar
-02. The Way we Were
-03. Medley: Charmaine / Ja Ja Der Chiantiwien / Singing In The Rain
-04. Candle In The Wind(   Читать дальше...   )Жанр: Classical Pop, Rock, Jazz, Instrumental, Film ScoreПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17DC2837593337FD00A9B567CF209E5EE5A2658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 699272   (489127) от 12.09.2013
-
-Madonna - MDNA World Tour (2013) HDTV [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virgin Mary (Intro)
-02. Girl Gone Wild
-03. Revolver
-04. Gang Bang(   Читать дальше...   )Жанр: PopПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3196A078B7294699932F2421306B5BF8F1090C1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

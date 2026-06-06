@@ -1,3 +1,148 @@
+###  Публикация: 1308796   (553485) от 16.06.2019
+
+Anokthus — 3 альбома (2013-2017) [FLAC|Lossless|tracks] <Industrial, Techno, Hardcore, Noise, Dubstep, Drum & Bass>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2013.10.26 APOTHEOSIS (M3-32)
+2014.04.27 THI (M3-33)
+2017.08.11 ANIMASOLA EP (C92)Тип издания: CommercialЖанр: Industrial, Techno, Hardcore, Noise, Dubstep, Drum & BassПродолжительность: 00:01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39CD32E9816A84D69F4F85125FF6E4B9152FB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309396   (550976) от 19.06.2019
+
+Hellion Sounds — 10 альбомов (2010-2020) Anime Games, Touhou Instrumental /Doujin/ [FLAC|Lossless|tracks] <Heavy Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2011.12.31 (HSCD-0008) Last Floor (C81)
+2012.05.27 (HSCD-0009) Scent Games (Reitaisai 9)
+2014.08.17 (HSCD-0010) Red Rezome (C86)Тип издания: DoujinЖанр: Heavy MetalФормат: Anime Games, Touhou InstrumentalПродолжительность: 00:08:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2B47B4A89B823842AD64A7B7878736AA20A120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309397   (550974) от 19.06.2019
+
+Eternal Melody — 5 альбомов (2016-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Rock, Gothic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2018.04.29 (EMCD-0013) End Of The World (M3-41)
+2018.08.10 (EMCD-0014) Fairytail (C94)
+2018.12.30 (EMCD-0015) Absolute White (C95)Тип издания: DoujinЖанр: J-Rock, GothicФормат: Touhou VocalПродолжительность: 00:02:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319E5047AB3222AE2F969B028D76470DEDEB4B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937774   (550912) от 19.06.2019
+
+k-waves LAB — 16 альбомов (2008-2014) Anime, Touhou Instrumental /Doujin/ [FLAC|Lossless|tracks] <Instrumental, Folk>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2013.08.12 (KWL-0008) 幽かのたまゆら (C84)
+2013.12.30 (KWL-0009) EORZEAN MINSTRELS' STORY (C85)
+2014.08.16 (KWL-0010) 旅情逃飛行 (C86)Тип издания: DoujinЖанр: Instrumental, FolkФормат: Anime, Touhou InstrumentalПродолжительность: 00:06:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BD660BA5C2E113F36EE820F0E7CAEB3D8939BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818329   (550846) от 19.06.2019
+
+Jerico's Law — 16 альбомов (2010-2019) Touhou Instrumental /Doujin/ [FLAC|Lossless|tracks] <Hardcore, Trance, Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(2016.10.30) EDAMAME!!! (M3-38)
+(2019.04.28) Ultimate match (M3-43)
+(2019.05.05) Dream Extraction (Reitaisai 16)Тип издания: DoujinЖанр: Hardcore, Trance, ElectronicФормат: Touhou InstrumentalПродолжительность: 00:12:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E314996001A6CD0F5F238E210A8C1C3F8ECE02C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047291   (549881) от 29.08.2016
 
 Infinity of Sound - Girls on the Moon (2016) [MP3|320 Kbps] <K-Pop, Traditional, Covers>
@@ -609,157 +754,6 @@ coldrain - Nonnegative (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:938AC1AFDBFECD4552137379D104CFC30901A4E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562137   (511524) от 08.07.2022
-
-Nemophila - Revive (U.S. Version) (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Alternative metal, J-rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511524.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. REVIVE (U.S. Version)
-2. DISSENSION (U.S. Version)
-3. HOZUKI (U.S. Version)
-4. HYPNOSIS (U.S. Version)(   Читать дальше...   )Жанр: Metalcore, Alternative metal, J-rockПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFBCE0756EC0C3B84D150BAD73A021C5A051EC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211170   (510738) от 29.08.2010
-
-Sojiro - Дискография /20 альбомов/ (1987 - 2009) [MP3|256,320 kbps]<Ethnic, new age>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ethnic, new age
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931957   (509885) от 28.08.2015
-
-Four Get Me A Nots - Astrea (2015) [OGG| 488-540 кб/с]<JPop, Pop Punk Rock>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sail
-02. Music Is My Life
-03. Set You Free
-04. Void(   Читать дальше...   )Жанр: JPop, Pop Punk RockПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C0B8492A8A60DD2C3BBE0B9CA25828A90ADF2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538308   (509695) от 23.08.2012
-
-Xiao Ping - GOD Of Guitar (2009) [MP3|160 кб/с]<Instrumental, Guitar>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509695.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:47) 01. Canon
-(4:38) 02. Dream Catcher
-(3:18) 03. The Last Waltz
-(4:28) 04. Castle in the Sky
-(3:58) 05. Passion When We Separate
-(4:39) 06. Casablanc
-(4:42) 07. Starry Starry Night
-(4:00) 08. Fools Are Deeply In Love Of The Past
-(4:35) 09. A Good Day To Set Out
-(4:17) 10. Hotel of Grief(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A08848E7613EDEDBA4423F429AABE1E77A3FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538223   (507451) от 25.08.2012
-
-Meiko Kaji - Aitsu no Suki Sona Blues (2011) [MP3|320 кб/с]<J-POP, Blues, Blues Rock>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507451.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Aitsu no Suki Sona Blues
-2 Ichiban Boshi Blues
-3 Aitsu no Suki Sona Blues
-4 Fukurokouji Sanban Chou
-5 Asagao.Yuugao
-6 AA Blues
-7 Shinayaka ni Shitataka niЖанр: J-POP, Blues, Blues RockПродолжительность: 00:25:74
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6148F556A5737F21D4B7BE35E5C4F7E3CDE1B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

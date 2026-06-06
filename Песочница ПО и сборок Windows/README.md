@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1870488   (1068854) от 
+###  Публикация: 1872712   (1070799) от 24.05.2026
+
+Windows 11 25h2 (24in1) (build 26200.8457) by Izual Soft [v23.05.26] [Ru/En]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложения удалены
+Магазин и Защитник не удалялись, не отключались
+
+Сборка создана на основе оригинальных файлов UUP.(   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766D7CAD26625503B473A84A8B78D8F83D0E4479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870488   (1068854) от 14.05.2026
 
 Windows 11 SE 24H2 (build 26100.8328) DiskExpansion by Alexandr1235 [04.2026] [Ru]
 
@@ -687,35 +716,6 @@ BananaUpdateBlocker - программный продукт от BananaBrain, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA5A24428F813EBA369A64C1CAFD0BEED790E682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827088   (186110) от 21.10.2025
-
-Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов
-26200.6584.250915-1905.25h2_ge_release_svc_refresh_CLIENT_CONSUMER_A64FRE_ru-ru.iso
-windows11_business_editions_version_24h2_updated_sep_2025_64_dvd_e1e7fc35.iso
-windows11_business_editions_version_23h2_updated_sep_2025_x64_dvd_59189188.iso.(   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F4907D913C49CFA879A8866243BB25AE2B47E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1874476   (1071850) от 02.06.2026
+
+Mirko Hirsch - The Instrumental Versions, Vol. 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirko Hirsch - Best of Friends (Alternate Mix) (Instrumental) (5:58)
+02. Dancer in the Rain (Alternate Mix) (Instrumental) (4:56)
+03. In the Night (Instrumental) (4:41)
+04. Shot Down (Instrumental) (7:20)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F620015698DCE5C7E156F0CB7CF18B719AE6C374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874141   (1071599) от 31.05.2026
+
+Various Artists - ZYX Italo Disco New Generation Vol. 28 (2026) 2 x CD [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071599.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Extatique (Man Vs. Robot) (Flemming Dalum Remix) - Italove (4:57)
+02. Your Love (Flashback Remix) - Mark Tower (6:55)
+03. Dancing In The Dark (Flemming Dalum Remix) - Mike Mareen (6:32)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD608C4E64A70AE27B5014C8C848E097ED7F563D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869183   (1068095) от 04.05.2026
 
 Виктор Кирея - Диско 2026: Современная инструментальная музыка в стиле 80-х, 90-х (2026) [FLAC|Lossless|WEB-DL|tracks] <Disco, Instrumental>
@@ -685,64 +743,6 @@ VA - Italo Disco New Revival Volume 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Ital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CB5832B3D180C637C8E2883ADD903EA0FDFEE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443197   (1035707) от 28.01.2021
-
-Steps - What the Future Holds (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop, Euro Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What the Future Holds (Single Mix) [03:49]
-02. Something in Your Eyes [03:02]
-03. Clouds [03:55]
-04. To the Beat of My Heart [03:10](   Читать дальше...   )Жанр: Dance Pop, Euro DiscoПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8374C7A1593273BFD1997E5DA150BBEA712AC74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443596   (1035475) от 29.01.2021
-
-Mark Ashley - MT (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are Not Alone (Radio Version) (3:39)
-02. The Fans of Modern Talking (Club Mix) (5:35)
-03. Cheri Cheri Lady (Extended 2018) (4:43)
-04. You're My Heart You're My Soul (Radio Version) (3:44)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11A2DD9775D8DD1BFF69761FF936F357A4B9B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

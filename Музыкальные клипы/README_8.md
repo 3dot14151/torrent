@@ -1,3 +1,58 @@
+###  Публикация: 988840   (918119) от 21.02.2016
+
+VA - Дискохит 90-х (большая коллекция клипов) (1970 - 1990) VHSRip
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцевальные сборник 90-х, клипы в сборке в неплохом качестве, кто-то что-то из сборки для себя выберет, если не хотите качать весь сборник, выбор делается при добавлении торента - снятием отметки с ненужного клипа.Диск1:
+01. Anticappella ft. MC Fixx It- Move your body.avi
+02. Centory- Point of no return.avi
+03. MC S.A.R. & The Real McCoy- Automatic lover.avi(   Читать дальше...   )Производство: Europa, USAЖанр: Музыкальные клипыПродолжительность: 27:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80822F70CCE7DA870FECA70E656C713AF2BF1B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632981   (917960) от 21.03.2013
+
+Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58C76C7B9EF6A701932338B600313CE5D4B197A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 633196   (917829) от 21.03.2013
 
 Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
@@ -635,58 +690,6 @@ Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0561C7FACDFF0519EBE8495BA038857A6F98545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635849   (906004) от 28.03.2013
-
-The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9DAE6ECD687346EC8EFE11CBECA30B3BA8BF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635842   (905916) от 28.03.2013
-
-DJ Smash  DJ Miller feat. Anya - Angels (2013) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB725D84D2729B7AA892D18E227920759980AF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

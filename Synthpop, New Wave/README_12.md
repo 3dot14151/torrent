@@ -1,3 +1,119 @@
+###  Публикация: 1665569   (182152) от 30.09.2023
+
+Gunship - Unicorn (2023) [MP3|320 Kbps] <Synthwave, Darksynth, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Monster in Paradise (feat. Milkie Way, Dave Lombardo, Tyler Bates) [00:05:30]
+02 - Taste like Venom [00:03:26]
+03 - Empress of the Damned (feat. Lights) [00:03:50]
+04 - Tech Noir 2 (feat. John Carpenter, Charlie Simpson) [00:05:25](   Читать дальше...   )Жанр: Synthwave, Darksynth, New WaveПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8F377161D9EEBE1F29C3EEB274DF709B00D9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593465   (179908) от 28.11.2022
+
+Neuroklast - 2 Albums (2021-2022) [MP3|320 Kbps] <Electro-Industrial, Cyberpunk>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forlorn [00:04:45]
+02. Anima [00:04:27]
+03. Netrun [00:03:10]
+04. Simulation Whore [00:03:15](   Читать дальше...   )Жанр: Electro-Industrial, CyberpunkПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E509D0951746E0420A288D2B9E0F5D2D9619D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666064   (178929) от 05.10.2023
+
+Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Simply the Best Hit [00:04:56]
+02 - Through the Flickering Stars [00:04:41]
+03 - From the Morning to the Dark [00:04:11]
+04 - Lonely Moon [00:03:53](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C833B48E9FD29EB0ED2EBA688F6178E9F23C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666218   (177438) от 07.10.2023
+
+Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - TELEX EP1
+2022 - TELEX EP2
+2023 - TELEX EP3Жанр: Disco, Synth-pop, House, TechnoПродолжительность: 3 CD, 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66296CC0947E27760868E89205615DC62D3C2B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596486   (169169) от 11.12.2022
 
 Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
@@ -629,122 +745,6 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0629E01E61F7AF1C0A9D71CF9288E77ADD3C08AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694064   (121306) от 23.01.2024
-
-Pet Shop Boys - Format (B-Sides And Bonus Tracks 1996–2009) (2012) [OGG Vorbis|480 Kbps] <Europop, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Truck-Driver And His Mate
-02.  Hit And Miss
-03.  In The Night (1995)
-04.  Betrayed(   Читать дальше...   )Жанр: Europop, Synth-pop, DiscoПродолжительность: 02:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F2830D8F20669564544EA97BCA4D96B7F258DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697272   (118958) от 06.02.2024
-
-Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cosmo Tron (Remix)
-02.  Trip To Destroy
-03.  Endless Dream
-04.  Brain Mission(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203A05EAD67C8EA34BA73DAF3F288BFCCFCE6594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697262   (118955) от 06.02.2024
-
-Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shotgun (Into The Night) (Remix)
-02.  Battle Cry (Remix)
-03.  You & Me (Remix)
-04.  Mars Invaders (Remix)(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41F526634D89D9132DCE42476A8905107D6FA6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697397   (118929) от 06.02.2024
-
-Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Warriors
-02.  Dead Star
-03.  New Adventure
-04.  Sky Orbit(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C33DAAC8E9AE622427987DD24EEF4CFE79AA02
 ```
 
 https://mybot314.ru/tekegram_catalog/
